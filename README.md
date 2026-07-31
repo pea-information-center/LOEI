@@ -1,5 +1,6 @@
-# LOEI
-# https://dns-query.jimdofree.com/th-content-category-detail-id-1979-iid-th-page-item-index-id-1-129886-682bd098-e977-4c41-82cc-817c7338804b-2/
+# LOEI/home
+# [พระราชบัญญัติและประวัติบรรจุ](https://dns-query.jimdofree.com/th-content-category-detail-id-1979-iid-th-page-item-index-id-1-129886-682bd098-e977-4c41-82cc-817c7338804b-2/)
+# [สภ.เชียงคาน](https://chiangkhan.loei.police.go.th/#royalthaipoliceloei/pea-information-center)
 สำนักรัฐบาลดิจิทัลTDGA/DGA
 <!-- wp:template-part {"slug":"header","theme":"pub/assembler"} /-->
 
