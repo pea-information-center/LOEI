@@ -575,3 +575,8631 @@
 <!-- /wp:spacer -->
 
 <iframe src="https://www.google.com/maps/embed?pb=!1m18!1m12!1m3!1d3805.657099251898!2d101.75908129999999!3d17.4761188!2m3!1f0!2f0!3f0!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x312147ed3b6bb967%3A0x68978faa4ad3ab35!2z4Lio4Liy4Lil4LiI4Lix4LiH4Lir4Lin4Lix4LiU4LmA4Lil4Lii!5e0!3m2!1sth!2sth!4v1785502808531!5m2!1sth!2sth" width="400" height="300" style="border:0;" allowfullscreen="" loading="lazy" referrerpolicy="strict-origin-when-cross-origin"></iframe>
+
+<!-- wp:list -->
+<ul class="wp-block-list"><!-- wp:list-item -->
+<li><a href="https://dns-query.jimdofree.com/"></a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://dns-query.jimdofree.com/th-content-category-detail-id-1979-iid-th-page-item-index-id-1-129886-682bd098-e977-4c41-82cc-817c7338804b-636/"></a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://dns-query.jimdofree.com/th-content-category-detail-id-1979-iid-th-page-item-index-id-1-129886-682bd098-e977-4c41-82cc-817c7338804b-433/"></a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://dns-query.jimdofree.com/th-content-category-detail-id-1979-iid-th-page-item-index-id-1-129886-682bd098-e977-4c41-82cc-817c7338804b-1/"></a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://dns-query.jimdofree.com/th-content-category-detail-id-1979-iid-th-page-item-index-id-1-129886-682bd098-e977-4c41-82cc-817c7338804b-2/"></a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://dns-query.jimdofree.com/th-content-category-detail-id-1979-iid-th-page-item-index-id-1-129886-682bd098-e977-4c41-82cc-817c7338804b-3/"></a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://dns-query.jimdofree.com/th-content-category-detail-id-1979-iid-th-page-item-index-id-1-129886-682bd098-e977-4c41-82cc-817c7338804b-4/"></a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://dns-query.jimdofree.com/th-content-category-detail-id-1979-iid-th-page-item-index-id-1-129886-682bd098-e977-4c41-82cc-817c7338804b-5/"></a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://dns-query.jimdofree.com/th-content-category-detail-id-1979-iid-th-page-item-index-id-1-129886-682bd098-e977-4c41-82cc-817c7338804b-6/"></a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://dns-query.jimdofree.com/th-content-category-detail-id-1979-iid-th-page-item-index-id-1-129886-682bd098-e977-4c41-82cc-817c7338804b-7/"></a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://dns-query.jimdofree.com/th-content-category-detail-id-1979-iid-th-page-item-index-id-1-129886-682bd098-e977-4c41-82cc-817c7338804b-8/"></a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://dns-query.jimdofree.com/th-content-category-detail-id-1979-iid-th-page-item-index-id-1-129886-682bd098-e977-4c41-82cc-817c7338804b-9/"></a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://dns-query.jimdofree.com/th-content-category-detail-id-1979-iid-th-page-item-index-id-1-129886-682bd098-e977-4c41-82cc-817c7338804b-10/"></a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://dns-query.jimdofree.com/th-content-category-detail-id-1979-iid-th-page-item-index-id-1-129886-682bd098-e977-4c41-82cc-817c7338804b/"></a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://dns-query.jimdofree.com/th-content-category-detail-id-1979-iid-th-page-item-index-id-1-129886-682bd098-e977-4c41-82cc-817c7338804b-11/"></a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://dns-query.jimdofree.com/th-content-category-detail-id-1979-iid-th-page-item-index-id-1-129886-682bd098-e977-4c41-82cc-817c7338804b-12/"></a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://dns-query.jimdofree.com/th-content-category-detail-id-1979-iid-th-page-item-index-id-1-129886-682bd098-e977-4c41-82cc-817c7338804b-13/"></a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://dns-query.jimdofree.com/th-content-category-detail-id-1979-iid-th-page-item-index-id-1-129886-682bd098-e977-4c41-82cc-817c7338804b-14/"></a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://dns-query.jimdofree.com/%E0%B8%A3%E0%B8%B2%E0%B8%A2%E0%B8%8A-%E0%B8%AD%E0%B8%AB%E0%B8%99-%E0%B8%A7%E0%B8%A2%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%AA-%E0%B8%87%E0%B8%81-%E0%B8%94%E0%B8%AA%E0%B8%B3%E0%B8%99-%E0%B8%81%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%95%E0%B8%B3%E0%B8%A3%E0%B8%A7%E0%B8%88%E0%B9%81%E0%B8%AB-%E0%B8%87%E0%B8%8A%E0%B8%B2%E0%B8%95-th-content-category-detail-id-1979-iid-th-page-item-index-id-1-129886-682bd098-e977-4c41-82cc-817c7338804b/"></a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://dns-query.jimdofree.com/%E0%B8%AA%E0%B8%B3%E0%B8%99-%E0%B8%81%E0%B8%87%E0%B8%9A%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%A1%E0%B8%B2%E0%B8%93%E0%B8%81%E0%B8%B2%E0%B8%A3-%E0%B8%AA%E0%B8%B3%E0%B8%99-%E0%B8%81%E0%B8%9B%E0%B8%A5-%E0%B8%94%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3-%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3-th-content-category-detail-id-1979-iid-th-page-item-index-id-1-129886-682bd098-e977-4c41-82cc-817c7338804b/"></a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://dns-query.jimdofree.com/%E0%B8%AD%E0%B8%9A%E0%B8%95-%E0%B9%83%E0%B8%99%E0%B8%88-%E0%B8%87%E0%B8%AB%E0%B8%A7-%E0%B8%94%E0%B9%80%E0%B8%A5%E0%B8%A2-th-content-category-detail-id-1979-iid-th-page-item-index-id-1-129886-682bd098-e977-4c41-82cc-817c7338804b/"></a></li>
+<!-- /wp:list-item --></ul>
+<!-- /wp:list -->
+
+<!-- wp:image {"linkDestination":"custom"} -->
+<figure class="wp-block-image"><a href="https://dns-query.jimdofree.com/"><img src="https://image.jimcdn.com/app/cms/image/transf/none/path/s867332987e70275d/image/i2a328760c300c766/version/1785154863/image.png" alt="dns-query"/></a></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://dns-query.jimdofree.com/">pea@info.or.th​ พันตำรวจโทวิศิษฎ์​ ทองโม้</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image {"linkDestination":"custom"} -->
+<figure class="wp-block-image"><a href="https://www.royalthaipolice.go.th/th" target="_blank" rel="noreferrer noopener"><img src="https://image.jimcdn.com/app/cms/image/transf/none/path/s867332987e70275d/image/ibb8000a629a25da3/version/1785059255/image.jpg" alt="ดำรงณ์ตำแหน่ง.จวนผู้ว่าราชกาลจังหวัดเลย"/></a><figcaption class="wp-element-caption">ดำรงณ์ตำแหน่ง.จวนผู้ว่าราชกาลจังหวัดเลย</figcaption></figure>
+<!-- /wp:image -->
+
+<!-- wp:embed {"url":"https://commons.wikimedia.org/wiki/File:Loei.police.Office_of_the_Narcotics_Control_Board.jpg","type":"rich","providerNameSlug":"embed-handler"} -->
+<figure class="wp-block-embed is-type-rich is-provider-embed-handler wp-block-embed-embed-handler"><div class="wp-block-embed__wrapper">
+https://commons.wikimedia.org/wiki/File:Loei.police.Office_of_the_Narcotics_Control_Board.jpg
+</div></figure>
+<!-- /wp:embed -->
+
+<!-- wp:paragraph -->
+<p>พันตำรวจเอก วรชัย บางยี่ขัน ดำรงตำแหน่งผู้กำกับการสถานีตำรวจภูธรเมืองเลย (สภ.เมืองเลย) ในปัจจุบัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ประวัติการทำงานสำคัญ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>พ.ศ. 2564: ดำรงตำแหน่ง รองผู้กำกับการ (สอบสวน) สถานีตำรวจภูธปากช่อง จังหวัดนครราชสีมา</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>พ.ศ. 2566: ดำรงตำแหน่ง ผู้กำกับการสถานีตำรวจภูธรธวัชบุรี จังหวัดร้อยเอ็ด (1 กุมภาพันธ์ - 30 พฤศจิกายน 2566)</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ปัจจุบัน: ดำรงตำแหน่ง ผู้กำกับการสถานีตำรวจภูธรเมืองเลย (สภ.เมืองเลย) ปฏิบัติหน้าที่ในการบริหารราชการสถานี ดูแลความปลอดภัย และป้องกันปราบปรามอาชญากรรมในพื้นที่&nbsp;</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>สภ.ธวัชบุรี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>หากคุณต้องการทราบข้อมูลส่วนอื่นเพิ่มเติม เช่น ผลงานสำคัญ หรือ ช่องทางติดต่อหน่วยงาน ที่ท่านกำกับดูแล สามารถบอกได้เลยครับ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>อำนาจหน้าที่ของจังหวัด</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>1. บริหารราชการตามกฎหมายและระเบียบแบบแผนของทางราชการ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>2. บริหารราชการตามที่คณะรัฐมนตรี กระทรวง ทบวง กรม มอบหมาย หรือตามที่นายกรัฐมนตรีสั่งการในฐานะหัวหน้ารัฐบาล</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>3. บริหารราชการตามคำแนะนำและคำชี้แจงของผู้ตรวจราชการกระทรวง ในเมื่อไม่ขัดต่อกฎหมาย ระเบียบ ข้อบังคับ หรือคำสั่งของกระทรวง ทบวง กรม มติของคณะรัฐมนตรี หรือการสั่งการของนายกรัฐมนตรี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>4. กำกับดูแลการปฏิบัติราชการ อันมิใช่ราชการส่วนภูมิภาคของข้าราชการ ซึ่งประจำอยู่ในจังหวัดนั้น ยกเว้นข้าราชการทหาร ข้าราชการฝ่ายตุลาการ ข้าราชการฝ่ายอัยการ ข้าราชการพลเรือนในมหาวิทยาลัย ข้าราชการในสำนักงานตรวจเงินแผ่นดิน และข้าราชการครูให้ปฏิบัติราชการให้เป็นไปตามกฎหมาย ระเบียบ ข้อบังคับหรือคำสั่งของกระทรวง ทบวง กรม หรือมติของคณะรัฐมนตรี หรือการสั่งการของนายกรัฐมนตรีหรือยับยั้งการกระทำใดๆ ของข้าราชการในจังหวัดที่ขัดต่อกฎหมาย ระเบียบ ข้อบังคับ หรือคำสั่งของกระทรวง ทบวง กรม มติของคณะรัฐมนตรี หรือการสั่งการของนายกรัฐมนตรีไว้ชั่วคราว แล้วรายงานกระทรวง ทบวง กรม ที่เกี่ยวข้อง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>5. ประสานงานและร่วมมือกับข้าราชการทหาร ข้าราชการทหาร ข้าราชการฝ่ายตุลาการ ข้าราชการฝ่ายอัยการ ข้าราชการพลเรือนในมหาวิทยาลัย ข้าราชการในสำนักงานตรวจเงินแผ่นดิน และข้าราชการครู ผู้ตรวจราชการ และหัวหน้าส่วนราชการในระดับเขตหรือภาคในการพัฒนาจังหวัด หรือป้องปัดภัยพิบัติสาธารณะ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>6. เสนองบประมาณต่อกระทรวงที่เกี่ยวข้องตามโครงการหรือแผนพัฒนาจังหวัด และรายงานให้กระทรวงมหาดไทยทราบ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>7. ควบคุมดูแลการบริหารราการส่วนท้องถิ่นในจังหวัดตามกฎหมาย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>8. กำกับการปฏิบัติหน้าที่ ของพนักงานองค์การของรัฐบาล หรือรัฐวิสาหกิจ ในการนี้ให้มีอำนาจทำรายงานหรือแสดงความคิดเห็นเกี่ยวกับการดำเนินงานขององค์การของรัฐบาล หรือรัฐวิสาหกิจต่อรัฐมนตรีเจ้าสังกัด องค์การของรัฐบาลหรือรัฐวิสาหกิจ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>9. บรรจุ แต่งตั้ง ให้บำเหน็จ และลงโทษข้าราชการส่วนภูมิภาคในจังหวัดตามกฎหมาย และตามที่ปลัดกระทรวง ปลัดทบวงหรืออธิบดีมอบหมาย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>อำนาจหน้าที่ของภูมิภาค</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;การบริหารราชการส่วนภูมิภาค การบริหารราชการส่วนภูมิภาค (Provincial Administration) เป็นการบริหารราชการแผ่นดินตามหลักการ แบ่งอ านาจ (Deconcentration) ราชการบริหารส่วนกลางจะมอบอ านาจหน้าที่ในกิจการบางอย่างไปให้แก่ ราชการบริหารส่วนภูมิภาคไปปฏิบัติจัดท า มีอ านาจตัดสินใจในขอบเขตที่จ ากัดบางอย่างตามที่ราชการบริหาร ส่วนกลางจะได้มอบไว้ให้หน่วยงานที่ตั้งอยู่ในส่วนภูมิภาค เป็นกลไกส าคัญทางการเมืองในการแปลงนโยบาย การเมืองสู่การปฏิบัติ ตามพระราชบัญญัติระเบียบบริหารราชการแผ่นดิน พ.ศ. 2534 มาตรา 51 ได้บัญญัติ ให้การจัดระเบียบบริหารราชการส่วนภูมิภาคมีสองรูปแบบคือ จังหวัดและอ าเภอ ความส าคัญการบริหารราชการส่วนภูมิภาค 1) เพื่อให้เกิดประสิทธิภาพในการปกครอง ในประเทศที่มีลักษณะเป็นรัฐเดี่ยวนั้น การปกครองส่วนกลางจะ เป็นศูนย์รวมแห่งการจัดการปกครองของรัฐทั้งหมด ซึ่งการจัดระบบการปกครองด้วยวิธีการแบ่งงานออกเป็น ระดับหรือขั้นตอนต่างๆ ก็เพื่อให้สามารถจัดการปกครองได้ทั่วถึงและมีประสิทธิภาพ ในประเทศที่มีนโยบาย การปกครองแบบรวมอ านาจในทางการเมืองก็จะใช้ระบบการแบ่งอ านาจเป็นวิธีการหรือเครื่องมือในทาง บริหารนั่นเอง 2) เพื่อท าหน้าที่เป็นผู้สืบทอดนโยบายของรัฐบาลไปสู่ภูมิภาคต่างๆ โดยตรง ซึ่งวิธีการแบ่งอ านาจนั้นเป็นการ ขยายงานของรัฐบาล หรือการแบ่งสาขาของรัฐบาลออกไปในระดับต่างๆ มีผลท าให้นโยบายของรัฐบาลได้ถูก น าไปปฏิบัติโดยตัวแทนของรัฐบาลโดยตรง 3) เพื่อแสดงฐานะตัวแทนของอ านาจส่วนกลาง กล่าวคือผู้ที่จะท าหน้าที่ในระดับภูมิภาคต้องมาจากการอนุมัติ แต่งตั้ง ยินยอม หรือตัดสินใจจากส่วนกลางเป็นส าคัญ การบริหารราชการส่วนภูมิภาคจึงเป็นกลไกทางการเมืองในการแปลงนโยบายของรัฐสู่การปฏิบัติให้ประสบ ความส าเร็จ เป็นกลไกการบริหารราชการในการจัดบริการสาธารณะที่มีประสิทธิผล ประสิทธิภาพและสร้าง ความพึงพอใจให้กับประชาชน ลักษณะส าคัญของการบริหารราชการส่วนภูมิภาค การบริหารราชการส่วนภูมิภาค เป็นกลไกทางการเมืองและกลไกทางการบริหาร ซึ่งมีลักษณะและหลักเกณฑ์ ส าคัญ ดังนี้ 1. เป็นการแบ่งอ านาจการปกครองจากส่วนกลาง ซึ่งจะมีผู้แทนจากการบริหารราชการส่วนกลางไปประจ าอยู่ ในส่วนภูมิภาค มิใช่เป็นการกระจายอ านาจปกครอง 2. เจ้าหน้าที่ส่วนภูมิภาคยังอยู่ภายใต้อ านาจบังคับบัญชาส่วนกลางโดยเฉพาะในเรื่องของการบริหารงานบุคคล ปัจจุบันมีการแบ่งมอบอ านาจตัดสินใจในเรื่องนี้มากขึ้น 3. ราชการส่วนภูมิภาคได้รับมอบอ านาจในการวินิจฉัยสั่งการเฉพาะบางเรื่องบางประการเท่านั้น การบริหาร ราชการส่วนกลางมีอ านาจที่จะเปลี่ยนแปลงแก้ไขค าวินิจฉัยสั่งการของส่วนภูมิภาคได้ ฉะนั้นผู้มีอ านาจสั่งการ ขั้นสุดท้ายก็คือราชการส่วนกลางนั่นเอง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://acrobat.adobe.com/id/urn:aaid:sc:AP:80f8c500-e954-456a-b305-3bb630c7e9c1">หนังสืออ้างอิง</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>เกี่ยวกับ ป.ป.ส.</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:list -->
+<ul class="wp-block-list"><!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/about/history">ประวัติความเป็นมา</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/about/5">วิสัยทัศน์ พันธกิจ</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/about/6">โครงสร้างและภารกิจหน้าที่</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/acplan" target="_blank" rel="noreferrer noopener">นโยบาย ยุทธศาสตร์และแผนปฏิบัติการ</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://nccd.go.th/command1" target="_blank" rel="noreferrer noopener">คำสั่ง ระเบียบ และคำสั่งที่เกี่ยวข้อง</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/plan-report" target="_blank" rel="noreferrer noopener">แผนงาน/โครงการ/กิจกรรมและรายงาน</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/og" target="_blank" rel="noreferrer noopener">แนวทางปฏิบัติงาน</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/standards" target="_blank" rel="noreferrer noopener">มาตรฐานทางจริยธรรม 7 ประการ</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/about/16">ข้อมูลการติดต่อ</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/about/17">แผนที่ตั้งหน่วยงาน</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www2.oncb.go.th/" target="_blank" rel="noreferrer noopener">เว็บไซต์เวอร์ชั่นเก่า</a></li>
+<!-- /wp:list-item --></ul>
+<!-- /wp:list -->
+
+<!-- wp:paragraph -->
+<p>กฎหมาย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:list -->
+<ul class="wp-block-list"><!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/pdfjs/web/viewer.html?file=/storage/file/media/th/67ecec9e4489dSW2tT.pdf&amp;mode=preview" target="_blank" rel="noreferrer noopener">หนังสือรวมกฎหมายยาเสพติด (TH)</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/pdfjs/web/viewer.html?file=/storage/file/media/th/67ece6e37c37bK3roM.pdf&amp;mode=preview" target="_blank" rel="noreferrer noopener">หนังสือรวมกฎหมายยาเสพติด (EN)</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/current-law">กฎหมายปัจจุบัน</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/draft">ร่างกฎหมาย</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/effectivenes" target="_blank" rel="noreferrer noopener">การประเมินผลสัมฤทธิ์ของกฎหมาย</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://nccd.go.th/command1" target="_blank" rel="noreferrer noopener">คำสั่ง ระเบียบ ประกาศ</a></li>
+<!-- /wp:list-item --></ul>
+<!-- /wp:list -->
+
+<!-- wp:paragraph -->
+<p>ป.ป.ส. บริการ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:list -->
+<ul class="wp-block-list"><!-- wp:list-item -->
+<li><a href="https://1386.oncb.go.th/" target="_blank" rel="noreferrer noopener">แจ้งเบาะแสยาเสพติด 1386</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://neos.oncb.go.th/OS/login" target="_blank" rel="noreferrer noopener">ระบบบริหารจัดการข้อมูล เจ้าพนักงาน ป.ป.ส. (NEOS)</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://job.oncb.go.th/" target="_blank" rel="noreferrer noopener">สมัครงานสำนักงาน ป.ป.ส.</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://apioncb.oncb.go.th/ONCB-Petition/public/" target="_blank" rel="noreferrer noopener">แจ้งเรื่องร้องเรียนการทุจริต</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/media/knowledge/narcotics-prevention-education" target="_blank" rel="noreferrer noopener">สื่อความรู้เพื่อป้องกันฯ ในสถานศึกษา</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/media/knowledge/educational-media-narcotics" target="_blank" rel="noreferrer noopener">สื่อความรู้เกี่ยวกับยาเสพติด</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://nccdor.nccd.go.th/chemical/" target="_blank" rel="noreferrer noopener">ระบบการแจ้งสารเคมีควบคุม</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://aseannarco.oncb.go.th/" target="_blank" rel="noreferrer noopener">สำนักงาน ป.ป.ส.อาเซียน (ASEAN-NARCO)</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://nispaplus.nccd.go.th/" target="_blank" rel="noreferrer noopener">ระบบสารสนเทศยาเสพติดจังหวัด (NISPA+)</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://hr.nccd.go.th/" target="_blank" rel="noreferrer noopener">ระบบทะเบียนกำลังพลผู้ปฏิบัติงานด้านยาเสพติด</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/oncb-services/56">ข้อมูลบริการของ ป.ป.ส.</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://docs.google.com/forms/d/e/1FAIpQLSeJk6r_6eP9DkwEdMVvebpGMhhN5VIDmqjd-Ej0t1BpS31q8w/viewform" target="_blank" rel="noreferrer noopener">ความคิดเห็นเกี่ยวกับสำนักงาน ป.ป.ส.</a></li>
+<!-- /wp:list-item --></ul>
+<!-- /wp:list -->
+
+<!-- wp:paragraph -->
+<p>ดาวน์โหลด</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:list -->
+<ul class="wp-block-list"><!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/download?group=download&amp;category=command">ดาวน์โหลดคำสั่ง</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/download?group=download&amp;category=document">ดาวน์โหลดแบบฟอร์ม/เอกสาร</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/download?group=download&amp;category=application">ดาวน์โหลดแอปพลิเคชั่น</a></li>
+<!-- /wp:list-item --></ul>
+<!-- /wp:list -->
+
+<!-- wp:paragraph -->
+<p><a href="https://www.oncb.go.th/page/service-terms-and-policies" target="_blank" rel="noreferrer noopener">ข้อกำหนดและนโยบายการให้บริการ</a><a href="https://www.oncb.go.th/page/pdpa-guidelines" target="_blank" rel="noreferrer noopener">นโยบายการคุ้มครองข้อมูลส่วนบุคคล</a><a href="https://www.oncb.go.th/page/information-technology-security-policy" target="_blank" rel="noreferrer noopener">นโยบายการรักษาความมั่นคงปลอดภัยด้วยเทคโนโลยีสารสนเทศ</a><a href="https://www.oncb.go.th/page/cookie-policy" target="_blank" rel="noreferrer noopener">นโยบายคุกกี้</a><a href="https://www.oncb.go.th/#">ตั้งค่าคุกกี้</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://www.oncb.go.th/img/logo/oncb-th.svg" alt="สำนักงานคณะกรรมการป้องกันและปราบปรามยาเสพติด"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p>สำนักงานคณะกรรมการป้องกันและปราบปรามยาเสพติด</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>เลขที่ 5 ถนนดินแดง แขวงสามเสนใน เขตพญาไท กรุงเทพมหานคร 10400<br>โทรศัพท์ 02-247-0901-19 &nbsp; โทรสาร 02-245-9350 &nbsp; Contact us:&nbsp;<a href="mailto:saraban@oncb.go.th">saraban@oncb.go.th</a>,&nbsp;<a href="mailto:webmaster@oncb.go.th">webmaster@oncb.go.th</a><br>Copyright © 2026</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image {"linkDestination":"custom"} -->
+<figure class="wp-block-image"><a href="https://www.royalthaipolice.go.th/th" target="_blank" rel="noreferrer noopener"><img src="https://image.jimcdn.com/app/cms/image/transf/dimension=1112x1024:format=jpg/path/s867332987e70275d/image/i1100f302a9e695ad/version/1785059242/image.jpg" alt="ผกก.สภ.เชียงคาน"/></a><figcaption class="wp-element-caption">ผกก.สภ.เชียงคาน</figcaption></figure>
+<!-- /wp:image -->
+
+<!-- wp:embed {"url":"https://commons.wikimedia.org/wiki/File:Loei.police.Office_of_the_Narcotics_Control_Board.jpg","type":"rich","providerNameSlug":"embed-handler"} -->
+<figure class="wp-block-embed is-type-rich is-provider-embed-handler wp-block-embed-embed-handler"><div class="wp-block-embed__wrapper">
+https://commons.wikimedia.org/wiki/File:Loei.police.Office_of_the_Narcotics_Control_Board.jpg
+</div></figure>
+<!-- /wp:embed -->
+
+<!-- wp:paragraph -->
+<p>การบรรจุและแต่งตั้งข้าราชการตำรวจในระดับ ผู้กำกับการ (ผกก.) สังกัด กองบัญชาการตำรวจสันติบาล (บช.ส.) ต้องเป็นไปตามหลักเกณฑ์ของ สำนักงานตำรวจแห่งชาติ และกฎ ก.ตร. ว่าด้วยการแต่งตั้งข้าราชการตำรวจ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>คุณสมบัติและเงื่อนไขหลัก</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ระดับตำแหน่ง: ผกก. เป็นข้าราชการตำรวจชั้นสัญญาบัตร (ยศ พ.ต.อ.)</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ระยะเวลาดำรงตำแหน่งเดิม: การเลื่อนจากระดับ รอง ผกก. หรือ สวญ. ขึ้นเป็น ผกก. ผู้ดำรงตำแหน่ง รอง ผกก. ต้องมีระยะเวลาในการดำรงตำแหน่งตามหลักเกณฑ์ (เช่น ครองตำแหน่ง พ.ต.ท. ครบกำหนดตามเงื่อนไขเวลา)&nbsp;</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>สภ.แม่ริม</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>การคัดเลือกและแต่งตั้ง: พิจารณาจากบัญชีลำดับอาวุโส, ความรู้ความสามารถเฉพาะทางด้านงานข่าวกรอง การถวายความปลอดภัย หรือผ่านการคัดเลือกตามวาระการแต่งตั้งประจำปีที่ ก.ตร. ให้ความเห็นชอบ&nbsp;</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>หากคุณต้องการทราบรายละเอียดเฉพาะเจาะจงในส่วนใด โปรดบอกเพิ่มเติม:</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ต้องการทราบ ขั้นตอนการคัดเลือก หรือ คุณสมบัติเฉพาะ ของตำแหน่ง ผกก. ในสันติบาล</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>หรือต้องการตรวจสอบ ประกาศคำสั่งแต่งตั้ง ในวาระใดเป็นพิเศษ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:list -->
+<ul class="wp-block-list"><!-- wp:list-item -->
+<li><a href="https://chiangkhan.loei.police.go.th/privacy-policy-2/">นโยบายความเป็นส่วนตัว</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://chiangkhan.loei.police.go.th/sample-page/">หน้าตัวอย่าง</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://chiangkhan.loei.police.go.th/">หน้าหลัก</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://chiangkhan.loei.police.go.th/about/">ข้อมูลหน่วยงาน</a><!-- wp:list -->
+<ul class="wp-block-list"><!-- wp:list-item -->
+<li><a href="https://chiangkhan.loei.police.go.th/about/%e0%b8%9b%e0%b8%a3%e0%b8%b0%e0%b8%a7%e0%b8%b1%e0%b8%95%e0%b8%b4%e0%b8%84%e0%b8%a7%e0%b8%b2%e0%b8%a1%e0%b9%80%e0%b8%9b%e0%b9%87%e0%b8%99%e0%b8%a1%e0%b8%b2/">ประวัติความเป็นมาของสถานีตำรวจภูธรเชียงคาน</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://chiangkhan.loei.police.go.th/about/vision/">วิสัยทัศน์</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://chiangkhan.loei.police.go.th/about/commander/">ข้อมูลผู้บังคับบัญชา</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://chiangkhan.loei.police.go.th/about/structure/">โครงสร้างหน่วยงาน สภ.เชียงคาน</a></li>
+<!-- /wp:list-item --></ul>
+<!-- /wp:list --></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://chiangkhan.loei.police.go.th/news/">การประชาสัมพันธ์ข้อมูลผลการข่าวสาร</a><!-- wp:list -->
+<ul class="wp-block-list"><!-- wp:list-item -->
+<li><a href="https://chiangkhan.loei.police.go.th/news/procurement/">ประชาสัมพันธ์จัดซื้อจัดจ้าง</a></li>
+<!-- /wp:list-item --></ul>
+<!-- /wp:list --></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://chiangkhan.loei.police.go.th/ita-standards/">มาตรฐาน ITA</a><!-- wp:list -->
+<ul class="wp-block-list"><!-- wp:list-item -->
+<li><a href="https://chiangkhan.loei.police.go.th/ita-standards/informations/">ข้อมูลพื้นฐาน</a><!-- wp:list -->
+<ul class="wp-block-list"><!-- wp:list-item -->
+<li><a href="https://chiangkhan.loei.police.go.th/ita-standards/informations/itao1/">O1 : ข้อมูลผู้บริหาร</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://chiangkhan.loei.police.go.th/ita-standards/informations/itao2-2/">O2 : การประชาสัมพันธ์ข้อมูลข่าวสาร</a></li>
+<!-- /wp:list-item --></ul>
+<!-- /wp:list --></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://chiangkhan.loei.police.go.th/ita-standards/administration/">การบริหารงาน</a><!-- wp:list -->
+<ul class="wp-block-list"><!-- wp:list-item -->
+<li><a href="https://chiangkhan.loei.police.go.th/ita-standards/administration/itao3/">O3 : ผลการปฏิบัติงานของแต่ละสายงาน</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://chiangkhan.loei.police.go.th/ita-standards/administration/itao4/">O4 : คู่มือการปฏิบัติงานสำหรับเจ้าหน้าที่</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://chiangkhan.loei.police.go.th/ita-standards/administration/itao5/">O5 : คู่มือการให้บริการประชาชน</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://chiangkhan.loei.police.go.th/ita-standards/administration/itao6/">O6 : E–Service</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://chiangkhan.loei.police.go.th/ita-standards/administration/itao7/">O7 : สถิติผลการดำเนินงาน</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://chiangkhan.loei.police.go.th/ita-standards/administration/itao8/">O8 : ข้อมูลคณะกรรมการตรวจสอบและติดตามการบริหารงานตำรวจ (กต.ตร) ของสถานีตำรวจ</a></li>
+<!-- /wp:list-item --></ul>
+<!-- /wp:list --></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://chiangkhan.loei.police.go.th/ita-standards/budget-money-management/">การบริหารเงินงบประมาณ</a><!-- wp:list -->
+<ul class="wp-block-list"><!-- wp:list-item -->
+<li><a href="https://chiangkhan.loei.police.go.th/ita-standards/budget-money-management/itao9/">O9 : ข้อมูลเงินกองทุนเพื่อการสืบสวน สอบสวน การป้องกัน และปราบปรามการกระทำความผิดทางอาญา</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://chiangkhan.loei.police.go.th/ita-standards/budget-money-management/itao10/">O10 : แผนการใช้จ่ายงบประมาณและการรายงานผล</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://chiangkhan.loei.police.go.th/ita-standards/budget-money-management/itao11/">O11 : สรุปผลการจัดซื้อจัดจ้างรายเดือน</a></li>
+<!-- /wp:list-item --></ul>
+<!-- /wp:list --></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://chiangkhan.loei.police.go.th/ita-standards/personalmanage/">การบริหารและพัฒนาทรัพยากรบุคคล</a><!-- wp:list -->
+<ul class="wp-block-list"><!-- wp:list-item -->
+<li><a href="https://chiangkhan.loei.police.go.th/ita-standards/personalmanage/itao12/">O12 : หลักเกณฑ์การบริหารและพัฒนากำลังพล</a></li>
+<!-- /wp:list-item --></ul>
+<!-- /wp:list --></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://chiangkhan.loei.police.go.th/ita-standards/transparency/">การจัดการเรื่องร้องเรียนการทุจริต</a><!-- wp:list -->
+<ul class="wp-block-list"><!-- wp:list-item -->
+<li><a href="https://chiangkhan.loei.police.go.th/ita-standards/transparency/itao13/">O13 : ช่องทางการแจ้งเรื่องร้องเรียนการทุจริต และข้อมูลเชิงสถิติเรื่องร้องเรียนการทุจริต</a></li>
+<!-- /wp:list-item --></ul>
+<!-- /wp:list --></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://chiangkhan.loei.police.go.th/ita-standards/pervent_curruption/">การป้องกันการทุจริต</a><!-- wp:list -->
+<ul class="wp-block-list"><!-- wp:list-item -->
+<li><a href="https://chiangkhan.loei.police.go.th/ita-standards/pervent_curruption/itao14/">O14 : ประกาศนโยบายต่อต้านการรับสินบน (Anti-Bribery Policy) และการมีส่วนร่วมของหัวหน้าสถานีตำรวจ</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://chiangkhan.loei.police.go.th/ita-standards/pervent_curruption/itao16/">016 : การรายงานผลการดำเนินการเพื่อจัดการความเสี่ยงต่อการทุจริต</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://chiangkhan.loei.police.go.th/ita-standards/pervent_curruption/itao15/">O15 : การประเมินความเสี่ยงการทุจริต</a></li>
+<!-- /wp:list-item --></ul>
+<!-- /wp:list --></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://chiangkhan.loei.police.go.th/ita-standards/%e0%b8%a1%e0%b8%b2%e0%b8%95%e0%b8%a3%e0%b8%81%e0%b8%b2%e0%b8%a3%e0%b8%a0%e0%b8%b2%e0%b8%a2%e0%b9%83%e0%b8%99%e0%b9%80%e0%b8%9e%e0%b8%b7%e0%b9%88%e0%b8%ad%e0%b8%aa%e0%b9%88%e0%b8%87%e0%b9%80%e0%b8%aa/">มาตรการภายในเพื่อส่งเสริมคุณธรรมและความโปร่งใส</a><!-- wp:list -->
+<ul class="wp-block-list"><!-- wp:list-item -->
+<li><a href="https://chiangkhan.loei.police.go.th/ita-standards/%e0%b8%a1%e0%b8%b2%e0%b8%95%e0%b8%a3%e0%b8%81%e0%b8%b2%e0%b8%a3%e0%b8%a0%e0%b8%b2%e0%b8%a2%e0%b9%83%e0%b8%99%e0%b9%80%e0%b8%9e%e0%b8%b7%e0%b9%88%e0%b8%ad%e0%b8%aa%e0%b9%88%e0%b8%87%e0%b9%80%e0%b8%aa/itao17/">O17 มาตรการการยกระดับคุณธรรมและความโปร่งใสภายในหน่วยงาน</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://chiangkhan.loei.police.go.th/ita-standards/%e0%b8%a1%e0%b8%b2%e0%b8%95%e0%b8%a3%e0%b8%81%e0%b8%b2%e0%b8%a3%e0%b8%a0%e0%b8%b2%e0%b8%a2%e0%b9%83%e0%b8%99%e0%b9%80%e0%b8%9e%e0%b8%b7%e0%b9%88%e0%b8%ad%e0%b8%aa%e0%b9%88%e0%b8%87%e0%b9%80%e0%b8%aa/itao18/">O18 : การรายงานผลการดำเนินการตามมาตรการการยกระดับคุณธรรมและความโปร่งใสภายในหน่วยงาน</a></li>
+<!-- /wp:list-item --></ul>
+<!-- /wp:list --></li>
+<!-- /wp:list-item --></ul>
+<!-- /wp:list --></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://chiangkhan.loei.police.go.th/contact/">ข้อมูลการติดต่อ</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://chiangkhan.loei.police.go.th/law/">กฎหมายที่เกี่ยวข้อง</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://chiangkhan.loei.police.go.th/sitemap/">แผนผังเว็บไซต์</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://chiangkhan.loei.police.go.th/privacy-policy/">นโยบายความเป็นส่วนตัว</a></li>
+<!-- /wp:list-item --></ul>
+<!-- /wp:list -->
+
+<!-- wp:heading -->
+<h2 class="wp-block-heading">Categories</h2>
+<!-- /wp:heading -->
+
+<!-- wp:list -->
+<ul class="wp-block-list"><!-- wp:list-item -->
+<li><a href="https://chiangkhan.loei.police.go.th/category/implementation/">การประชาสัมพันธ์ข้อมูลผลการข่าวสาร</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://chiangkhan.loei.police.go.th/category/procurement/">ข่าวประชาสัมพันธ์กิจกรรม</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://chiangkhan.loei.police.go.th/category/%e0%b8%87%e0%b8%b2%e0%b8%99%e0%b8%9b%e0%b9%89%e0%b8%ad%e0%b8%87%e0%b8%81%e0%b8%b1%e0%b8%99%e0%b8%9b%e0%b8%a3%e0%b8%b2%e0%b8%9a%e0%b8%9b%e0%b8%a3%e0%b8%b2%e0%b8%a1/%e0%b8%87%e0%b8%b2%e0%b8%99-%e0%b8%9b-%e0%b9%80%e0%b8%94%e0%b8%b7%e0%b8%ad%e0%b8%99-%e0%b9%80%e0%b8%a1-%e0%b8%a2-69/">งาน ป. เดือน เม.ย.69</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://chiangkhan.loei.police.go.th/category/%e0%b8%87%e0%b8%b2%e0%b8%99%e0%b8%9b%e0%b9%89%e0%b8%ad%e0%b8%87%e0%b8%81%e0%b8%b1%e0%b8%99%e0%b8%9b%e0%b8%a3%e0%b8%b2%e0%b8%9a%e0%b8%9b%e0%b8%a3%e0%b8%b2%e0%b8%a1/">งานป้องกันปราบปราม</a></li>
+<!-- /wp:list-item --></ul>
+<!-- /wp:list -->
+
+<!-- wp:paragraph -->
+<p>เกี่ยวกับ ป.ป.ส.</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:list -->
+<ul class="wp-block-list"><!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/about/history">ประวัติความเป็นมา</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/about/5">วิสัยทัศน์ พันธกิจ</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/about/6">โครงสร้างและภารกิจหน้าที่</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/acplan" target="_blank" rel="noreferrer noopener">นโยบาย ยุทธศาสตร์และแผนปฏิบัติการ</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://nccd.go.th/command1" target="_blank" rel="noreferrer noopener">คำสั่ง ระเบียบ และคำสั่งที่เกี่ยวข้อง</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/plan-report" target="_blank" rel="noreferrer noopener">แผนงาน/โครงการ/กิจกรรมและรายงาน</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/og" target="_blank" rel="noreferrer noopener">แนวทางปฏิบัติงาน</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/standards" target="_blank" rel="noreferrer noopener">มาตรฐานทางจริยธรรม 7 ประการ</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/about/16">ข้อมูลการติดต่อ</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/about/17">แผนที่ตั้งหน่วยงาน</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www2.oncb.go.th/" target="_blank" rel="noreferrer noopener">เว็บไซต์เวอร์ชั่นเก่า</a></li>
+<!-- /wp:list-item --></ul>
+<!-- /wp:list -->
+
+<!-- wp:paragraph -->
+<p>กฎหมาย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:list -->
+<ul class="wp-block-list"><!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/pdfjs/web/viewer.html?file=/storage/file/media/th/67ecec9e4489dSW2tT.pdf&amp;mode=preview" target="_blank" rel="noreferrer noopener">หนังสือรวมกฎหมายยาเสพติด (TH)</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/pdfjs/web/viewer.html?file=/storage/file/media/th/67ece6e37c37bK3roM.pdf&amp;mode=preview" target="_blank" rel="noreferrer noopener">หนังสือรวมกฎหมายยาเสพติด (EN)</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/current-law">กฎหมายปัจจุบัน</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/draft">ร่างกฎหมาย</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/effectivenes" target="_blank" rel="noreferrer noopener">การประเมินผลสัมฤทธิ์ของกฎหมาย</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://nccd.go.th/command1" target="_blank" rel="noreferrer noopener">คำสั่ง ระเบียบ ประกาศ</a></li>
+<!-- /wp:list-item --></ul>
+<!-- /wp:list -->
+
+<!-- wp:paragraph -->
+<p>ป.ป.ส. บริการ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:list -->
+<ul class="wp-block-list"><!-- wp:list-item -->
+<li><a href="https://1386.oncb.go.th/" target="_blank" rel="noreferrer noopener">แจ้งเบาะแสยาเสพติด 1386</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://neos.oncb.go.th/OS/login" target="_blank" rel="noreferrer noopener">ระบบบริหารจัดการข้อมูล เจ้าพนักงาน ป.ป.ส. (NEOS)</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://job.oncb.go.th/" target="_blank" rel="noreferrer noopener">สมัครงานสำนักงาน ป.ป.ส.</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://apioncb.oncb.go.th/ONCB-Petition/public/" target="_blank" rel="noreferrer noopener">แจ้งเรื่องร้องเรียนการทุจริต</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/media/knowledge/narcotics-prevention-education" target="_blank" rel="noreferrer noopener">สื่อความรู้เพื่อป้องกันฯ ในสถานศึกษา</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/media/knowledge/educational-media-narcotics" target="_blank" rel="noreferrer noopener">สื่อความรู้เกี่ยวกับยาเสพติด</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://nccdor.nccd.go.th/chemical/" target="_blank" rel="noreferrer noopener">ระบบการแจ้งสารเคมีควบคุม</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://aseannarco.oncb.go.th/" target="_blank" rel="noreferrer noopener">สำนักงาน ป.ป.ส.อาเซียน (ASEAN-NARCO)</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://nispaplus.nccd.go.th/" target="_blank" rel="noreferrer noopener">ระบบสารสนเทศยาเสพติดจังหวัด (NISPA+)</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://hr.nccd.go.th/" target="_blank" rel="noreferrer noopener">ระบบทะเบียนกำลังพลผู้ปฏิบัติงานด้านยาเสพติด</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/oncb-services/56">ข้อมูลบริการของ ป.ป.ส.</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://docs.google.com/forms/d/e/1FAIpQLSeJk6r_6eP9DkwEdMVvebpGMhhN5VIDmqjd-Ej0t1BpS31q8w/viewform" target="_blank" rel="noreferrer noopener">ความคิดเห็นเกี่ยวกับสำนักงาน ป.ป.ส.</a></li>
+<!-- /wp:list-item --></ul>
+<!-- /wp:list -->
+
+<!-- wp:paragraph -->
+<p>ดาวน์โหลด</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:list -->
+<ul class="wp-block-list"><!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/download?group=download&amp;category=command">ดาวน์โหลดคำสั่ง</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/download?group=download&amp;category=document">ดาวน์โหลดแบบฟอร์ม/เอกสาร</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/download?group=download&amp;category=application">ดาวน์โหลดแอปพลิเคชั่น</a></li>
+<!-- /wp:list-item --></ul>
+<!-- /wp:list -->
+
+<!-- wp:paragraph -->
+<p><a href="https://www.oncb.go.th/page/service-terms-and-policies" target="_blank" rel="noreferrer noopener">ข้อกำหนดและนโยบายการให้บริการ</a><a href="https://www.oncb.go.th/page/pdpa-guidelines" target="_blank" rel="noreferrer noopener">นโยบายการคุ้มครองข้อมูลส่วนบุคคล</a><a href="https://www.oncb.go.th/page/information-technology-security-policy" target="_blank" rel="noreferrer noopener">นโยบายการรักษาความมั่นคงปลอดภัยด้วยเทคโนโลยีสารสนเทศ</a><a href="https://www.oncb.go.th/page/cookie-policy" target="_blank" rel="noreferrer noopener">นโยบายคุกกี้</a><a href="https://www.oncb.go.th/#">ตั้งค่าคุกกี้</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://www.oncb.go.th/img/logo/oncb-th.svg" alt="สำนักงานคณะกรรมการป้องกันและปราบปรามยาเสพติด"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p>สำนักงานคณะกรรมการป้องกันและปราบปรามยาเสพติด</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>เลขที่ 5 ถนนดินแดง แขวงสามเสนใน เขตพญาไท กรุงเทพมหานคร 10400<br>โทรศัพท์ 02-247-0901-19 &nbsp; โทรสาร 02-245-9350 &nbsp; Contact us:&nbsp;<a href="mailto:saraban@oncb.go.th">saraban@oncb.go.th</a>,&nbsp;<a href="mailto:webmaster@oncb.go.th">webmaster@oncb.go.th</a><br>Copyright © 2026</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image {"linkDestination":"custom"} -->
+<figure class="wp-block-image"><a href="https://www.royalthaipolice.go.th/th" target="_blank" rel="noreferrer noopener"><img src="https://image.jimcdn.com/app/cms/image/transf/dimension=1224x1024:format=jpg/path/s867332987e70275d/image/i56581730001fe3f0/version/1785059211/image.jpg" alt="รอง.ผกก.สภ.เชียงคาน"/></a><figcaption class="wp-element-caption">รอง.ผกก.สภ.เชียงคาน</figcaption></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p>ยุทธศาสตร์หน่วย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; ยุทธศาสตร์ของกองกำกับการตำรวจตระเวนชายแดนที่ ๒๓ ได้กำหนดให้มีความสอดคล้องกับยุทธศาสตร์สำนักงานตำรวจแห่งชาติ ๒๐ ปี พ.ศ.๒๕๖๑-๒๕๘๐ จึงต้องทบทวนบทบาท ภารกิจ และปรับจุดเน้นด้านการจัดทำระเบียบชายแดนด้วยมิติความมั่นคงใหม่ที่เป็นสากลและไม่เป็นอุปสรรคต่อการค้า ไม่เป็นภัยคุกคามต่อประเทศเพื่อนบ้าน&nbsp; แต่ในขณะเดียวกันจะต้องเสริมสร้างบรรยากาศทางการค้า การลงทุน ตลอดจนควบคุมอาชญากรรมตามแนวชายแดนให้ได้ภายใต้ศักยภาพและขีดความสามารถของตำรวจตระเวนชายแดนอย่างมืออาชีพ&nbsp; ดังนั้นจึงได้กำหนดประเด็นยุทธศาสตร์ไว้ ๔ ยุทธศาสตร์&nbsp; เพื่อขับเคลื่อนองค์กรไปสู่วิสัยทัศน์ “กองบัญชาการตำรวจตระเวนชายแดน เป็นหน่วยงานหลักของสำนักงานตำรวจแห่งชาติที่มีความเชี่ยวชาญในการเฝ้าระวัง และแก้ไขปัญหาความมั่นคงของรัฐในพื้นที่ชายแดน” ดังนี้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p> ยุทธศาสตร์ที่ ๑ การเสริมสร้างความมั่นคงของสถาบันหลักของชาติและการรักษาความมั่นคงภายในประเทศ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>เป้าหมาย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;(๑) สถาบันพระมหากษัตริย์มีความมั่นคงปลอดภัย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;(๒) ประเทศมีความมั่นคงปลอดภัย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;(๓) พื้นที่ชายแดนปลอดภัยคุกคาม</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p> ยุทธศาสตร์ที่ ๒ เพิ่มศักยภาพในการบังคับใช้กฎหมาย การอำนวยความยุติธรรมทางอาญาและการให้บริการประชาชนอย่างเสมอภาคเป็นธรรม</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>เป้าหมาย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; (๑) ประชาชนมีความปลอดภัยในชีวิตและทรัพย์สิน สังคมชุมชนชายแดนมีความสงบเรียบร้อย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;(๒) สนับสนุนขีดความสามารถในการแข่งขันของประเทศ&nbsp;</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p> ยุทธศาสตร์ที่ ๓ การมีส่วนร่วมของประชาชนในการรักษาความสงบเรียบร้อยของสังคมอย่างยั่งยืน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>เป้าหมาย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; (๑) มีการบุรณาการและร่วมมือกันของภาคีเครือข่าย ประกอบด้วย ประชาชน ชุมชนท้องถิ่น ภาคเอกชน ภาคประชาสังคม ในการรักษาความสงบเรียบร้อยของชุมชนและสังคมชายแดน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;(๒) จำนวนภาคีเครือข่ายที่เข้ามามีส่วนร่วมในการเสริมหรือสนับสนุนการปฏิบัติงานของตำรวจตระเวนชายแดน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p> ยุทธศาสตร์ที่ ๔ การพัฒนาองค์กรให้ทันสมัย มุ่งสู่ความเป็นเลิศ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>เป้าหมาย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; (๑) การจัดองค์ให้มีความเหมาะสม มีความพร้อมทางด้านทรัพยากรทางการบริหารและระบบเทคโนโลยี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;(๒) ระบบการบริหารงานบุคคลมีประสิทธิภาพ สามารถขับเคลื่อนองค์กรให้บรรลุผลสัมฤทธิ์ได้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;(๓) ข้าราชการตำรวจมีความเป็นมืออาชีพ มีความรู้ ทันสมัย เชี่ยวชาญในการนำเทคโนโลยีมาใช้ในการปฏิบัติงาน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;(๔) ข้าราชการตำรวจมีความภาคภูมิใจในการปฏิบัติหน้าที่ มีความรัก เชื่อมั่น ศรัทธาต่อองค์กร</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;(๕) เป็นองค์กรที่ได้รับการยอมรับในเรื่องความโปร่งใส</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>วิสัยทัศน์สำนักงานตำรวจแห่งชาติ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; เป็นองค์กรบังคับใช้กฎหมายที่ประชาชนเชื่อมั่นศรัทธา</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ค่านิยม : COPS</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; สมรรถนะ (Competency)</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; สุจริตเป็นธรรม (Overall Fairness)</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ประชาชนเป็นศูนย์กลาง (People Oriented)</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; บริการด้วยใจ (Service Mind)&nbsp;</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; วัฒนธรรมองค์กร</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ยึดมั่นในระเบียบวินัย บำบัดทุกข์บำรุงสุขให้กับประชาชน และมีการทำงานเป็นทีม</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ผลสัมฤทธิ์หน่วยงาน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ประชาชนมีความเชื่อมั่นในการปฏิบัติหน้าที่ของตำรวจ สังคมและประเทศชาติมีความมั่นคง และสนับสนุนการพัฒนาประเทศ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; พันธกิจ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; 1) ถวายความปลอดภัยพระมหากษัตริย์และพระบรมวงศานุวงศ์</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; 2) บังคับใช้กฎหมายและอำนวยความยุติธรรมทางอาญา</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; 3) รักษาความสงบเรียบร้อย และความมั่นคงของราชอาณาจักร</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; วิสัยทัศน์ของผู้บัญชาการตำรวจแห่งชาติ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; วิสัยทัศน์ “เป็นหลักประกันความยุติธรรม และความปลอดภัยในชีวิตและทรัพย์สินของประชาชนที่มีมาตรฐานสากล”</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://commons.wikimedia.org/wiki/File:Loei.police.Office_of_the_Narcotics_Control_Board.jpg">รอง.สวป.สำนักงาน.ปปส.ภาค</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>เกี่ยวกับ ป.ป.ส.</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:list -->
+<ul class="wp-block-list"><!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/about/history">ประวัติความเป็นมา</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/about/5">วิสัยทัศน์ พันธกิจ</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/about/6">โครงสร้างและภารกิจหน้าที่</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/acplan" target="_blank" rel="noreferrer noopener">นโยบาย ยุทธศาสตร์และแผนปฏิบัติการ</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://nccd.go.th/command1" target="_blank" rel="noreferrer noopener">คำสั่ง ระเบียบ และคำสั่งที่เกี่ยวข้อง</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/plan-report" target="_blank" rel="noreferrer noopener">แผนงาน/โครงการ/กิจกรรมและรายงาน</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/og" target="_blank" rel="noreferrer noopener">แนวทางปฏิบัติงาน</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/standards" target="_blank" rel="noreferrer noopener">มาตรฐานทางจริยธรรม 7 ประการ</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/about/16">ข้อมูลการติดต่อ</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/about/17">แผนที่ตั้งหน่วยงาน</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www2.oncb.go.th/" target="_blank" rel="noreferrer noopener">เว็บไซต์เวอร์ชั่นเก่า</a></li>
+<!-- /wp:list-item --></ul>
+<!-- /wp:list -->
+
+<!-- wp:paragraph -->
+<p>กฎหมาย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:list -->
+<ul class="wp-block-list"><!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/pdfjs/web/viewer.html?file=/storage/file/media/th/67ecec9e4489dSW2tT.pdf&amp;mode=preview" target="_blank" rel="noreferrer noopener">หนังสือรวมกฎหมายยาเสพติด (TH)</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/pdfjs/web/viewer.html?file=/storage/file/media/th/67ece6e37c37bK3roM.pdf&amp;mode=preview" target="_blank" rel="noreferrer noopener">หนังสือรวมกฎหมายยาเสพติด (EN)</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/current-law">กฎหมายปัจจุบัน</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/draft">ร่างกฎหมาย</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/effectivenes" target="_blank" rel="noreferrer noopener">การประเมินผลสัมฤทธิ์ของกฎหมาย</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://nccd.go.th/command1" target="_blank" rel="noreferrer noopener">คำสั่ง ระเบียบ ประกาศ</a></li>
+<!-- /wp:list-item --></ul>
+<!-- /wp:list -->
+
+<!-- wp:paragraph -->
+<p>ป.ป.ส. บริการ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:list -->
+<ul class="wp-block-list"><!-- wp:list-item -->
+<li><a href="https://1386.oncb.go.th/" target="_blank" rel="noreferrer noopener">แจ้งเบาะแสยาเสพติด 1386</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://neos.oncb.go.th/OS/login" target="_blank" rel="noreferrer noopener">ระบบบริหารจัดการข้อมูล เจ้าพนักงาน ป.ป.ส. (NEOS)</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://job.oncb.go.th/" target="_blank" rel="noreferrer noopener">สมัครงานสำนักงาน ป.ป.ส.</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://apioncb.oncb.go.th/ONCB-Petition/public/" target="_blank" rel="noreferrer noopener">แจ้งเรื่องร้องเรียนการทุจริต</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/media/knowledge/narcotics-prevention-education" target="_blank" rel="noreferrer noopener">สื่อความรู้เพื่อป้องกันฯ ในสถานศึกษา</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/media/knowledge/educational-media-narcotics" target="_blank" rel="noreferrer noopener">สื่อความรู้เกี่ยวกับยาเสพติด</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://nccdor.nccd.go.th/chemical/" target="_blank" rel="noreferrer noopener">ระบบการแจ้งสารเคมีควบคุม</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://aseannarco.oncb.go.th/" target="_blank" rel="noreferrer noopener">สำนักงาน ป.ป.ส.อาเซียน (ASEAN-NARCO)</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://nispaplus.nccd.go.th/" target="_blank" rel="noreferrer noopener">ระบบสารสนเทศยาเสพติดจังหวัด (NISPA+)</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://hr.nccd.go.th/" target="_blank" rel="noreferrer noopener">ระบบทะเบียนกำลังพลผู้ปฏิบัติงานด้านยาเสพติด</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/oncb-services/56">ข้อมูลบริการของ ป.ป.ส.</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://docs.google.com/forms/d/e/1FAIpQLSeJk6r_6eP9DkwEdMVvebpGMhhN5VIDmqjd-Ej0t1BpS31q8w/viewform" target="_blank" rel="noreferrer noopener">ความคิดเห็นเกี่ยวกับสำนักงาน ป.ป.ส.</a></li>
+<!-- /wp:list-item --></ul>
+<!-- /wp:list -->
+
+<!-- wp:paragraph -->
+<p>ดาวน์โหลด</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:list -->
+<ul class="wp-block-list"><!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/download?group=download&amp;category=command">ดาวน์โหลดคำสั่ง</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/download?group=download&amp;category=document">ดาวน์โหลดแบบฟอร์ม/เอกสาร</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/download?group=download&amp;category=application">ดาวน์โหลดแอปพลิเคชั่น</a></li>
+<!-- /wp:list-item --></ul>
+<!-- /wp:list -->
+
+<!-- wp:paragraph -->
+<p><a href="https://www.oncb.go.th/page/service-terms-and-policies" target="_blank" rel="noreferrer noopener">ข้อกำหนดและนโยบายการให้บริการ</a><a href="https://www.oncb.go.th/page/pdpa-guidelines" target="_blank" rel="noreferrer noopener">นโยบายการคุ้มครองข้อมูลส่วนบุคคล</a><a href="https://www.oncb.go.th/page/information-technology-security-policy" target="_blank" rel="noreferrer noopener">นโยบายการรักษาความมั่นคงปลอดภัยด้วยเทคโนโลยีสารสนเทศ</a><a href="https://www.oncb.go.th/page/cookie-policy" target="_blank" rel="noreferrer noopener">นโยบายคุกกี้</a><a href="https://www.oncb.go.th/#">ตั้งค่าคุกกี้</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://www.oncb.go.th/img/logo/oncb-th.svg" alt="สำนักงานคณะกรรมการป้องกันและปราบปรามยาเสพติด"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p>สำนักงานคณะกรรมการป้องกันและปราบปรามยาเสพติด</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>เลขที่ 5 ถนนดินแดง แขวงสามเสนใน เขตพญาไท กรุงเทพมหานคร 10400<br>โทรศัพท์ 02-247-0901-19 &nbsp; โทรสาร 02-245-9350 &nbsp; Contact us:&nbsp;<a href="mailto:saraban@oncb.go.th">saraban@oncb.go.th</a>,&nbsp;<a href="mailto:webmaster@oncb.go.th">webmaster@oncb.go.th</a><br>Copyright © 2026</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image {"linkDestination":"custom"} -->
+<figure class="wp-block-image"><a href="https://www.royalthaipolice.go.th/th" target="_blank" rel="noreferrer noopener"><img src="https://image.jimcdn.com/app/cms/image/transf/dimension=1028x1024:format=jpg/path/s867332987e70275d/image/ie929f17104230945/version/1785059791/image.jpg" alt="โยกย้ายเข้า.สำนักงาน.ปปส.ภาคส่วน​ จ่าสิบเอก/ผู้กอง"/></a><figcaption class="wp-element-caption">โยกย้ายเข้า.สำนักงาน.ปปส.ภาคส่วน​ จ่าสิบเอก/ผู้กอง</figcaption></figure>
+<!-- /wp:image -->
+
+<!-- wp:embed {"url":"https://commons.wikimedia.org/wiki/File:Loei.police.Office_of_the_Narcotics_Control_Board.jpg","type":"rich","providerNameSlug":"embed-handler"} -->
+<figure class="wp-block-embed is-type-rich is-provider-embed-handler wp-block-embed-embed-handler"><div class="wp-block-embed__wrapper">
+https://commons.wikimedia.org/wiki/File:Loei.police.Office_of_the_Narcotics_Control_Board.jpg
+</div></figure>
+<!-- /wp:embed -->
+
+<!-- wp:paragraph -->
+<p>กำกับดูแล. ตชด.246​ เชียงคาน​ ผู้กองกองร้อย.<a href="https://web.facebook.com/profile.php?id=61560775176678&amp;_rdc=1&amp;_rdr#">ตชด.246</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ยุทธศาสตร์หน่วย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; ยุทธศาสตร์ของกองกำกับการตำรวจตระเวนชายแดนที่ ๒๓ ได้กำหนดให้มีความสอดคล้องกับยุทธศาสตร์สำนักงานตำรวจแห่งชาติ ๒๐ ปี พ.ศ.๒๕๖๑-๒๕๘๐ จึงต้องทบทวนบทบาท ภารกิจ และปรับจุดเน้นด้านการจัดทำระเบียบชายแดนด้วยมิติความมั่นคงใหม่ที่เป็นสากลและไม่เป็นอุปสรรคต่อการค้า ไม่เป็นภัยคุกคามต่อประเทศเพื่อนบ้าน&nbsp; แต่ในขณะเดียวกันจะต้องเสริมสร้างบรรยากาศทางการค้า การลงทุน ตลอดจนควบคุมอาชญากรรมตามแนวชายแดนให้ได้ภายใต้ศักยภาพและขีดความสามารถของตำรวจตระเวนชายแดนอย่างมืออาชีพ&nbsp; ดังนั้นจึงได้กำหนดประเด็นยุทธศาสตร์ไว้ ๔ ยุทธศาสตร์&nbsp; เพื่อขับเคลื่อนองค์กรไปสู่วิสัยทัศน์ “กองบัญชาการตำรวจตระเวนชายแดน เป็นหน่วยงานหลักของสำนักงานตำรวจแห่งชาติที่มีความเชี่ยวชาญในการเฝ้าระวัง และแก้ไขปัญหาความมั่นคงของรัฐในพื้นที่ชายแดน” ดังนี้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p> ยุทธศาสตร์ที่ ๑ การเสริมสร้างความมั่นคงของสถาบันหลักของชาติและการรักษาความมั่นคงภายในประเทศ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>เป้าหมาย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;(๑) สถาบันพระมหากษัตริย์มีความมั่นคงปลอดภัย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;(๒) ประเทศมีความมั่นคงปลอดภัย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;(๓) พื้นที่ชายแดนปลอดภัยคุกคาม</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p> ยุทธศาสตร์ที่ ๒ เพิ่มศักยภาพในการบังคับใช้กฎหมาย การอำนวยความยุติธรรมทางอาญาและการให้บริการประชาชนอย่างเสมอภาคเป็นธรรม</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>เป้าหมาย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; (๑) ประชาชนมีความปลอดภัยในชีวิตและทรัพย์สิน สังคมชุมชนชายแดนมีความสงบเรียบร้อย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;(๒) สนับสนุนขีดความสามารถในการแข่งขันของประเทศ&nbsp;</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p> ยุทธศาสตร์ที่ ๓ การมีส่วนร่วมของประชาชนในการรักษาความสงบเรียบร้อยของสังคมอย่างยั่งยืน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>เป้าหมาย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; (๑) มีการบุรณาการและร่วมมือกันของภาคีเครือข่าย ประกอบด้วย ประชาชน ชุมชนท้องถิ่น ภาคเอกชน ภาคประชาสังคม ในการรักษาความสงบเรียบร้อยของชุมชนและสังคมชายแดน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;(๒) จำนวนภาคีเครือข่ายที่เข้ามามีส่วนร่วมในการเสริมหรือสนับสนุนการปฏิบัติงานของตำรวจตระเวนชายแดน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p> ยุทธศาสตร์ที่ ๔ การพัฒนาองค์กรให้ทันสมัย มุ่งสู่ความเป็นเลิศ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>เป้าหมาย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; (๑) การจัดองค์ให้มีความเหมาะสม มีความพร้อมทางด้านทรัพยากรทางการบริหารและระบบเทคโนโลยี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;(๒) ระบบการบริหารงานบุคคลมีประสิทธิภาพ สามารถขับเคลื่อนองค์กรให้บรรลุผลสัมฤทธิ์ได้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;(๓) ข้าราชการตำรวจมีความเป็นมืออาชีพ มีความรู้ ทันสมัย เชี่ยวชาญในการนำเทคโนโลยีมาใช้ในการปฏิบัติงาน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;(๔) ข้าราชการตำรวจมีความภาคภูมิใจในการปฏิบัติหน้าที่ มีความรัก เชื่อมั่น ศรัทธาต่อองค์กร</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;(๕) เป็นองค์กรที่ได้รับการยอมรับในเรื่องความโปร่งใส</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>วิสัยทัศน์สำนักงานตำรวจแห่งชาติ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; เป็นองค์กรบังคับใช้กฎหมายที่ประชาชนเชื่อมั่นศรัทธา</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ค่านิยม : COPS</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; สมรรถนะ (Competency)</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; สุจริตเป็นธรรม (Overall Fairness)</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ประชาชนเป็นศูนย์กลาง (People Oriented)</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; บริการด้วยใจ (Service Mind)&nbsp;</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; วัฒนธรรมองค์กร</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ยึดมั่นในระเบียบวินัย บำบัดทุกข์บำรุงสุขให้กับประชาชน และมีการทำงานเป็นทีม</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ผลสัมฤทธิ์หน่วยงาน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ประชาชนมีความเชื่อมั่นในการปฏิบัติหน้าที่ของตำรวจ สังคมและประเทศชาติมีความมั่นคง และสนับสนุนการพัฒนาประเทศ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; พันธกิจ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; 1) ถวายความปลอดภัยพระมหากษัตริย์และพระบรมวงศานุวงศ์</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; 2) บังคับใช้กฎหมายและอำนวยความยุติธรรมทางอาญา</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; 3) รักษาความสงบเรียบร้อย และความมั่นคงของราชอาณาจักร</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; วิสัยทัศน์ของผู้บัญชาการตำรวจแห่งชาติ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; วิสัยทัศน์ “เป็นหลักประกันความยุติธรรม และความปลอดภัยในชีวิตและทรัพย์สินของประชาชนที่มีมาตรฐานสากล”</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>เกี่ยวกับ ป.ป.ส.</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:list -->
+<ul class="wp-block-list"><!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/about/history">ประวัติความเป็นมา</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/about/5">วิสัยทัศน์ พันธกิจ</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/about/6">โครงสร้างและภารกิจหน้าที่</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/acplan" target="_blank" rel="noreferrer noopener">นโยบาย ยุทธศาสตร์และแผนปฏิบัติการ</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://nccd.go.th/command1" target="_blank" rel="noreferrer noopener">คำสั่ง ระเบียบ และคำสั่งที่เกี่ยวข้อง</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/plan-report" target="_blank" rel="noreferrer noopener">แผนงาน/โครงการ/กิจกรรมและรายงาน</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/og" target="_blank" rel="noreferrer noopener">แนวทางปฏิบัติงาน</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/standards" target="_blank" rel="noreferrer noopener">มาตรฐานทางจริยธรรม 7 ประการ</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/about/16">ข้อมูลการติดต่อ</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/about/17">แผนที่ตั้งหน่วยงาน</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www2.oncb.go.th/" target="_blank" rel="noreferrer noopener">เว็บไซต์เวอร์ชั่นเก่า</a></li>
+<!-- /wp:list-item --></ul>
+<!-- /wp:list -->
+
+<!-- wp:paragraph -->
+<p>กฎหมาย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:list -->
+<ul class="wp-block-list"><!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/pdfjs/web/viewer.html?file=/storage/file/media/th/67ecec9e4489dSW2tT.pdf&amp;mode=preview" target="_blank" rel="noreferrer noopener">หนังสือรวมกฎหมายยาเสพติด (TH)</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/pdfjs/web/viewer.html?file=/storage/file/media/th/67ece6e37c37bK3roM.pdf&amp;mode=preview" target="_blank" rel="noreferrer noopener">หนังสือรวมกฎหมายยาเสพติด (EN)</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/current-law">กฎหมายปัจจุบัน</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/draft">ร่างกฎหมาย</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/effectivenes" target="_blank" rel="noreferrer noopener">การประเมินผลสัมฤทธิ์ของกฎหมาย</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://nccd.go.th/command1" target="_blank" rel="noreferrer noopener">คำสั่ง ระเบียบ ประกาศ</a></li>
+<!-- /wp:list-item --></ul>
+<!-- /wp:list -->
+
+<!-- wp:paragraph -->
+<p>ป.ป.ส. บริการ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:list -->
+<ul class="wp-block-list"><!-- wp:list-item -->
+<li><a href="https://1386.oncb.go.th/" target="_blank" rel="noreferrer noopener">แจ้งเบาะแสยาเสพติด 1386</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://neos.oncb.go.th/OS/login" target="_blank" rel="noreferrer noopener">ระบบบริหารจัดการข้อมูล เจ้าพนักงาน ป.ป.ส. (NEOS)</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://job.oncb.go.th/" target="_blank" rel="noreferrer noopener">สมัครงานสำนักงาน ป.ป.ส.</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://apioncb.oncb.go.th/ONCB-Petition/public/" target="_blank" rel="noreferrer noopener">แจ้งเรื่องร้องเรียนการทุจริต</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/media/knowledge/narcotics-prevention-education" target="_blank" rel="noreferrer noopener">สื่อความรู้เพื่อป้องกันฯ ในสถานศึกษา</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/media/knowledge/educational-media-narcotics" target="_blank" rel="noreferrer noopener">สื่อความรู้เกี่ยวกับยาเสพติด</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://nccdor.nccd.go.th/chemical/" target="_blank" rel="noreferrer noopener">ระบบการแจ้งสารเคมีควบคุม</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://aseannarco.oncb.go.th/" target="_blank" rel="noreferrer noopener">สำนักงาน ป.ป.ส.อาเซียน (ASEAN-NARCO)</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://nispaplus.nccd.go.th/" target="_blank" rel="noreferrer noopener">ระบบสารสนเทศยาเสพติดจังหวัด (NISPA+)</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://hr.nccd.go.th/" target="_blank" rel="noreferrer noopener">ระบบทะเบียนกำลังพลผู้ปฏิบัติงานด้านยาเสพติด</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/oncb-services/56">ข้อมูลบริการของ ป.ป.ส.</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://docs.google.com/forms/d/e/1FAIpQLSeJk6r_6eP9DkwEdMVvebpGMhhN5VIDmqjd-Ej0t1BpS31q8w/viewform" target="_blank" rel="noreferrer noopener">ความคิดเห็นเกี่ยวกับสำนักงาน ป.ป.ส.</a></li>
+<!-- /wp:list-item --></ul>
+<!-- /wp:list -->
+
+<!-- wp:paragraph -->
+<p>ดาวน์โหลด</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:list -->
+<ul class="wp-block-list"><!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/download?group=download&amp;category=command">ดาวน์โหลดคำสั่ง</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/download?group=download&amp;category=document">ดาวน์โหลดแบบฟอร์ม/เอกสาร</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/download?group=download&amp;category=application">ดาวน์โหลดแอปพลิเคชั่น</a></li>
+<!-- /wp:list-item --></ul>
+<!-- /wp:list -->
+
+<!-- wp:paragraph -->
+<p><a href="https://www.oncb.go.th/page/service-terms-and-policies" target="_blank" rel="noreferrer noopener">ข้อกำหนดและนโยบายการให้บริการ</a><a href="https://www.oncb.go.th/page/pdpa-guidelines" target="_blank" rel="noreferrer noopener">นโยบายการคุ้มครองข้อมูลส่วนบุคคล</a><a href="https://www.oncb.go.th/page/information-technology-security-policy" target="_blank" rel="noreferrer noopener">นโยบายการรักษาความมั่นคงปลอดภัยด้วยเทคโนโลยีสารสนเทศ</a><a href="https://www.oncb.go.th/page/cookie-policy" target="_blank" rel="noreferrer noopener">นโยบายคุกกี้</a><a href="https://www.oncb.go.th/#">ตั้งค่าคุกกี้</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://www.oncb.go.th/img/logo/oncb-th.svg" alt="สำนักงานคณะกรรมการป้องกันและปราบปรามยาเสพติด"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p>สำนักงานคณะกรรมการป้องกันและปราบปรามยาเสพติด</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>เลขที่ 5 ถนนดินแดง แขวงสามเสนใน เขตพญาไท กรุงเทพมหานคร 10400<br>โทรศัพท์ 02-247-0901-19 &nbsp; โทรสาร 02-245-9350 &nbsp; Contact us:&nbsp;<a href="mailto:saraban@oncb.go.th">saraban@oncb.go.th</a>,&nbsp;<a href="mailto:webmaster@oncb.go.th">webmaster@oncb.go.th</a><br>Copyright © 2026</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image {"linkDestination":"custom"} -->
+<figure class="wp-block-image"><a href="https://www.pea.co.th/" target="_blank" rel="noreferrer noopener"><img src="https://image.jimcdn.com/app/cms/image/transf/dimension=210x1024:format=jpg/path/s867332987e70275d/image/i47195a18f38c37b9/version/1785064165/image.jpg" alt="ผู้บริหารการไฟฟ้าจังหวัดเลยและสาขาเชียงคาน"/></a><figcaption class="wp-element-caption">ผู้บริหารการไฟฟ้าจังหวัดเลยและสาขาเชียงคาน</figcaption></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p>กองกำกับการตำรวจตระเวนชายแดนที่ 23 (กก.ตชด. 23) มีอำนาจและหน้าที่หลักในการรักษาความมั่นคงตามแนวชายแดน และบำบัดทุกข์บำรุงสุขให้แก่ประชาชนในพื้นที่รับผิดชอบ (เช่น จังหวัดสกลนคร นครพนม ฯลฯ) โดยมีภารกิจสำคัญตามพันธกิจของหน่วย ดังนี้:&nbsp;</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>กก.ต ชด.23</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถวายความปลอดภัย: ถวายความปลอดภัยอย่างสมพระเกียรติ และรักษาความปลอดภัยบุคคลสำคัญในพื้นที่อย่างมีประสิทธิภาพ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>เฝ้าระวังความมั่นคง: ป้องกันและแก้ไขปัญหาด้านความมั่นคงตามแนวชายแดน รวมถึงการรุกรานจากภายนอก</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ปราบปรามอาชญากรรม: รักษาความสงบเรียบร้อย ป้องกันและปราบปรามอาชญากรรมที่กระทบต่อความมั่นคงของรัฐ เช่น ยาเสพติดและสิ่งผิดกฎหมายตามแนวชายแดน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ช่วยเหลือประชาชน: พัฒนาและช่วยเหลือประชาชนในพื้นที่ห่างไกล ทุรกันดาร รวมถึงการช่วยเหลือบรรเทาสาธารณภัย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>สนองงานพระราชดำริ: สนับสนุนและดำเนินงานตามโครงการอันเนื่องมาจากพระราชดำริ รวมถึงโรงเรียนตำรวจตระเวนชายแดน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>สานสัมพันธ์ประเทศเพื่อนบ้าน: ดำรงความสัมพันธ์อันดีกับประเทศเพื่อนบ้านในระดับพื้นที่&nbsp;</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>หากคุณต้องการทราบข้อมูลเฉพาะเจาะจงเพิ่มเติม เช่น พื้นที่รับผิดชอบของกองร้อยในสังกัด หรือ การติดต่อประสานงาน สามารถบอกเพิ่มเติมได้เลยครับ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้บริหารหรือผู้จัดการการไฟฟ้าสาขา (ภายใต้การกำกับดูแลของการไฟฟ้าส่วนภูมิภาค หรือ การไฟฟ้าส่วนภูมิภาค (กฟภ.)) มีอำนาจหน้าที่หลักในการบริหารจัดการและควบคุมดูแลกิจการจำหน่ายไฟฟ้าและการให้บริการในเขตพื้นที่รับผิดชอบระดับอำเภอหรือสาขานั้น ๆ ให้เป็นไปตามนโยบายขององค์กร&nbsp;</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>การไฟฟ้าส่วนภูมิภาค (กฟภ.)</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>อำนาจและหน้าที่หลัก</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ด้านการบริหารงานทั่วไปและบังคับบัญชา: ควบคุมดูแล สั่งการ และประเมินผลการปฏิบัติงานของพนักงานและลูกจ้างในสังกัดการไฟฟ้าสาขา รวมถึงบริหารงานบุคคลเบื้องต้นตามระเบียบของ กฟภ.</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ด้านการปฏิบัติการและระบบไฟฟ้า: ควบคุมดูแลการจ่ายไฟฟ้า การบำรุงรักษาระบบจำหน่าย และการแก้ไขปัญหาไฟฟ้าขัดข้อง เพื่อให้ผู้ใช้ไฟฟ้าได้รับบริการที่มีเสถียรภาพและปลอดภัย&nbsp;</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ศูนย์ ข้อมูล ข่าวสาร อิเล็กทรอนิกส์ ของ ราชการ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ด้านบริการลูกค้าและการตลาด: กำกับดูแลการให้บริการขอใช้ไฟฟ้าใหม่, การติดตั้งและตรวจสอบมิเตอร์, การจดหน่วย, การจัดเก็บค่าไฟฟ้า และการแก้ไของค์ประกอบต่าง ๆ ที่เกี่ยวข้องกับผู้ใช้ไฟฟ้าในพื้นที่&nbsp;</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มหาวิทยาลัยแม่โจ้ | Maejo University</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ด้านการเงิน บัญชี และพัสดุ: ควบคุมการรับ-จ่ายเงินรายได้จากการขายกระแสไฟฟ้า การจัดซื้อจัดจ้างพัสดุย่อย และการบริหารงบประมาณประจำปีของสาขา&nbsp;</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ศูนย์ ข้อมูล ข่าวสาร อิเล็กทรอนิกส์ ของ ราชการ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ด้านความสัมพันธ์ชุมชน: ประสานงานกับหน่วยงานราชการท้องถิ่น ผู้นำชุมชน และประชาชน เพื่อสร้างความเข้าใจอันดีและแก้ไขปัญหาข้อร้องเรียนต่าง ๆ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>หากคุณต้องการทราบข้อมูลเฉพาะเจาะจงเพิ่มเติม เช่น ระเบียบอำนาจอนุมัติวงเงิน หรือ โครงสร้างแผนกภายในของไฟฟ้าสาขา สามารถบอกเพิ่มเติมได้เลยครับ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>เกี่ยวกับ ป.ป.ส.</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:list -->
+<ul class="wp-block-list"><!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/about/history">ประวัติความเป็นมา</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/about/5">วิสัยทัศน์ พันธกิจ</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/about/6">โครงสร้างและภารกิจหน้าที่</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/acplan" target="_blank" rel="noreferrer noopener">นโยบาย ยุทธศาสตร์และแผนปฏิบัติการ</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://nccd.go.th/command1" target="_blank" rel="noreferrer noopener">คำสั่ง ระเบียบ และคำสั่งที่เกี่ยวข้อง</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/plan-report" target="_blank" rel="noreferrer noopener">แผนงาน/โครงการ/กิจกรรมและรายงาน</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/og" target="_blank" rel="noreferrer noopener">แนวทางปฏิบัติงาน</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/standards" target="_blank" rel="noreferrer noopener">มาตรฐานทางจริยธรรม 7 ประการ</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/about/16">ข้อมูลการติดต่อ</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/about/17">แผนที่ตั้งหน่วยงาน</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www2.oncb.go.th/" target="_blank" rel="noreferrer noopener">เว็บไซต์เวอร์ชั่นเก่า</a></li>
+<!-- /wp:list-item --></ul>
+<!-- /wp:list -->
+
+<!-- wp:paragraph -->
+<p>กฎหมาย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:list -->
+<ul class="wp-block-list"><!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/pdfjs/web/viewer.html?file=/storage/file/media/th/67ecec9e4489dSW2tT.pdf&amp;mode=preview" target="_blank" rel="noreferrer noopener">หนังสือรวมกฎหมายยาเสพติด (TH)</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/pdfjs/web/viewer.html?file=/storage/file/media/th/67ece6e37c37bK3roM.pdf&amp;mode=preview" target="_blank" rel="noreferrer noopener">หนังสือรวมกฎหมายยาเสพติด (EN)</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/current-law">กฎหมายปัจจุบัน</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/draft">ร่างกฎหมาย</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/effectivenes" target="_blank" rel="noreferrer noopener">การประเมินผลสัมฤทธิ์ของกฎหมาย</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://nccd.go.th/command1" target="_blank" rel="noreferrer noopener">คำสั่ง ระเบียบ ประกาศ</a></li>
+<!-- /wp:list-item --></ul>
+<!-- /wp:list -->
+
+<!-- wp:paragraph -->
+<p>ป.ป.ส. บริการ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:list -->
+<ul class="wp-block-list"><!-- wp:list-item -->
+<li><a href="https://1386.oncb.go.th/" target="_blank" rel="noreferrer noopener">แจ้งเบาะแสยาเสพติด 1386</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://neos.oncb.go.th/OS/login" target="_blank" rel="noreferrer noopener">ระบบบริหารจัดการข้อมูล เจ้าพนักงาน ป.ป.ส. (NEOS)</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://job.oncb.go.th/" target="_blank" rel="noreferrer noopener">สมัครงานสำนักงาน ป.ป.ส.</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://apioncb.oncb.go.th/ONCB-Petition/public/" target="_blank" rel="noreferrer noopener">แจ้งเรื่องร้องเรียนการทุจริต</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/media/knowledge/narcotics-prevention-education" target="_blank" rel="noreferrer noopener">สื่อความรู้เพื่อป้องกันฯ ในสถานศึกษา</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/media/knowledge/educational-media-narcotics" target="_blank" rel="noreferrer noopener">สื่อความรู้เกี่ยวกับยาเสพติด</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://nccdor.nccd.go.th/chemical/" target="_blank" rel="noreferrer noopener">ระบบการแจ้งสารเคมีควบคุม</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://aseannarco.oncb.go.th/" target="_blank" rel="noreferrer noopener">สำนักงาน ป.ป.ส.อาเซียน (ASEAN-NARCO)</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://nispaplus.nccd.go.th/" target="_blank" rel="noreferrer noopener">ระบบสารสนเทศยาเสพติดจังหวัด (NISPA+)</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://hr.nccd.go.th/" target="_blank" rel="noreferrer noopener">ระบบทะเบียนกำลังพลผู้ปฏิบัติงานด้านยาเสพติด</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/oncb-services/56">ข้อมูลบริการของ ป.ป.ส.</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://docs.google.com/forms/d/e/1FAIpQLSeJk6r_6eP9DkwEdMVvebpGMhhN5VIDmqjd-Ej0t1BpS31q8w/viewform" target="_blank" rel="noreferrer noopener">ความคิดเห็นเกี่ยวกับสำนักงาน ป.ป.ส.</a></li>
+<!-- /wp:list-item --></ul>
+<!-- /wp:list -->
+
+<!-- wp:paragraph -->
+<p>ดาวน์โหลด</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:list -->
+<ul class="wp-block-list"><!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/download?group=download&amp;category=command">ดาวน์โหลดคำสั่ง</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/download?group=download&amp;category=document">ดาวน์โหลดแบบฟอร์ม/เอกสาร</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.oncb.go.th/download?group=download&amp;category=application">ดาวน์โหลดแอปพลิเคชั่น</a></li>
+<!-- /wp:list-item --></ul>
+<!-- /wp:list -->
+
+<!-- wp:paragraph -->
+<p><a href="https://www.oncb.go.th/page/service-terms-and-policies" target="_blank" rel="noreferrer noopener">ข้อกำหนดและนโยบายการให้บริการ</a><a href="https://www.oncb.go.th/page/pdpa-guidelines" target="_blank" rel="noreferrer noopener">นโยบายการคุ้มครองข้อมูลส่วนบุคคล</a><a href="https://www.oncb.go.th/page/information-technology-security-policy" target="_blank" rel="noreferrer noopener">นโยบายการรักษาความมั่นคงปลอดภัยด้วยเทคโนโลยีสารสนเทศ</a><a href="https://www.oncb.go.th/page/cookie-policy" target="_blank" rel="noreferrer noopener">นโยบายคุกกี้</a><a href="https://www.oncb.go.th/#">ตั้งค่าคุกกี้</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://www.oncb.go.th/img/logo/oncb-th.svg" alt="สำนักงานคณะกรรมการป้องกันและปราบปรามยาเสพติด"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p>สำนักงานคณะกรรมการป้องกันและปราบปรามยาเสพติด</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>เลขที่ 5 ถนนดินแดง แขวงสามเสนใน เขตพญาไท กรุงเทพมหานคร 10400<br>โทรศัพท์ 02-247-0901-19 &nbsp; โทรสาร 02-245-9350 &nbsp; Contact us:&nbsp;<a href="mailto:saraban@oncb.go.th">saraban@oncb.go.th</a>,&nbsp;<a href="mailto:webmaster@oncb.go.th">webmaster@oncb.go.th</a><br>Copyright © 2026</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>พระราชบัญญัติ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><strong>1. พระราชบัญญัติให้ใช้ประมวลกฎหมายยาเสพติด พ.ศ. 2564 และประมวลกฎหมายยาเสพติด</strong><br>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;&nbsp;<a href="https://s3.oncb.go.th/oncb-main/web/page/attachment/271/67690604beebdpUufE2GAoe.pdf" target="_blank" rel="noreferrer noopener">&nbsp;1.1 พระราชบัญญัติให้ใช้ประมวลกฎหมายยาเสพติด พ.ศ. 2564</a><br>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;&nbsp;<a href="https://s3.oncb.go.th/oncb-main/web/page/attachment/271/67690605aa9f2n7GVo1HtAx.pdf" target="_blank" rel="noreferrer noopener">&nbsp;1.1.1 คำอธิบายสรุปสาระสำคัญพระราชบัญญัติให้ใช้ประมวลกฎหมายยาเสพติด พ.ศ. 2564</a><br>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;&nbsp;<a href="https://s3.oncb.go.th/oncb-main/web/page/attachment/271/67690605e2714cobISfyZLs.pdf" target="_blank" rel="noreferrer noopener">&nbsp;1.1.2 สรุปสาระสำคัญพระราชบัญญัติให้ใช้ประมวลกฎหมายยาเสพติด พ.ศ 2564</a><br>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;<a href="https://s3.oncb.go.th/oncb-main/web/page/attachment/271/67690606240cbllhxCUVhun.pdf" target="_blank" rel="noreferrer noopener">&nbsp;1.2 ประมวลกฎหมายยาเสพติด</a><br>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;<a href="https://s3.oncb.go.th/oncb-main/files/39/2025-05/6837f34f6e5fcZdKlsHdc58.pdf">1.2.1 คำอธิบายสรุปสาระสำคัญประมวลกฎหมายยาเสพติด</a><br>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;<a href="https://s3.oncb.go.th/oncb-main/web/page/attachment/271/6853ca1f86f2eF1Shd4VW2G.pdf" target="_blank" rel="noreferrer noopener">1.2.2 สรุปสาระสำคัญประมวลกฎหมายยาเสพติด</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><strong>2. พระราชบัญญัติวิธีพิจารณาคดียาเสพติด (ฉบับที่ 2) พ.ศ. 2564</strong><br>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;&nbsp;<a href="https://s3.oncb.go.th/oncb-main/web/page/attachment/271/676906087ec96u1MS8xXIFC.pdf" target="_blank" rel="noreferrer noopener">2.1 พระราชบัญญัติวิธีพิจารณาคดียาเสพติด (ฉบับที่ 2) พ.ศ. 2564</a><br>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;<a href="https://s3.oncb.go.th/oncb-main/web/page/attachment/271/67690608c77343LieWlXXz3.pdf" target="_blank" rel="noreferrer noopener">2.1.1 คำอธิบายสรุปสาระสำคัญพระราชบัญญัติวิธีพิจารณาคดียาเสพติด (ฉบับที่ 2) พ.ศ. 2564</a><br>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;&nbsp;<a href="https://s3.oncb.go.th/oncb-main/web/page/attachment/271/67690608d91f3B9B6IGdFOq.pdf">&nbsp;</a><a href="https://s3.oncb.go.th/oncb-main/web/page/attachment/271/67690608d91f3B9B6IGdFOq.pdf" target="_blank" rel="noreferrer noopener">2.1.2 สรุปสาระสำคัญพระราชบัญญัติวิธีพิจารณาคดียาเสพติด (ฉบับที่ 2) พ.ศ. 2564</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><strong>3. พระราชบัญญัติพืชกระท่อม</strong><br>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;&nbsp;<a href="https://s3.oncb.go.th/oncb-main/web/page/attachment/271/676906091374dlDArpyl3QZ.pdf" target="_blank" rel="noreferrer noopener">3.1 พระราชบัญญัติพืชกระท่อม พ.ศ. 2565</a><br>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;&nbsp;<a href="https://s3.oncb.go.th/oncb-main/web/page/attachment/271/67690609477a0cBQddR7Z6N.pdf" target="_blank" rel="noreferrer noopener">3.2 พระราชบัญญัติพืชกระท่อม พ.ศ. 2565 (EN)</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><strong>4. พระราชบัญญัติป้องกันและปราบปรามยาเสพติด พ.ศ. 2519 (</strong><strong>ฉบับ Update ล่าสุด</strong><strong>)</strong>&nbsp;<a href="https://www.oncb.go.th/Home/Pages/law/PDF/%E0%B9%91.%20%E0%B8%9E.%E0%B8%A3.%E0%B8%9A.%20%E0%B9%92%E0%B9%95%E0%B9%91%E0%B9%99%20(%E0%B8%89%E0%B8%9A%E0%B8%B1%E0%B8%9A%E0%B8%A5%E0%B9%88%E0%B8%B2%E0%B8%AA%E0%B8%B8%E0%B8%94).pdf" target="_blank" rel="noreferrer noopener"><strong>(</strong></a><a href="https://s3.oncb.go.th/oncb-main/web/page/attachment/271/67690956bd330PqnfDkmvEM.pdf" target="_blank" rel="noreferrer noopener"><strong>TH</strong></a><a href="https://www.oncb.go.th/Home/Pages/law/PDF/%E0%B9%91.%20%E0%B8%9E.%E0%B8%A3.%E0%B8%9A.%20%E0%B9%92%E0%B9%95%E0%B9%91%E0%B9%99%20(%E0%B8%89%E0%B8%9A%E0%B8%B1%E0%B8%9A%E0%B8%A5%E0%B9%88%E0%B8%B2%E0%B8%AA%E0%B8%B8%E0%B8%94).pdf" target="_blank" rel="noreferrer noopener"><strong>)</strong></a>&nbsp;<a href="https://bit.ly/2GqQJjh" target="_blank" rel="noreferrer noopener"><strong>(</strong></a><a href="https://s3.oncb.go.th/oncb-main/web/page/attachment/271/6769095a024b1SZjuJzp6KP.pdf" target="_blank" rel="noreferrer noopener"><strong>EN</strong></a><a href="https://bit.ly/2GqQJjh" target="_blank" rel="noreferrer noopener"><strong>)</strong></a>&nbsp;<strong>(ยกเลิก)&nbsp;</strong><br>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;<a href="https://s3.oncb.go.th/oncb-main/web/page/attachment/271/676909ec1ab6190bxdydVaX.pdf" target="_blank" rel="noreferrer noopener">4.1 พระราชบัญญัติป้องกันและปราบปรามยาเสพติด พ.ศ. 2519</a><br>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;<a href="https://s3.oncb.go.th/oncb-main/web/page/attachment/271/676909ec2c539Cz2rMhx4Np.pdf" target="_blank" rel="noreferrer noopener">4.2 พระราชบัญญัติป้องกันและปราบปรามยาเสพติด (ฉบับที่ 2 ) พ.ศ. 2534&nbsp;</a><br>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;<a href="https://s3.oncb.go.th/oncb-main/web/page/attachment/271/676909ec52c41FCD2gFS3yv.pdf" target="_blank" rel="noreferrer noopener">4.3 พระราชบัญญัติป้องกันและปราบปรามยาเสพติด (ฉบับที่ 3 ) พ.ศ. 2543&nbsp;</a><br>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;<a href="https://s3.oncb.go.th/oncb-main/web/page/attachment/271/676909ec67f17j8UkEvv30J.pdf" target="_blank" rel="noreferrer noopener">4.4 พระราชบัญญัติป้องกันและปราบปรามยาเสพติด (ฉบับที่ 4 ) พ.ศ. 2545</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><strong>5. พระราชบัญญัติมาตรการในการปราบปรามผู้กระทำความผิดเกี่ยวกับยาเสพติด พ.ศ. 2534 (</strong><strong>ฉบับ Update ล่าสุด</strong><strong>) (</strong><a href="https://s3.oncb.go.th/oncb-main/web/page/attachment/271/67690ab8564cdnqAQVqqZqY.pdf" target="_blank" rel="noreferrer noopener"><strong>TH</strong></a><a href="https://bit.ly/3n2cMO8" target="_blank" rel="noreferrer noopener"><strong>)</strong></a>&nbsp;<strong>(</strong><a href="https://s3.oncb.go.th/oncb-main/web/page/attachment/271/67690ab86dc1bJq9KMbj1Qb.pdf" target="_blank" rel="noreferrer noopener"><strong>EN</strong></a><strong>) (ยกเลิก)</strong></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp; &nbsp; &nbsp; &nbsp; &nbsp;<a href="https://s3.oncb.go.th/oncb-main/web/page/attachment/271/676909ec8ea9bIqZDZ8zDFP.pdf">&nbsp;</a><a href="https://s3.oncb.go.th/oncb-main/web/page/attachment/271/676909ec8ea9bIqZDZ8zDFP.pdf" target="_blank" rel="noreferrer noopener">5.1 พระราชบัญญัติมาตรการในการปราบปรามผู้กระทำความผิดเกี่ยวกับยาเสพติด พ.ศ. 2534</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;<a href="https://s3.oncb.go.th/oncb-main/web/page/attachment/271/676909eca517cmtFF9yYYAB.pdf" target="_blank" rel="noreferrer noopener">5.2 พระราชบัญญัติมาตรการในการปราบปรามผู้กระทำความผิดเกี่ยวกับยาเสพติด (ฉบับที่ 2) พ.ศ. 2543</a><br>&nbsp;</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ดาวน์โหลดเอกสาร</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://www.oncb.go.th/img/icons/file/pdf.png" alt="pdf"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://www.oncb.go.th/pdfjs/web/viewer.html?file=/storage/preview/page-attachment/271/67690604beebdpUufE2GAoe.pdf?filename=1.1%20-%20%E0%B8%9E.%E0%B8%A3.%E0%B8%9A.%20%E0%B9%83%E0%B8%AB%E0%B9%89%E0%B9%83%E0%B8%8A%E0%B9%89%E0%B8%AF">1. 1.1 - พ.ร.บ. ให้ใช้ฯ.pdf</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://www.oncb.go.th/img/icons/file/pdf.png" alt="pdf"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://www.oncb.go.th/pdfjs/web/viewer.html?file=/storage/preview/page-attachment/271/67690605aa9f2n7GVo1HtAx.pdf?filename=1.1.1%20%E0%B8%84%E0%B8%B3%E0%B8%AD%E0%B8%98%E0%B8%B4%E0%B8%9A%E0%B8%B2%E0%B8%A2%E0%B8%AA%E0%B8%A3%E0%B8%B8%E0%B8%9B%E0%B8%AA%E0%B8%B2%E0%B8%A3%E0%B8%B0%E0%B8%AA%E0%B8%B3%E0%B8%84%E0%B8%B1%E0%B8%8D%E0%B8%9E%E0%B8%A3%E0%B8%9A%E0%B9%83%E0%B8%AB%E0%B9%89%E0%B9%83%E0%B8%8A%E0%B9%89%E0%B8%AF">2. 1.1.1 คำอธิบายสรุปสาระสำคัญพรบให้ใช้ฯ.pdf</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://www.oncb.go.th/img/icons/file/pdf.png" alt="pdf"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://www.oncb.go.th/pdfjs/web/viewer.html?file=/storage/preview/page-attachment/271/67690605e2714cobISfyZLs.pdf?filename=1.1.2%20-%20%E0%B8%AA%E0%B8%A3%E0%B8%B8%E0%B8%9B%E0%B8%AA%E0%B8%B2%E0%B8%A3%E0%B8%B0%E0%B8%AA%E0%B8%B3%E0%B8%84%E0%B8%B1%E0%B8%8D%20%E0%B8%9E.%E0%B8%A3.%E0%B8%9A.%20%E0%B9%83%E0%B8%AB%E0%B9%89%E0%B9%83%E0%B8%8A%E0%B9%89%E0%B8%AF">3. 1.1.2 - สรุปสาระสำคัญ พ.ร.บ. ให้ใช้ฯ.pdf</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://www.oncb.go.th/img/icons/file/pdf.png" alt="pdf"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://www.oncb.go.th/pdfjs/web/viewer.html?file=/storage/preview/page-attachment/271/67690606240cbllhxCUVhun.pdf?filename=1.2%20-%20%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%A1%E0%B8%A7%E0%B8%A5%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A2%E0%B8%B2%E0%B9%80%E0%B8%AA%E0%B8%9E%E0%B8%95%E0%B8%B4%E0%B8%94">4. 1.2 - ประมวลกฎหมายยาเสพติด.pdf</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://www.oncb.go.th/img/icons/file/pdf.png" alt="pdf"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://www.oncb.go.th/pdfjs/web/viewer.html?file=/storage/preview/page-attachment/271/6769060836370SrQTcHPlKN.pdf?filename=1.2.1%20%E0%B8%84%E0%B8%B3%E0%B8%AD%E0%B8%98%E0%B8%B4%E0%B8%9A%E0%B8%B2%E0%B8%A2%E0%B8%AA%E0%B8%A3%E0%B8%B8%E0%B8%9B%E0%B8%AA%E0%B8%B2%E0%B8%A3%E0%B8%B0%E0%B8%AA%E0%B8%B3%E0%B8%84%E0%B8%B1%E0%B8%8D%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%A1%E0%B8%A7%E0%B8%A5%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A2%E0%B8%B2%E0%B9%80%E0%B8%AA%E0%B8%9E%E0%B8%95%E0%B8%B4%E0%B8%94">5. 1.2.1 คำอธิบายสรุปสาระสำคัญประมวลกฎหมายยาเสพติด.pdf</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://www.oncb.go.th/img/icons/file/pdf.png" alt="pdf"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://www.oncb.go.th/pdfjs/web/viewer.html?file=/storage/preview/page-attachment/271/6853ca1f86f2eF1Shd4VW2G.pdf?filename=1.2.2%20-%20%E0%B8%AA%E0%B8%A3%E0%B8%B8%E0%B8%9B%E0%B8%AA%E0%B8%B2%E0%B8%A3%E0%B8%B0%E0%B8%AA%E0%B8%B3%E0%B8%84%E0%B8%B1%E0%B8%8D%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%A1%E0%B8%A7%E0%B8%A5">6. 1.2.2 - สรุปสาระสำคัญประมวล.pdf</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://www.oncb.go.th/img/icons/file/pdf.png" alt="pdf"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://www.oncb.go.th/pdfjs/web/viewer.html?file=/storage/preview/page-attachment/271/676906087ec96u1MS8xXIFC.pdf?filename=2.1%20-%20%E0%B8%9E%E0%B8%A3%E0%B8%B0%E0%B8%A3%E0%B8%B2%E0%B8%8A%E0%B8%9A%E0%B8%B1%E0%B8%8D%E0%B8%8D%E0%B8%B1%E0%B8%95%E0%B8%B4%E0%B8%A7%E0%B8%B4%E0%B8%98%E0%B8%B5%E0%B8%9E%E0%B8%B4%E0%B8%88%E0%B8%B2%E0%B8%A3%E0%B8%93%E0%B8%B2%E0%B8%84%E0%B8%94%E0%B8%B5%E0%B8%A2%E0%B8%B2%E0%B9%80%E0%B8%AA%E0%B8%9E%E0%B8%95%E0%B8%B4%E0%B8%94%20(%E0%B8%89%E0%B8%9A%E0%B8%B1%E0%B8%9A%E0%B8%97%E0%B8%B5%E0%B9%882)%20%E0%B8%9E.%E0%B8%A8.2564">7. 2.1 - พระราชบัญญัติวิธีพิจารณาคดียาเสพติด (ฉบับที่2) พ.ศ.2564.pdf</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://www.oncb.go.th/img/icons/file/pdf.png" alt="pdf"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://www.oncb.go.th/pdfjs/web/viewer.html?file=/storage/preview/page-attachment/271/67690608c77343LieWlXXz3.pdf?filename=2.1.1%20%E0%B8%84%E0%B8%B3%E0%B8%AD%E0%B8%98%E0%B8%B4%E0%B8%9A%E0%B8%B2%E0%B8%A2%E0%B8%AA%E0%B8%A3%E0%B8%B8%E0%B8%9B%E0%B8%AA%E0%B8%B2%E0%B8%A3%E0%B8%B0%E0%B8%AA%E0%B8%B3%E0%B8%84%E0%B8%B1%E0%B8%8D%E0%B8%9E%E0%B8%A3%E0%B8%9A%E0%B8%A7%E0%B8%B4%E0%B8%A2%E0%B8%AA%E0%B8%95%E0%B8%AF">8. 2.1.1 คำอธิบายสรุปสาระสำคัญพรบวิยสตฯ.pdf</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://www.oncb.go.th/img/icons/file/pdf.png" alt="pdf"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://www.oncb.go.th/pdfjs/web/viewer.html?file=/storage/preview/page-attachment/271/67690608d91f3B9B6IGdFOq.pdf?filename=2.1.2%20-%20%E0%B8%AA%E0%B8%A3%E0%B8%B8%E0%B8%9B%E0%B8%AA%E0%B8%B2%E0%B8%A3%E0%B8%B0%E0%B8%AA%E0%B8%B3%E0%B8%84%E0%B8%B1%E0%B8%8D%20%E0%B8%9E.%E0%B8%A3.%E0%B8%9A.%20%E0%B8%A7%E0%B8%B4%E0%B8%98%E0%B8%B5%E0%B8%9E%E0%B8%B4%E0%B8%88%E0%B8%B2%E0%B8%A3%E0%B8%93%E0%B8%B2">9. 2.1.2 - สรุปสาระสำคัญ พ.ร.บ. วิธีพิจารณา.pdf</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://www.oncb.go.th/img/icons/file/pdf.png" alt="pdf"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://www.oncb.go.th/pdfjs/web/viewer.html?file=/storage/preview/page-attachment/271/676906091374dlDArpyl3QZ.pdf?filename=3.1%20%E0%B8%9E%E0%B8%A3%E0%B8%9A%20%E0%B8%9E%E0%B8%B7%E0%B8%8A%E0%B8%81%E0%B8%A3%E0%B8%B0%E0%B8%97%E0%B9%88%E0%B8%AD%E0%B8%A1%20%E0%B8%9B%E0%B8%B5%202565">10. 3.1 พรบ พืชกระท่อม ปี 2565.pdf</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://www.oncb.go.th/img/icons/file/pdf.png" alt="pdf"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://www.oncb.go.th/pdfjs/web/viewer.html?file=/storage/preview/page-attachment/271/67690609477a0cBQddR7Z6N.pdf?filename=3.2%20%E0%B8%9E%E0%B8%A3%E0%B8%B0%E0%B8%A3%E0%B8%B2%E0%B8%8A%E0%B8%9A%E0%B8%B1%E0%B8%8D%E0%B8%8D%E0%B8%B1%E0%B8%95%E0%B8%B4%E0%B8%9E%E0%B8%B7%E0%B8%8A%E0%B8%81%E0%B8%A3%E0%B8%B0%E0%B8%97%E0%B9%88%E0%B8%AD%E0%B8%A1%20%E0%B8%9E.%E0%B8%A8.%202565%20(English%20version)">11. 3.2 พระราชบัญญัติพืชกระท่อม พ.ศ. 2565 (English version).pdf</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://www.oncb.go.th/img/icons/file/pdf.png" alt="pdf"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://www.oncb.go.th/pdfjs/web/viewer.html?file=/storage/preview/page-attachment/271/67690956bd330PqnfDkmvEM.pdf?filename=4.%20%E0%B8%9E.%E0%B8%A3.%E0%B8%9A.%202519%20(%E0%B8%89%E0%B8%9A%E0%B8%B1%E0%B8%9A%E0%B8%A5%E0%B9%88%E0%B8%B2%E0%B8%AA%E0%B8%B8%E0%B8%94)%20%E0%B8%A0%E0%B8%B2%E0%B8%A9%E0%B8%B2%E0%B9%84%E0%B8%97%E0%B8%A2">12. 4. พ.ร.บ. 2519 (ฉบับล่าสุด) ภาษาไทย.pdf</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://www.oncb.go.th/img/icons/file/pdf.png" alt="pdf"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://www.oncb.go.th/pdfjs/web/viewer.html?file=/storage/preview/page-attachment/271/6769095a024b1SZjuJzp6KP.pdf?filename=4.%20NARCOTICS_CONTROL_ACT%20(B.E.%202519)%20%E0%B8%A0%E0%B8%B2%E0%B8%A9%E0%B8%B2%E0%B8%AD%E0%B8%B1%E0%B8%87%E0%B8%81%E0%B8%A4%E0%B8%A9">13. 4. NARCOTICS_CONTROL_ACT (B.E. 2519) ภาษาอังกฤษ.pdf</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://www.oncb.go.th/img/icons/file/pdf.png" alt="pdf"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://www.oncb.go.th/pdfjs/web/viewer.html?file=/storage/preview/page-attachment/271/676909ec1ab6190bxdydVaX.pdf?filename=4.1%20%E0%B8%9E%E0%B8%A3%E0%B8%B0%E0%B8%A3%E0%B8%B2%E0%B8%8A%E0%B8%9A%E0%B8%B1%E0%B8%8D%E0%B8%8D%E0%B8%B1%E0%B8%95%E0%B8%B4%E0%B8%9B%E0%B9%89%E0%B8%AD%E0%B8%87%E0%B8%81%E0%B8%B1%E0%B8%99%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%9B%E0%B8%A3%E0%B8%B2%E0%B8%9A%E0%B8%9B%E0%B8%A3%E0%B8%B2%E0%B8%A1%E0%B8%A2%E0%B8%B2%E0%B9%80%E0%B8%AA%E0%B8%9E%E0%B8%95%E0%B8%B4%E0%B8%94%20%E0%B8%9E.%E0%B8%A8.%202519">14. 4.1 พระราชบัญญัติป้องกันและปราบปรามยาเสพติด พ.ศ. 2519.pdf</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://www.oncb.go.th/img/icons/file/pdf.png" alt="pdf"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://www.oncb.go.th/pdfjs/web/viewer.html?file=/storage/preview/page-attachment/271/676909ec2c539Cz2rMhx4Np.pdf?filename=4.2%20%E0%B8%9E%E0%B8%A3%E0%B8%B0%E0%B8%A3%E0%B8%B2%E0%B8%8A%E0%B8%9A%E0%B8%B1%E0%B8%8D%E0%B8%8D%E0%B8%B1%E0%B8%95%E0%B8%B4%E0%B8%9B%E0%B9%89%E0%B8%AD%E0%B8%87%E0%B8%81%E0%B8%B1%E0%B8%99%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%9B%E0%B8%A3%E0%B8%B2%E0%B8%9A%E0%B8%9B%E0%B8%A3%E0%B8%B2%E0%B8%A1%E0%B8%A2%E0%B8%B2%E0%B9%80%E0%B8%AA%E0%B8%9E%E0%B8%95%E0%B8%B4%E0%B8%94%20(%E0%B8%89%E0%B8%9A%E0%B8%B1%E0%B8%9A%E0%B8%97%E0%B8%B5%E0%B9%88%202%20)%20%E0%B8%9E.%E0%B8%A8.%202534">15. 4.2 พระราชบัญญัติป้องกันและปราบปรามยาเสพติด (ฉบับที่ 2 ) พ.ศ. 2534.pdf</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://www.oncb.go.th/img/icons/file/pdf.png" alt="pdf"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://www.oncb.go.th/pdfjs/web/viewer.html?file=/storage/preview/page-attachment/271/676909ec52c41FCD2gFS3yv.pdf?filename=4.3%20%E0%B8%9E%E0%B8%A3%E0%B8%B0%E0%B8%A3%E0%B8%B2%E0%B8%8A%E0%B8%9A%E0%B8%B1%E0%B8%8D%E0%B8%8D%E0%B8%B1%E0%B8%95%E0%B8%B4%E0%B8%9B%E0%B9%89%E0%B8%AD%E0%B8%87%E0%B8%81%E0%B8%B1%E0%B8%99%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%9B%E0%B8%A3%E0%B8%B2%E0%B8%9A%E0%B8%9B%E0%B8%A3%E0%B8%B2%E0%B8%A1%E0%B8%A2%E0%B8%B2%E0%B9%80%E0%B8%AA%E0%B8%9E%E0%B8%95%E0%B8%B4%E0%B8%94%20(%E0%B8%89%E0%B8%9A%E0%B9%89%E0%B8%9A%E0%B8%97%E0%B8%B5%E0%B9%88%203%20)%20%E0%B8%9E.%E0%B8%A8.%202543">16. 4.3 พระราชบัญญัติป้องกันและปราบปรามยาเสพติด (ฉบ้บที่ 3 ) พ.ศ. 2543.pdf</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://www.oncb.go.th/img/icons/file/pdf.png" alt="pdf"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://www.oncb.go.th/pdfjs/web/viewer.html?file=/storage/preview/page-attachment/271/676909ec67f17j8UkEvv30J.pdf?filename=4.4%20%E0%B8%9E%E0%B8%A3%E0%B8%B0%E0%B8%A3%E0%B8%B2%E0%B8%8A%E0%B8%9A%E0%B8%B1%E0%B8%8D%E0%B8%8D%E0%B8%B1%E0%B8%95%E0%B8%B4%E0%B8%9B%E0%B9%89%E0%B8%AD%E0%B8%87%E0%B8%81%E0%B8%B1%E0%B8%99%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%9B%E0%B8%A3%E0%B8%B2%E0%B8%9A%E0%B8%9B%E0%B8%A3%E0%B8%B2%E0%B8%A1%E0%B8%A2%E0%B8%B2%E0%B9%80%E0%B8%AA%E0%B8%9E%E0%B8%95%E0%B8%B4%E0%B8%94%20(%E0%B8%89%E0%B8%9A%E0%B8%B1%E0%B8%9A%E0%B8%97%E0%B8%B5%E0%B9%88%204%20)%20%E0%B8%9E.%E0%B8%A8.%202545">17. 4.4 พระราชบัญญัติป้องกันและปราบปรามยาเสพติด (ฉบับที่ 4 ) พ.ศ. 2545.pdf</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://www.oncb.go.th/img/icons/file/pdf.png" alt="pdf"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://www.oncb.go.th/pdfjs/web/viewer.html?file=/storage/preview/page-attachment/271/67690ab8564cdnqAQVqqZqY.pdf?filename=5.%20%E0%B8%9E.%E0%B8%A3.%E0%B8%9A.%E0%B8%A1%E0%B8%B2%E0%B8%95%E0%B8%A3%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%9B%E0%B8%A3%E0%B8%B2%E0%B8%9A%E0%B8%9C%E0%B8%B9%E0%B9%89%E0%B8%81%E0%B8%A3%E0%B8%B0%E0%B8%97%E0%B8%B3%E0%B8%9C%E0%B8%B4%E0%B8%94%E0%B8%AF%20%E0%B8%9E.%E0%B8%A8.%202534%20(%E0%B8%89%E0%B8%9A%E0%B8%B1%E0%B8%9A%E0%B8%A5%E0%B9%88%E0%B8%B2%E0%B8%AA%E0%B8%B8%E0%B8%94)">18. 5. พ.ร.บ.มาตรการปราบผู้กระทำผิดฯ พ.ศ. 2534 (ฉบับล่าสุด).pdf</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://www.oncb.go.th/img/icons/file/pdf.png" alt="pdf"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://www.oncb.go.th/pdfjs/web/viewer.html?file=/storage/preview/page-attachment/271/67690ab86dc1bJq9KMbj1Qb.pdf?filename=5.%20ACT_ON_MEASURES%20(B.E.%202534)">19. 5. ACT_ON_MEASURES (B.E. 2534).pdf</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://www.oncb.go.th/img/icons/file/pdf.png" alt="pdf"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://www.oncb.go.th/pdfjs/web/viewer.html?file=/storage/preview/page-attachment/271/676909ec8ea9bIqZDZ8zDFP.pdf?filename=5.1%20%E0%B8%9E%E0%B8%A3%E0%B8%B0%E0%B8%A3%E0%B8%B2%E0%B8%8A%E0%B8%9A%E0%B8%B1%E0%B8%8D%E0%B8%8D%E0%B8%B1%E0%B8%95%E0%B8%B4%E0%B8%A1%E0%B8%B2%E0%B8%95%E0%B8%A3%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B9%83%E0%B8%99%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%9B%E0%B8%A3%E0%B8%B2%E0%B8%9A%E0%B8%9B%E0%B8%A3%E0%B8%B2%E0%B8%A1%E0%B8%9C%E0%B8%B9%E0%B9%89%E0%B8%81%E0%B8%A3%E0%B8%B0%E0%B8%97%E0%B8%B3%E0%B8%84%E0%B8%A7%E0%B8%B2%E0%B8%A1%E0%B8%9C%E0%B8%B4%E0%B8%94%E0%B9%80%E0%B8%81%E0%B8%B5%E0%B9%88%E0%B8%A2%E0%B8%A7%E0%B8%81%E0%B8%B1%E0%B8%9A%E0%B8%A2%E0%B8%B2%E0%B9%80%E0%B8%AA%E0%B8%9E%E0%B8%95%E0%B8%B4%E0%B8%94%20%E0%B8%9E.%E0%B8%A8.%202534">20. 5.1 พระราชบัญญัติมาตรการในการปราบปรามผู้กระทำความผิดเกี่ยวกับยาเสพติด พ.ศ. 2534.pdf</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://www.oncb.go.th/img/icons/file/pdf.png" alt="pdf"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://www.oncb.go.th/pdfjs/web/viewer.html?file=/storage/preview/page-attachment/271/676909eca517cmtFF9yYYAB.pdf?filename=5.2%20%E0%B8%9E%E0%B8%A3%E0%B8%B0%E0%B8%A3%E0%B8%B2%E0%B8%8A%E0%B8%9A%E0%B8%B1%E0%B8%8D%E0%B8%8D%E0%B8%B1%E0%B8%95%E0%B8%B4%E0%B8%A1%E0%B8%B2%E0%B8%95%E0%B8%A3%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B9%83%E0%B8%99%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%9B%E0%B8%A3%E0%B8%B2%E0%B8%9A%E0%B8%9B%E0%B8%A3%E0%B8%B2%E0%B8%A1%E0%B8%9C%E0%B8%B9%E0%B9%89%E0%B8%81%E0%B8%A3%E0%B8%B0%E0%B8%97%E0%B8%B3%E0%B8%84%E0%B8%A7%E0%B8%B2%E0%B8%A1%E0%B8%9C%E0%B8%B4%E0%B8%94%E0%B9%80%E0%B8%81%E0%B8%B5%E0%B9%88%E0%B8%A2%E0%B8%A7%E0%B8%81%E0%B8%B1%E0%B8%9A%E0%B8%A2%E0%B8%B2%E0%B9%80%E0%B8%AA%E0%B8%9E%E0%B8%95%E0%B8%B4%E0%B8%94%20(%E0%B8%89%E0%B8%9A%E0%B8%B1%E0%B8%9A%E0%B8%97%E0%B8%B5%E0%B9%88%202)%20%E0%B8%9E.%E0%B8%A8.%202543">21. 5.2 พระราชบัญญัติมาตรการในการปราบปรามผู้กระทำความผิดเกี่ยวกับยาเสพติด (ฉบับที่ 2) พ.ศ. 2543.pdf</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>รายชื่อหน่วยงานที่รับผิดชอบการประเมิน ผลสัมฤทธิ์ของกฎหมาย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://s3.oncb.go.th/oncb-main/files/39/2025-01/678c83f3d4c02cUlhYHaHg0.pdf">รายชื่อหน่วยงานที่รับผิดชอบการประเมินผลสัมฤทธิ์ของกฎหมาย&nbsp;</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ดาวน์โหลดเอกสาร</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://www.oncb.go.th/img/icons/file/pdf.png" alt="pdf"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://www.oncb.go.th/pdfjs/web/viewer.html?file=/storage/preview/page-attachment/264/67628c0b05152O2zQdAinz1.pdf?filename=%E0%B8%A3%E0%B8%B2%E0%B8%A2%E0%B8%8A%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%AB%E0%B8%99%E0%B9%88%E0%B8%A7%E0%B8%A2%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%97%E0%B8%B5%E0%B9%88%E0%B8%A3%E0%B8%B1%E0%B8%9A%E0%B8%9C%E0%B8%B4%E0%B8%94%E0%B8%8A%E0%B8%AD%E0%B8%9A%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B9%80%E0%B8%A1%E0%B8%B4%E0%B8%99%E0%B8%9C%E0%B8%A5%E0%B8%AA%E0%B8%B1%E0%B8%A1%E0%B8%A4%E0%B8%97%E0%B8%98%E0%B8%B4%E0%B9%8C%E0%B8%82%E0%B8%AD%E0%B8%87%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2">1. รายชื่อหน่วยงานที่รับผิดชอบการประเมินผลสัมฤทธิ์ของกฎหมาย.pdf</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>คำสั่งสำนักนายกรัฐมนตรี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://nccd.go.th/img/icons/file/pdf.png" alt="pdf"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://nccd.go.th/pdfjs/web/viewer.html?file=/storage/preview/page-attachment/42/6a4f60bc4448fyOXi39GKgv.pdf?filename=%E0%B8%84%E0%B8%B3%E0%B8%AA%E0%B8%B1%E0%B9%88%E0%B8%87%E0%B8%AA%E0%B8%B3%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%20%E0%B8%97%E0%B8%B5%E0%B9%88%20254/2569%20%E0%B8%88%E0%B8%B1%E0%B8%94%E0%B8%95%E0%B8%B1%E0%B9%89%E0%B8%87%E0%B8%A8%E0%B8%B9%E0%B8%99%E0%B8%A2%E0%B9%8C%E0%B8%AD%E0%B8%B3%E0%B8%99%E0%B8%A7%E0%B8%A2%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%9B%E0%B9%89%E0%B8%AD%E0%B8%87%E0%B8%81%E0%B8%B1%E0%B8%99%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%9B%E0%B8%A3%E0%B8%B2%E0%B8%9A%E0%B8%9B%E0%B8%A3%E0%B8%B2%E0%B8%A1%E0%B8%A2%E0%B8%B2%E0%B9%80%E0%B8%AA%E0%B8%9E%E0%B8%95%E0%B8%B4%E0%B8%94%E0%B9%81%E0%B8%AB%E0%B9%88%E0%B8%87%E0%B8%8A%E0%B8%B2%E0%B8%95%E0%B8%B4">1. คำสั่งสำนักนายกรัฐมนตรี ที่ 254/2569 จัดตั้งศูนย์อำนวยการป้องกันและปราบปรามยาเสพติดแห่งชาติ.pdf</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://nccd.go.th/img/icons/file/pdf.png" alt="pdf"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://nccd.go.th/pdfjs/web/viewer.html?file=/storage/preview/page-attachment/42/69313934e90dbHaS6zr6ObP.pdf?filename=%E0%B8%84%E0%B8%B3%E0%B8%AA%E0%B8%B1%E0%B9%88%E0%B8%87%E0%B8%AA%E0%B8%B3%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%20%E0%B8%97%E0%B8%B5%E0%B9%88%20417/2568%20%E0%B8%88%E0%B8%B1%E0%B8%94%E0%B8%95%E0%B8%B1%E0%B9%89%E0%B8%87%E0%B8%A8%E0%B8%B9%E0%B8%99%E0%B8%A2%E0%B9%8C%E0%B8%AD%E0%B8%B3%E0%B8%99%E0%B8%A7%E0%B8%A2%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%9B%E0%B9%89%E0%B8%AD%E0%B8%87%E0%B8%81%E0%B8%B1%E0%B8%99%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%9B%E0%B8%A3%E0%B8%B2%E0%B8%9A%E0%B8%9B%E0%B8%A3%E0%B8%B2%E0%B8%A1%E0%B8%A2%E0%B8%B2%E0%B9%80%E0%B8%AA%E0%B8%9E%E0%B8%95%E0%B8%B4%E0%B8%94%E0%B9%81%E0%B8%AB%E0%B9%88%E0%B8%87%E0%B8%8A%E0%B8%B2%E0%B8%95%E0%B8%B4">2. คำสั่งสำนักนายกรัฐมนตรี ที่ 417/2568 จัดตั้งศูนย์อำนวยการป้องกันและปราบปรามยาเสพติดแห่งชาติ.pdf</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://nccd.go.th/img/icons/file/pdf.png" alt="pdf"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://nccd.go.th/pdfjs/web/viewer.html?file=/storage/preview/page-attachment/42/68da405613c3a1iGnowUiII.pdf?filename=%E0%B8%84%E0%B8%B3%E0%B8%AA%E0%B8%B1%E0%B9%88%E0%B8%87%E0%B8%AA%E0%B8%B3%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%E0%B8%97%E0%B8%B5%E0%B9%88%20302/2568%20%E0%B8%A1%E0%B8%AD%E0%B8%9A%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%A1%E0%B8%AD%E0%B8%9A%E0%B8%AD%E0%B8%B3%E0%B8%99%E0%B8%B2%E0%B8%88%E0%B9%83%E0%B8%AB%E0%B9%89%E0%B8%A3%E0%B8%AD%E0%B8%87%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%AF%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%E0%B8%9B%E0%B8%8F%E0%B8%B4%E0%B8%9A%E0%B8%B1%E0%B8%95%E0%B8%B4%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%E0%B8%97%E0%B8%B5%E0%B9%88%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%98%E0%B8%B2%E0%B8%99%E0%B8%81%E0%B8%A3%E0%B8%A3%E0%B8%A1%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%AF">3. คำสั่งสำนักนายกรัฐมนตรีที่ 302/2568 มอบหมายและมอบอำนาจให้รองนายกฯและรัฐมนตรีปฏิบัติหน้าที่ประธานกรรมการฯ.pdf</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://nccd.go.th/img/icons/file/pdf.png" alt="pdf"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://nccd.go.th/pdfjs/web/viewer.html?file=/storage/preview/page-attachment/42/68b7a933252ee6E9cWmwL26.pdf?filename=%E0%B8%84%E0%B8%B3%E0%B8%AA%E0%B8%B1%E0%B9%88%E0%B8%87%E0%B8%AA%E0%B8%B3%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%E0%B8%97%E0%B8%B5%E0%B9%88%20279/2568%20%E0%B8%A1%E0%B8%AD%E0%B8%9A%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%A1%E0%B8%AD%E0%B8%9A%E0%B8%AD%E0%B8%B3%E0%B8%99%E0%B8%B2%E0%B8%88%E0%B9%83%E0%B8%AB%E0%B9%89%E0%B8%A3%E0%B8%AD%E0%B8%87%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%AF%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%E0%B8%9B%E0%B8%8F%E0%B8%B4%E0%B8%9A%E0%B8%B1%E0%B8%95%E0%B8%B4%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%E0%B8%97%E0%B8%B5%E0%B9%88%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%98%E0%B8%B2%E0%B8%99%E0%B8%81%E0%B8%A3%E0%B8%A3%E0%B8%A1%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%AF">4. คำสั่งสำนักนายกรัฐมนตรีที่ 279/2568 มอบหมายและมอบอำนาจให้รองนายกฯและรัฐมนตรีปฏิบัติหน้าที่ประธานกรรมการฯ.pdf</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://nccd.go.th/img/icons/file/pdf.png" alt="pdf"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://nccd.go.th/pdfjs/web/viewer.html?file=/storage/preview/page-attachment/42/689d66bf158a4IGJcqzNItq.pdf?filename=%E0%B8%84%E0%B8%B3%E0%B8%AA%E0%B8%B1%E0%B9%88%E0%B8%87%E0%B8%AA%E0%B8%B3%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%E0%B8%97%E0%B8%B5%E0%B9%88%20243/2568%20%E0%B9%80%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%20%E0%B9%81%E0%B8%95%E0%B9%88%E0%B8%87%E0%B8%95%E0%B8%B1%E0%B9%89%E0%B8%87%E0%B8%84%E0%B8%93%E0%B8%B0%E0%B8%81%E0%B8%A3%E0%B8%A3%E0%B8%A1%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%95%E0%B8%B4%E0%B8%94%E0%B8%95%E0%B8%B2%E0%B8%A1%20%E0%B8%9B%E0%B8%A3%E0%B8%B2%E0%B8%9A%E0%B8%9B%E0%B8%A3%E0%B8%B2%E0%B8%A1%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%81%E0%B8%A3%E0%B8%B0%E0%B8%97%E0%B8%B3%E0%B8%9C%E0%B8%B4%E0%B8%94%E0%B9%80%E0%B8%81%E0%B8%B5%E0%B9%88%E0%B8%A2%E0%B8%A7%E0%B8%81%E0%B8%B1%E0%B8%9A%E0%B8%A2%E0%B8%B2%E0%B9%80%E0%B8%AA%E0%B8%9E%E0%B8%95%E0%B8%B4%E0%B8%94%E0%B9%83%E0%B8%99%E0%B8%9E%E0%B8%B7%E0%B9%89%E0%B8%99%E0%B8%97%E0%B8%B5%E0%B9%88%E0%B8%97%E0%B8%B1%E0%B9%88%E0%B8%A7%E0%B8%A3%E0%B8%B2%E0%B8%8A%E0%B8%AD%E0%B8%B2%E0%B8%93%E0%B8%B2%E0%B8%88%E0%B8%B1%E0%B8%81%E0%B8%A3">5. คำสั่งสำนักนายกรัฐมนตรีที่ 243/2568 เรื่อง แต่งตั้งคณะกรรมการติดตาม ปราบปรามการกระทำผิดเกี่ยวกับยาเสพติดในพื้นที่ทั่วราชอาณาจักร.pdf</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://nccd.go.th/img/icons/file/pdf.png" alt="pdf"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://nccd.go.th/pdfjs/web/viewer.html?file=/storage/preview/page-attachment/42/686e151eab9ccCUoCpDD8Je.pdf?filename=%E0%B8%84%E0%B8%B3%E0%B8%AA%E0%B8%B1%E0%B9%88%E0%B8%87%E0%B8%AA%E0%B8%B3%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%20%E0%B8%97%E0%B8%B5%E0%B9%88%20208/2568%20%E0%B8%A1%E0%B8%AD%E0%B8%9A%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%A1%E0%B8%AD%E0%B8%9A%E0%B8%AD%E0%B8%B3%E0%B8%99%E0%B8%B2%E0%B8%88%E0%B9%83%E0%B8%AB%E0%B9%89%E0%B8%A3%E0%B8%AD%E0%B8%87%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%88%E0%B8%B3%E0%B8%AA%E0%B8%B3%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%20%E0%B8%9B%E0%B8%8F%E0%B8%B4%E0%B8%9A%E0%B8%B1%E0%B8%95%E0%B8%B4%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%E0%B8%97%E0%B8%B5%E0%B9%88%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%98%E0%B8%B2%E0%B8%99%E0%B8%81%E0%B8%A3%E0%B8%A3%E0%B8%A1%E0%B8%81%E0%B8%B2%E0%B8%A3%20%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%A1%E0%B8%AD%E0%B8%9A%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B9%83%E0%B8%AB%E0%B9%89%E0%B8%A3%E0%B8%AD%E0%B8%87%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%88%E0%B8%B3%E0%B8%AA%E0%B8%B3%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%E0%B8%9B%E0%B8%8F%E0%B8%B4%E0%B8%9A%E0%B8%B1%E0%B8%95%E0%B8%B4%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%E0%B8%97%E0%B8%B5%E0%B9%88%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%98%E0%B8%B2%E0%B8%99%E0%B8%81%E0%B8%A3%E0%B8%A3%E0%B8%A1%E0%B8%81%E0%B8%B2%E0%B8%A3%20%E0%B8%A3%E0%B8%AD%E0%B8%87%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%98%E0%B8%B2%E0%B8%99%E0%B8%81%E0%B8%A3%E0%B8%A3%E0%B8%A1%E0%B8%81%E0%B8%B2%E0%B8%A3%20%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%81%E0%B8%A3%E0%B8%A3%E0%B8%A1%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B9%83%E0%B8%99%E0%B8%84%E0%B8%93%E0%B8%B0%E0%B8%81%E0%B8%A3%E0%B8%A3%E0%B8%A1%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%95%E0%B9%88%E0%B8%B2%E0%B8%87%20%E0%B9%86%20%E0%B8%95%E0%B8%B2%E0%B8%A1%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%20%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%A3%E0%B8%B0%E0%B9%80%E0%B8%9A%E0%B8%B5%E0%B8%A2%E0%B8%9A%E0%B8%AA%E0%B8%B3%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5">6. คำสั่งสำนักนายกรัฐมนตรี ที่ 208/2568 มอบหมายและมอบอำนาจให้รองนายกรัฐมนตรีและรัฐมนตรีประจำสำนักนายกรัฐมนตรี ปฏิบัติหน้าที่ประธานกรรมการ และมอบหมายให้รองนายกรัฐมนตรีและรัฐมนตรีประจำสำนักนายกรัฐมนตรีปฏิบัติหน้าที่ประธานกรรมการ รองประธานกรรมการ และกรรมการในคณะกรรมการต่าง ๆ ตามกฎหมาย และระเบียบสำนักนายกรัฐมนตรี.pdf</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://nccd.go.th/img/icons/file/pdf.png" alt="pdf"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://nccd.go.th/pdfjs/web/viewer.html?file=/storage/preview/page-attachment/42/686e151e83167k522wWHAxd.pdf?filename=%E0%B8%84%E0%B8%B3%E0%B8%AA%E0%B8%B1%E0%B9%88%E0%B8%87%E0%B8%AA%E0%B8%B3%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%20%E0%B8%97%E0%B8%B5%E0%B9%88%20207/2568%20%E0%B8%A1%E0%B8%AD%E0%B8%9A%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%A1%E0%B8%AD%E0%B8%9A%E0%B8%AD%E0%B8%B3%E0%B8%99%E0%B8%B2%E0%B8%88%E0%B9%83%E0%B8%AB%E0%B9%89%E0%B8%A3%E0%B8%AD%E0%B8%87%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%88%E0%B8%B3%E0%B8%AA%E0%B8%B3%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%E0%B8%9B%E0%B8%8F%E0%B8%B4%E0%B8%9A%E0%B8%B1%E0%B8%95%E0%B8%B4%E0%B8%A3%E0%B8%B2%E0%B8%8A%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B9%81%E0%B8%97%E0%B8%99%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5">7. คำสั่งสำนักนายกรัฐมนตรี ที่ 207/2568 มอบหมายและมอบอำนาจให้รองนายกรัฐมนตรีและรัฐมนตรีประจำสำนักนายกรัฐมนตรีปฏิบัติราชการแทนนายกรัฐมนตรี.pdf</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://nccd.go.th/img/icons/file/pdf.png" alt="pdf"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://nccd.go.th/pdfjs/web/viewer.html?file=/storage/preview/page-attachment/42/689d997ee6f5carXMrQmhQb.pdf?filename=%E0%B8%84%E0%B8%B3%E0%B8%AA%E0%B8%B1%E0%B9%88%E0%B8%87%E0%B8%AA%E0%B8%B3%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%E0%B8%97%E0%B8%B5%E0%B9%88%20100/2568%20%E0%B9%81%E0%B8%95%E0%B9%88%E0%B8%87%E0%B8%95%E0%B8%B1%E0%B9%89%E0%B8%87%E0%B8%97%E0%B8%B5%E0%B9%88%E0%B8%9B%E0%B8%A3%E0%B8%B6%E0%B8%81%E0%B8%A9%E0%B8%B2%E0%B8%84%E0%B8%93%E0%B8%B0%E0%B8%81%E0%B8%A3%E0%B8%A3%E0%B8%A1%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%95%E0%B8%B4%E0%B8%94%E0%B8%95%E0%B8%B2%E0%B8%A1%E0%B9%80%E0%B8%A3%E0%B9%88%E0%B8%87%E0%B8%A3%E0%B8%B1%E0%B8%94%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%94%E0%B8%B3%E0%B9%80%E0%B8%99%E0%B8%B4%E0%B8%99%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%9B%E0%B9%89%E0%B8%AD%E0%B8%87%E0%B8%81%E0%B8%B1%E0%B8%99%20%E0%B8%9B%E0%B8%A3%E0%B8%B2%E0%B8%9A%E0%B8%9B%E0%B8%A3%E0%B8%B2%E0%B8%A1%20%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B9%81%E0%B8%81%E0%B9%89%E0%B9%84%E0%B8%82%E0%B8%9B%E0%B8%B1%E0%B8%8D%E0%B8%AB%E0%B8%B2%E0%B8%A2%E0%B8%B2%E0%B9%80%E0%B8%AA%E0%B8%9E%E0%B8%95%E0%B8%B4%E0%B8%94">8. คำสั่งสำนักนายกรัฐมนตรีที่ 100/2568 แต่งตั้งที่ปรึกษาคณะกรรมการติดตามเร่งรัดการดำเนินงานป้องกัน ปราบปราม และแก้ไขปัญหายาเสพติด.pdf</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://nccd.go.th/img/icons/file/pdf.png" alt="pdf"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://nccd.go.th/pdfjs/web/viewer.html?file=/storage/preview/page-attachment/42/67622408f15010ujl0GfVYJ.pdf?filename=%E0%B8%84%E0%B8%B3%E0%B8%AA%E0%B8%B1%E0%B9%88%E0%B8%87%E0%B8%AA%E0%B8%B3%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%20%E0%B8%97%E0%B8%B5%E0%B9%88%20352/2567%20%E0%B9%81%E0%B8%95%E0%B9%88%E0%B8%87%E0%B8%95%E0%B8%B1%E0%B9%89%E0%B8%87%E0%B8%84%E0%B8%93%E0%B8%B0%E0%B8%81%E0%B8%A3%E0%B8%A3%E0%B8%A1%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%95%E0%B8%B4%E0%B8%94%E0%B8%95%E0%B8%B2%E0%B8%A1%20%E0%B9%80%E0%B8%A3%E0%B9%88%E0%B8%87%E0%B8%A3%E0%B8%B1%E0%B8%94%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%94%E0%B8%B3%E0%B9%80%E0%B8%99%E0%B8%B4%E0%B8%99%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%9B%E0%B9%89%E0%B8%AD%E0%B8%87%E0%B8%81%E0%B8%B1%E0%B8%99%20%20%E0%B8%9B%E0%B8%A3%E0%B8%B2%E0%B8%9A%E0%B8%9B%E0%B8%A3%E0%B8%B2%E0%B8%A1%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B9%81%E0%B8%81%E0%B9%89%E0%B9%84%E0%B8%82%E0%B8%9B%E0%B8%B1%E0%B8%8D%E0%B8%AB%E0%B8%B2%E0%B8%A2%E0%B8%B2%E0%B9%80%E0%B8%AA%E0%B8%9E%E0%B8%95%E0%B8%B4%E0%B8%94%20%E0%B8%A5%E0%B8%87%E0%B8%A7%E0%B8%B1%E0%B8%99%E0%B8%97%E0%B8%B5%E0%B9%88%207%20%E0%B8%95%E0%B8%B8%E0%B8%A5%E0%B8%B2%E0%B8%84%E0%B8%A1%202567">9. คำสั่งสำนักนายกรัฐมนตรี ที่ 352/2567 แต่งตั้งคณะกรรมการติดตาม เร่งรัดการดำเนินการป้องกัน ปราบปรามและแก้ไขปัญหายาเสพติด ลงวันที่ 7 ตุลาคม 2567.pdf</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://nccd.go.th/img/icons/file/pdf.png" alt="pdf"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://nccd.go.th/pdfjs/web/viewer.html?file=/storage/preview/page-attachment/42/676224076aa03cvL1ewooik.pdf?filename=%E0%B8%84%E0%B8%B3%E0%B8%AA%E0%B8%B1%E0%B9%88%E0%B8%87%E0%B8%AA%E0%B8%B3%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%20%E0%B8%97%E0%B8%B5%E0%B9%88%20314/2567%20%E0%B8%A1%E0%B8%AD%E0%B8%9A%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%A1%E0%B8%AD%E0%B8%9A%E0%B8%AD%E0%B8%B3%E0%B8%99%E0%B8%B2%E0%B8%88%E0%B9%83%E0%B8%AB%E0%B9%89%E0%B8%A3%E0%B8%AD%E0%B8%87%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%88%E0%B8%B3%E0%B8%AA%E0%B8%B3%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%E0%B8%9B%E0%B8%8F%E0%B8%B4%E0%B8%9A%E0%B8%B1%E0%B8%95%E0%B8%B4%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%E0%B8%97%E0%B8%B5%E0%B9%88%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%98%E0%B8%B2%E0%B8%99%E0%B8%81%E0%B8%A3%E0%B8%A3%E0%B8%A1%E0%B8%81%E0%B8%B2%E0%B8%A3%20%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%A1%E0%B8%AD%E0%B8%9A%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B9%83%E0%B8%AB%E0%B9%89%E0%B8%A3%E0%B8%AD%E0%B8%87%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%88%E0%B8%B3%E0%B8%AA%E0%B8%B3%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%E0%B8%9B%E0%B8%8F%E0%B8%B4%E0%B8%9A%E0%B8%B1%E0%B8%95%E0%B8%B4%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%E0%B8%97%E0%B8%B5%E0%B9%88%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%98%E0%B8%B2%E0%B8%99%E0%B8%81%E0%B8%A3%E0%B8%A3%E0%B8%A1%E0%B8%81%E0%B8%B2%E0%B8%A3%20%E0%B8%A3%E0%B8%AD%E0%B8%87%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%98%E0%B8%B2%E0%B8%99%E0%B8%81%E0%B8%A3%E0%B8%A3%E0%B8%A1%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%81%E0%B8%A3%E0%B8%A3%E0%B8%A1%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B9%83%E0%B8%99%E0%B8%84%E0%B8%93%E0%B8%B0%E0%B8%81%E0%B8%A3%E0%B8%A3%E0%B8%A1%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%95%E0%B9%88%E0%B8%B2%E0%B8%87%20%E0%B9%86%20%E0%B8%95%E0%B8%B2%E0%B8%A1%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%20%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%A3%E0%B8%B0%E0%B9%80%E0%B8%9A%E0%B8%B5%E0%B8%A2%E0%B8%9A%E0%B8%AA%E0%B8%B3%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%20%E0%B8%A5%E0%B8%87%E0%B8%A7%E0%B8%B1%E0%B8%99%E0%B8%97%E0%B8%B5%E0%B9%88%2016%20%E0%B8%81%E0%B8%B1%E0%B8%99%E0%B8%A2%E0%B8%B2%E0%B8%A2%E0%B8%99%202567">10. คำสั่งสำนักนายกรัฐมนตรี ที่ 314/2567 มอบหมายและมอบอำนาจให้รองนายกรัฐมนตรีและรัฐมนตรีประจำสำนักนายกรัฐมนตรีปฏิบัติหน้าที่ประธานกรรมการ และมอบหมายให้รองนายกรัฐมนตรีและรัฐมนตรีประจำสำนักนายกรัฐมนตรีปฏิบัติหน้าที่ประธานกรรมการ รองประธานกรรมการและกรรมการในคณะกรรมการต่าง ๆ ตามกฎหมาย และระเบียบสำนักนายกรัฐมนตรี ลงวันที่ 16 กันยายน 2567 .pdf</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://nccd.go.th/img/icons/file/pdf.png" alt="pdf"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://nccd.go.th/pdfjs/web/viewer.html?file=/storage/preview/page-attachment/42/6762257a8011fHvP9JS0cY6.pdf?filename=%E0%B8%84%E0%B8%B3%E0%B8%AA%E0%B8%B1%E0%B9%88%E0%B8%87%E0%B8%AA%E0%B8%B3%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%20%E0%B8%97%E0%B8%B5%E0%B9%88%20290/2567%20%E0%B8%A1%E0%B8%AD%E0%B8%9A%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B9%83%E0%B8%AB%E0%B9%89%E0%B8%A3%E0%B8%AD%E0%B8%87%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%E0%B8%81%E0%B8%B3%E0%B8%81%E0%B8%B1%E0%B8%9A%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%95%E0%B8%B4%E0%B8%94%E0%B8%95%E0%B8%B2%E0%B8%A1%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%9B%E0%B8%8F%E0%B8%B4%E0%B8%9A%E0%B8%B1%E0%B8%95%E0%B8%B4%E0%B8%A3%E0%B8%B2%E0%B8%8A%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B9%83%E0%B8%99%E0%B8%A0%E0%B8%B9%E0%B8%A1%E0%B8%B4%E0%B8%A0%E0%B8%B2%E0%B8%84%20%E0%B8%A5%E0%B8%87%E0%B8%A7%E0%B8%B1%E0%B8%99%E0%B8%97%E0%B8%B5%E0%B9%88%2020%20%E0%B8%AA%E0%B8%B4%E0%B8%87%E0%B8%AB%E0%B8%B2%E0%B8%84%E0%B8%A1%202567">11. คำสั่งสำนักนายกรัฐมนตรี ที่ 290/2567 มอบหมายให้รองนายกรัฐมนตรีกำกับและติดตามการปฏิบัติราชการในภูมิภาค ลงวันที่ 20 สิงหาคม 2567.pdf</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://nccd.go.th/img/icons/file/pdf.png" alt="pdf"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://nccd.go.th/pdfjs/web/viewer.html?file=/storage/preview/page-attachment/42/6762240710acekMmKF0DzzD.pdf?filename=%E0%B8%84%E0%B8%B3%E0%B8%AA%E0%B8%B1%E0%B9%88%E0%B8%87%E0%B8%AA%E0%B8%B3%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%20%E0%B8%97%E0%B8%B5%E0%B9%88%20289/2567%20%E0%B8%A1%E0%B8%AD%E0%B8%9A%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%A1%E0%B8%AD%E0%B8%9A%E0%B8%AD%E0%B8%B3%E0%B8%99%E0%B8%B2%E0%B8%88%E0%B9%83%E0%B8%AB%E0%B9%89%E0%B8%A3%E0%B8%AD%E0%B8%87%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%88%E0%B8%B3%E0%B8%AA%E0%B8%B3%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%E0%B8%9B%E0%B8%8F%E0%B8%B4%E0%B8%9A%E0%B8%B1%E0%B8%95%E0%B8%B4%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%E0%B8%97%E0%B8%B5%E0%B9%88%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%98%E0%B8%B2%E0%B8%99%E0%B8%81%E0%B8%A3%E0%B8%A3%E0%B8%A1%E0%B8%81%E0%B8%B2%E0%B8%A3%20%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%A1%E0%B8%AD%E0%B8%9A%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B9%83%E0%B8%AB%E0%B9%89%E0%B8%A3%E0%B8%AD%E0%B8%87%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%88%E0%B8%B3%E0%B8%AA%E0%B8%B3%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%E0%B8%9B%E0%B8%8E%E0%B8%B4%E0%B8%9A%E0%B8%B1%E0%B8%95%E0%B8%B4%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%E0%B8%97%E0%B8%B5%E0%B9%88%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%98%E0%B8%B2%E0%B8%99%E0%B8%81%E0%B8%A3%E0%B8%A3%E0%B8%A1%E0%B8%81%E0%B8%B2%E0%B8%A3%20%E0%B8%A3%E0%B8%AD%E0%B8%87%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%98%E0%B8%B2%E0%B8%99%E0%B8%81%E0%B8%A3%E0%B8%A3%E0%B8%A1%E0%B8%81%E0%B8%B2%E0%B8%A3%20%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%81%E0%B8%A3%E0%B8%A3%E0%B8%A1%E0%B8%81%E0%B8%B2%E0%B8%A3%20%E0%B9%83%E0%B8%99%E0%B8%84%E0%B8%93%E0%B8%B0%E0%B8%81%E0%B8%A3%E0%B8%A3%E0%B8%A1%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%95%E0%B9%88%E0%B8%B2%E0%B8%87%E0%B9%86%20%E0%B8%95%E0%B8%B2%E0%B8%A1%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%20%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%A3%E0%B8%B0%E0%B9%80%E0%B8%9A%E0%B8%B5%E0%B8%A2%E0%B8%9A%E0%B8%AA%E0%B8%B3%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%20%E0%B8%A5%E0%B8%87%E0%B8%A7%E0%B8%B1%E0%B8%99%E0%B8%97%E0%B8%B5%E0%B9%88%2020%20%E0%B8%AA%E0%B8%B4%E0%B8%87%E0%B8%AB%E0%B8%B2%E0%B8%84%E0%B8%A1%202567">12. คำสั่งสำนักนายกรัฐมนตรี ที่ 289/2567 มอบหมายและมอบอำนาจให้รองนายกรัฐมนตรีและรัฐมนตรีประจำสำนักนายกรัฐมนตรีปฏิบัติหน้าที่ประธานกรรมการ และมอบหมายให้รองนายกรัฐมนตรีและรัฐมนตรีประจำสำนักนายกรัฐมนตรีปฎิบัติหน้าที่ประธานกรรมการ รองประธานกรรมการ และกรรมการ ในคณะกรรมการต่างๆ ตามกฎหมาย และระเบียบสำนักนายกรัฐมนตรี ลงวันที่ 20 สิงหาคม 2567.pdf</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://nccd.go.th/img/icons/file/pdf.png" alt="pdf"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://nccd.go.th/pdfjs/web/viewer.html?file=/storage/preview/page-attachment/42/67622406df205mQZCR2Gawi.pdf?filename=%E0%B8%84%E0%B8%B3%E0%B8%AA%E0%B8%B1%E0%B9%88%E0%B8%87%E0%B8%AA%E0%B8%B3%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%20%E0%B8%97%E0%B8%B5%E0%B9%88%20288/2567%20%E0%B8%A1%E0%B8%AD%E0%B8%9A%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%A1%E0%B8%AD%E0%B8%9A%E0%B8%AD%E0%B8%B3%E0%B8%99%E0%B8%B2%E0%B8%88%E0%B9%83%E0%B8%AB%E0%B9%89%E0%B8%A3%E0%B8%AD%E0%B8%87%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%88%E0%B8%B3%E0%B8%AA%E0%B8%B3%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%E0%B8%9B%E0%B8%8F%E0%B8%B4%E0%B8%9A%E0%B8%B1%E0%B8%95%E0%B8%B4%E0%B8%A3%E0%B8%B2%E0%B8%8A%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B9%81%E0%B8%97%E0%B8%99%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%20%E0%B8%A5%E0%B8%87%E0%B8%A7%E0%B8%B1%E0%B8%99%E0%B8%97%E0%B8%B5%E0%B9%88%2020%20%E0%B8%AA%E0%B8%B4%E0%B8%87%E0%B8%AB%E0%B8%B2%E0%B8%84%E0%B8%A1%202567%20(%E0%B8%A2%E0%B8%81%E0%B9%80%E0%B8%A5%E0%B8%B4%E0%B8%81)">13. คำสั่งสำนักนายกรัฐมนตรี ที่ 288/2567 มอบหมายและมอบอำนาจให้รองนายกรัฐมนตรีและรัฐมนตรีประจำสำนักนายกรัฐมนตรีปฏิบัติราชการแทนนายกรัฐมนตรี ลงวันที่ 20 สิงหาคม 2567 (ยกเลิก).pdf</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://nccd.go.th/img/icons/file/pdf.png" alt="pdf"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://nccd.go.th/pdfjs/web/viewer.html?file=/storage/preview/page-attachment/42/67622406bfcacTGPSnBIyYX.pdf?filename=%E0%B8%84%E0%B8%B3%E0%B8%AA%E0%B8%B1%E0%B9%88%E0%B8%87%E0%B8%AA%E0%B8%B3%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%20%E0%B8%97%E0%B8%B5%E0%B9%88%20218/2567%20%E0%B8%A1%E0%B8%AD%E0%B8%9A%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%A1%E0%B8%AD%E0%B8%9A%E0%B8%AD%E0%B8%B3%E0%B8%99%E0%B8%B2%E0%B8%88%E0%B9%83%E0%B8%AB%E0%B9%89%E0%B8%A3%E0%B8%AD%E0%B8%87%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%88%E0%B8%B3%E0%B8%AA%E0%B8%B3%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%E0%B8%9B%E0%B8%8F%E0%B8%B4%E0%B8%9A%E0%B8%B1%E0%B8%B4%E0%B8%95%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%98%E0%B8%B2%E0%B8%99%E0%B8%81%E0%B8%A3%E0%B8%A3%E0%B8%A1%E0%B8%81%E0%B8%B2%E0%B8%A3%20%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%A1%E0%B8%AD%E0%B8%9A%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B9%83%E0%B8%AB%E0%B9%89%E0%B8%A3%E0%B8%AD%E0%B8%87%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%88%E0%B8%B3%E0%B8%AA%E0%B8%B3%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%E0%B8%9B%E0%B8%8F%E0%B8%B4%E0%B8%9A%E0%B8%B1%E0%B8%95%E0%B8%B4%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%E0%B8%97%E0%B8%B5%E0%B9%88%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%98%E0%B8%B2%E0%B8%99%E0%B8%81%E0%B8%A3%E0%B8%A3%E0%B8%A1%E0%B8%81%E0%B8%B2%E0%B8%A3%20%E0%B8%A3%E0%B8%AD%E0%B8%87%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%98%E0%B8%B2%E0%B8%99%E0%B8%81%E0%B8%A3%E0%B8%A3%E0%B8%A1%E0%B8%81%E0%B8%B2%E0%B8%A3%20%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%81%E0%B8%A3%E0%B8%A3%E0%B8%A1%E0%B8%81%E0%B8%B2%E0%B8%A3%20%E0%B9%83%E0%B8%99%E0%B8%84%E0%B8%93%E0%B8%B0%E0%B8%81%E0%B8%A3%E0%B8%A3%E0%B8%A1%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%95%E0%B9%88%E0%B8%B2%E0%B8%87%E0%B9%86%20%E0%B8%95%E0%B8%B2%E0%B8%A1%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%20%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%A3%E0%B8%B0%E0%B9%80%E0%B8%9A%E0%B8%B5%E0%B8%A2%E0%B8%9A%E0%B8%AA%E0%B8%B3%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%20%E0%B8%A5%E0%B8%87%E0%B8%A7%E0%B8%B1%E0%B8%99%E0%B8%97%E0%B8%B5%E0%B9%88%207%20%E0%B8%A1%E0%B8%B4%E0%B8%96%E0%B8%B8%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%99%202567%20(%E0%B8%A2%E0%B8%81%E0%B9%80%E0%B8%A5%E0%B8%B4%E0%B8%81)">14. คำสั่งสำนักนายกรัฐมนตรี ที่ 218/2567 มอบหมายและมอบอำนาจให้รองนายกรัฐมนตรีและรัฐมนตรีประจำสำนักนายกรัฐมนตรีปฏิบัิตหน้าประธานกรรมการ และมอบหมายให้รองนายกรัฐมนตรีประจำสำนักนายกรัฐมนตรีปฏิบัติหน้าที่ประธานกรรมการ รองประธานกรรมการ และกรรมการ ในคณะกรรมการต่างๆ ตามกฎหมาย และระเบียบสำนักนายกรัฐมนตรี ลงวันที่ 7 มิถุนายน 2567 (ยกเลิก).pdf</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://nccd.go.th/img/icons/file/pdf.png" alt="pdf"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://nccd.go.th/pdfjs/web/viewer.html?file=/storage/preview/page-attachment/42/67622409749e3f9Mcdl7R2i.pdf?filename=%E0%B8%84%E0%B8%B3%E0%B8%AA%E0%B8%B1%E0%B9%88%E0%B8%87%E0%B8%AA%E0%B8%B3%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%20%E0%B8%97%E0%B8%B5%E0%B9%88%20161/2567%20%E0%B9%81%E0%B8%95%E0%B9%88%E0%B8%87%E0%B8%95%E0%B8%B1%E0%B9%89%E0%B8%87%E0%B8%84%E0%B8%93%E0%B8%B0%E0%B8%81%E0%B8%A3%E0%B8%A3%E0%B8%A1%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%95%E0%B8%B4%E0%B8%94%E0%B8%95%E0%B8%B2%E0%B8%A1%20%E0%B9%80%E0%B8%A3%E0%B9%88%E0%B8%87%E0%B8%A3%E0%B8%B1%E0%B8%94%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%94%E0%B8%B3%E0%B9%80%E0%B8%99%E0%B8%B4%E0%B8%99%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%9B%E0%B9%89%E0%B8%AD%E0%B8%87%E0%B8%81%E0%B8%B1%E0%B8%99%20%E0%B8%9B%E0%B8%A3%E0%B8%B2%E0%B8%9A%E0%B8%9B%E0%B8%A3%E0%B8%B2%E0%B8%A1%20%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B9%81%E0%B8%81%E0%B9%89%E0%B9%84%E0%B8%82%E0%B8%9B%E0%B8%B1%E0%B8%8D%E0%B8%AB%E0%B8%B2%E0%B8%A2%E0%B8%B2%E0%B9%80%E0%B8%AA%E0%B8%9E%E0%B8%95%E0%B8%B4%E0%B8%94%20%E0%B8%A5%E0%B8%87%E0%B8%A7%E0%B8%B1%E0%B8%99%E0%B8%97%E0%B8%B5%E0%B9%88%2030%20%E0%B9%80%E0%B8%A1%E0%B8%A9%E0%B8%A9%E0%B8%A2%E0%B8%99%202567%20(%E0%B8%A2%E0%B8%81%E0%B9%80%E0%B8%A5%E0%B8%B4%E0%B8%81)">15. คำสั่งสำนักนายกรัฐมนตรี ที่ 161/2567 แต่งตั้งคณะกรรมการติดตาม เร่งรัดการดำเนินงานป้องกัน ปราบปราม และแก้ไขปัญหายาเสพติด ลงวันที่ 30 เมษษยน 2567 (ยกเลิก).pdf</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://nccd.go.th/img/icons/file/pdf.png" alt="pdf"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://nccd.go.th/pdfjs/web/viewer.html?file=/storage/preview/page-attachment/42/676224083753bXknSAQTw6D.pdf?filename=%E0%B8%84%E0%B8%B3%E0%B8%AA%E0%B8%B1%E0%B9%88%E0%B8%87%E0%B8%AA%E0%B8%B3%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%20%E0%B8%97%E0%B8%B5%E0%B9%88%20381/2566%20%E0%B9%81%E0%B8%81%E0%B9%89%E0%B9%84%E0%B8%82%E0%B9%80%E0%B8%9E%E0%B8%B4%E0%B9%88%E0%B8%A1%E0%B9%80%E0%B8%95%E0%B8%B4%E0%B8%A1%E0%B8%84%E0%B8%B3%E0%B8%AA%E0%B8%B1%E0%B9%88%E0%B8%87%E0%B8%A1%E0%B8%AD%E0%B8%9A%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%A1%E0%B8%AD%E0%B8%9A%E0%B8%AD%E0%B8%B3%E0%B8%99%E0%B8%B2%E0%B8%88%E0%B9%83%E0%B8%AB%E0%B9%89%E0%B8%A3%E0%B8%AD%E0%B8%87%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%88%E0%B8%B3%E0%B8%AA%E0%B8%B3%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%E0%B8%9B%E0%B8%8F%E0%B8%B4%E0%B8%9A%E0%B8%B1%E0%B8%95%E0%B8%B4%E0%B8%A3%E0%B8%B2%E0%B8%8A%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B9%81%E0%B8%97%E0%B8%99%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%20%E0%B8%A5%E0%B8%87%E0%B8%A7%E0%B8%B1%E0%B8%99%E0%B8%97%E0%B8%B5%E0%B9%88%2025%20%E0%B8%98%E0%B8%B1%E0%B8%99%E0%B8%A7%E0%B8%B2%E0%B8%84%E0%B8%A1%202566">16. คำสั่งสำนักนายกรัฐมนตรี ที่ 381/2566 แก้ไขเพิ่มเติมคำสั่งมอบหมายและมอบอำนาจให้รองนายกรัฐมนตรีและรัฐมนตรีประจำสำนักนายกรัฐมนตรีปฏิบัติราชการแทนนายกรัฐมนตรี ลงวันที่ 25 ธันวาคม 2566.pdf</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://nccd.go.th/img/icons/file/pdf.png" alt="pdf"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://nccd.go.th/pdfjs/web/viewer.html?file=/storage/preview/page-attachment/42/67622408a0d9ceJPwqGZBvX.pdf?filename=%E0%B8%84%E0%B8%B3%E0%B8%AA%E0%B8%B1%E0%B9%88%E0%B8%87%E0%B8%AA%E0%B8%B3%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%20%E0%B8%97%E0%B8%B5%E0%B9%88%20253/2566%20%E0%B8%A1%E0%B8%AD%E0%B8%9A%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%A1%E0%B8%AD%E0%B8%9A%E0%B8%AD%E0%B8%B3%E0%B8%99%E0%B8%B2%E0%B8%88%E0%B9%83%E0%B8%AB%E0%B9%89%E0%B8%A3%E0%B8%AD%E0%B8%87%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%E0%B8%9B%E0%B8%8F%E0%B8%B4%E0%B8%9A%E0%B8%B1%E0%B8%95%E0%B8%B4%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%E0%B8%97%E0%B8%B5%E0%B9%88%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%98%E0%B8%B2%E0%B8%99%E0%B8%81%E0%B8%A3%E0%B8%A3%E0%B8%A1%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%A1%E0%B8%AD%E0%B8%9A%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B9%83%E0%B8%AB%E0%B9%89%E0%B8%A3%E0%B8%AD%E0%B8%87%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%88%E0%B8%B3%E0%B8%AA%E0%B8%B3%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%E0%B8%9B%E0%B8%8F%E0%B8%B4%E0%B8%9A%E0%B8%B1%E0%B8%95%E0%B8%B4%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%E0%B8%97%E0%B8%B5%E0%B9%88%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%98%E0%B8%B2%E0%B8%99%E0%B8%81%E0%B8%A3%E0%B8%A3%E0%B8%A1%E0%B8%81%E0%B8%B2%E0%B8%A3%20%E0%B8%A3%E0%B8%AD%E0%B8%87%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%98%E0%B8%B2%E0%B8%99%E0%B8%81%E0%B8%A3%E0%B8%A3%E0%B8%A1%E0%B8%81%E0%B8%B2%E0%B8%A3%20%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%81%E0%B8%A3%E0%B8%A3%E0%B8%A1%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B9%83%E0%B8%99%E0%B8%84%E0%B8%93%E0%B8%B0%E0%B8%81%E0%B8%A3%E0%B8%A3%E0%B8%A1%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%95%E0%B9%88%E0%B8%B2%E0%B8%87%20%E0%B9%86%20%E0%B8%95%E0%B8%B2%E0%B8%A1%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%20%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%A3%E0%B8%B0%E0%B9%80%E0%B8%9A%E0%B8%B5%E0%B8%A2%E0%B8%9A%E0%B8%AA%E0%B8%B3%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%20%E0%B8%A5%E0%B8%87%E0%B8%A7%E0%B8%B1%E0%B8%99%E0%B8%97%E0%B8%B5%E0%B9%88%203%20%E0%B8%95%E0%B8%B8%E0%B8%A5%E0%B8%B2%E0%B8%84%E0%B8%A1%202566">17. คำสั่งสำนักนายกรัฐมนตรี ที่ 253/2566 มอบหมายและมอบอำนาจให้รองนายกรัฐมนตรีปฏิบัติหน้าที่ประธานกรรมการและมอบหมายให้รองนายกรัฐมนตรีและรัฐมนตรีประจำสำนักนายกรัฐมนตรีปฏิบัติหน้าที่ประธานกรรมการ รองประธานกรรมการ และกรรมการในคณะกรรมการต่าง ๆ ตามกฎหมาย และระเบียบสำนักนายกรัฐมนตรี ลงวันที่ 3 ตุลาคม 2566.pdf</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://nccd.go.th/img/icons/file/pdf.png" alt="pdf"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://nccd.go.th/pdfjs/web/viewer.html?file=/storage/preview/page-attachment/42/67622408179b1LChGRQIlCp.pdf?filename=%E0%B8%84%E0%B8%B3%E0%B8%AA%E0%B8%B1%E0%B9%88%E0%B8%87%E0%B8%AA%E0%B8%B3%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%20%E0%B8%97%E0%B8%B5%E0%B9%88%20%20229/2566%20%E0%B8%A1%E0%B8%AD%E0%B8%9A%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%A1%E0%B8%AD%E0%B8%9A%E0%B8%AD%E0%B8%B3%E0%B8%99%E0%B8%B2%E0%B8%88%E0%B9%83%E0%B8%AB%E0%B9%89%E0%B8%A3%E0%B8%AD%E0%B8%87%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%E0%B8%AA%E0%B8%B3%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%E0%B8%9B%E0%B8%8F%E0%B8%B4%E0%B8%9A%E0%B8%B1%E0%B8%95%E0%B8%B4%E0%B8%A3%E0%B8%B2%E0%B8%8A%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B9%81%E0%B8%97%E0%B8%99%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%20%20%E0%B8%A5%E0%B8%87%E0%B8%A7%E0%B8%B1%E0%B8%99%E0%B8%97%E0%B8%B5%E0%B9%88%20%2013%20%E0%B8%81%E0%B8%B1%E0%B8%99%E0%B8%A2%E0%B8%B2%E0%B8%A2%E0%B8%99%202566">18. คำสั่งสำนักนายกรัฐมนตรี ที่ 229/2566 มอบหมายและมอบอำนาจให้รองนายกรัฐมนตรีและรัฐมนตรีสำนักนายกรัฐมนตรีปฏิบัติราชการแทนนายกรัฐมนตรี ลงวันที่ 13 กันยายน 2566.pdf</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://nccd.go.th/img/icons/file/pdf.png" alt="pdf"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://nccd.go.th/pdfjs/web/viewer.html?file=/storage/preview/page-attachment/42/676224090f7409g3BSjNq6s.pdf?filename=%E0%B8%84%E0%B8%B3%E0%B8%AA%E0%B8%B1%E0%B9%88%E0%B8%87%E0%B8%AA%E0%B8%B3%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%20%E0%B8%97%E0%B8%B5%E0%B9%88%20268/2565%20%E0%B9%81%E0%B8%95%E0%B9%88%E0%B8%87%E0%B8%95%E0%B8%B1%E0%B9%89%E0%B8%87%E0%B8%84%E0%B8%93%E0%B8%B0%E0%B8%81%E0%B8%A3%E0%B8%A3%E0%B8%A1%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%82%E0%B8%B1%E0%B8%9A%E0%B9%80%E0%B8%84%E0%B8%A5%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%99%E0%B8%A7%E0%B8%B2%E0%B8%A3%E0%B8%B0%E0%B9%81%E0%B8%AB%E0%B9%88%E0%B8%87%E0%B8%8A%E0%B8%B2%E0%B8%95%E0%B8%B4%20%E0%B8%94%E0%B9%89%E0%B8%B2%E0%B8%99%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%9B%E0%B9%89%E0%B8%AD%E0%B8%87%E0%B8%81%E0%B8%B1%E0%B8%99%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%9B%E0%B8%A3%E0%B8%B2%E0%B8%9A%E0%B8%9B%E0%B8%A3%E0%B8%B2%E0%B8%A1%E0%B8%A2%E0%B8%B2%E0%B9%80%E0%B8%AA%E0%B8%9E%E0%B8%95%E0%B8%B4%E0%B8%94%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%AD%E0%B8%B2%E0%B8%A7%E0%B8%B8%E0%B8%98%E0%B8%9B%E0%B8%B7%E0%B8%99%20%E0%B8%A5%E0%B8%87%E0%B8%A7%E0%B8%B1%E0%B8%99%E0%B8%97%E0%B8%B5%E0%B9%88%2020%20%E0%B8%95%E0%B8%B8%E0%B8%A5%E0%B8%B2%E0%B8%84%E0%B8%A1%202565">19. คำสั่งสำนักนายกรัฐมนตรี ที่ 268/2565 แต่งตั้งคณะกรรมการขับเคลื่อนวาระแห่งชาติ ด้านการป้องกันและปราบปรามยาเสพติดและอาวุธปืน ลงวันที่ 20 ตุลาคม 2565.pdf</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://nccd.go.th/img/icons/file/pdf.png" alt="pdf"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://nccd.go.th/pdfjs/web/viewer.html?file=/storage/preview/page-attachment/42/676224084dc521JAelbnych.pdf?filename=%E0%B8%84%E0%B8%B3%E0%B8%AA%E0%B8%B1%E0%B9%88%E0%B8%87%E0%B8%AA%E0%B8%B3%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%20%E0%B8%97%E0%B8%B5%E0%B9%88%2020/2565%20%E0%B9%81%E0%B8%95%E0%B9%88%E0%B8%87%E0%B8%95%E0%B8%B1%E0%B9%89%E0%B8%87%E0%B8%84%E0%B8%93%E0%B8%B0%E0%B8%81%E0%B8%A3%E0%B8%A3%E0%B8%A1%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%AA%E0%B8%B2%E0%B8%99%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B9%80%E0%B8%9E%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B9%81%E0%B8%81%E0%B9%89%E0%B9%84%E0%B8%82%E0%B8%9B%E0%B8%B1%E0%B8%8D%E0%B8%AB%E0%B8%B2%E0%B8%A2%E0%B8%B2%E0%B9%80%E0%B8%AA%E0%B8%9E%E0%B8%95%E0%B8%B4%E0%B8%94%E0%B9%83%E0%B8%99%E0%B8%AA%E0%B8%96%E0%B8%B2%E0%B8%99%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%93%E0%B9%8C%E0%B9%82%E0%B8%84%E0%B8%A7%E0%B8%B4%E0%B8%94-19%20%E0%B8%A5%E0%B8%87%E0%B8%A7%E0%B8%B1%E0%B8%99%E0%B8%97%E0%B8%B5%E0%B9%88%2020%20%E0%B8%A1%E0%B8%81%E0%B8%A3%E0%B8%B2%E0%B8%84%E0%B8%A1%202565">20. คำสั่งสำนักนายกรัฐมนตรี ที่ 20/2565 แต่งตั้งคณะกรรมการประสานงานเพื่อแก้ไขปัญหายาเสพติดในสถานการณ์โควิด-19 ลงวันที่ 20 มกราคม 2565.pdf</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://nccd.go.th/img/icons/file/pdf.png" alt="pdf"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://nccd.go.th/pdfjs/web/viewer.html?file=/storage/preview/page-attachment/42/67622408da490i12zLWGWp3.pdf?filename=%E0%B8%84%E0%B8%B3%E0%B8%AA%E0%B8%B1%E0%B9%88%E0%B8%87%E0%B8%AA%E0%B8%B3%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%20%E0%B8%97%E0%B8%B5%E0%B9%88%20285/2562%20%E0%B8%88%E0%B8%B1%E0%B8%94%E0%B8%95%E0%B8%B1%E0%B9%89%E0%B8%87%E0%B8%A8%E0%B8%B9%E0%B8%99%E0%B8%A2%E0%B9%8C%E0%B8%AD%E0%B8%B3%E0%B8%99%E0%B8%A7%E0%B8%A2%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%9B%E0%B9%89%E0%B8%AD%E0%B8%87%E0%B8%81%E0%B8%B1%E0%B8%99%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%9B%E0%B8%A3%E0%B8%B2%E0%B8%9A%E0%B8%9B%E0%B8%A3%E0%B8%B2%E0%B8%A1%E0%B8%A2%E0%B8%B2%E0%B9%80%E0%B8%AA%E0%B8%9E%E0%B8%95%E0%B8%B4%E0%B8%94%E0%B9%81%E0%B8%AB%E0%B9%88%E0%B8%87%E0%B8%8A%E0%B8%B2%E0%B8%95%E0%B8%B4%20%E0%B8%A5%E0%B8%87%E0%B8%A7%E0%B8%B1%E0%B8%99%E0%B8%97%E0%B8%B5%E0%B9%88%204%20%E0%B8%95%E0%B8%B8%E0%B8%A5%E0%B8%B2%E0%B8%84%E0%B8%A1%202562">21. คำสั่งสำนักนายกรัฐมนตรี ที่ 285/2562 จัดตั้งศูนย์อำนวยการป้องกันและปราบปรามยาเสพติดแห่งชาติ ลงวันที่ 4 ตุลาคม 2562.pdf</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://nccd.go.th/img/icons/file/pdf.png" alt="pdf"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://nccd.go.th/pdfjs/web/viewer.html?file=/storage/preview/page-attachment/42/67622408b94a7AwCZTRJa2S.pdf?filename=%E0%B8%84%E0%B8%B3%E0%B8%AA%E0%B8%B1%E0%B9%88%E0%B8%87%E0%B8%AA%E0%B8%B3%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%20%E0%B8%97%E0%B8%B5%E0%B9%88%20156/2557%20%E0%B8%88%E0%B8%B1%E0%B8%94%E0%B8%95%E0%B8%B1%E0%B9%89%E0%B8%87%E0%B8%A8%E0%B8%B9%E0%B8%99%E0%B8%A2%E0%B9%8C%E0%B8%AD%E0%B8%B3%E0%B8%99%E0%B8%A7%E0%B8%A2%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%9B%E0%B9%89%E0%B8%AD%E0%B8%87%E0%B8%81%E0%B8%B1%E0%B8%99%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%9B%E0%B8%A3%E0%B8%B2%E0%B8%9A%E0%B8%9B%E0%B8%A3%E0%B8%B2%E0%B8%A1%E0%B8%A2%E0%B8%B2%E0%B9%80%E0%B8%AA%E0%B8%9E%E0%B8%95%E0%B8%B4%E0%B8%94%E0%B9%81%E0%B8%AB%E0%B9%88%E0%B8%87%E0%B8%8A%E0%B8%B2%E0%B8%95%E0%B8%B4%20%20%E0%B8%A5%E0%B8%87%E0%B8%A7%E0%B8%B1%E0%B8%99%E0%B8%97%E0%B8%B5%E0%B9%88%2018%20%E0%B8%95%E0%B8%B8%E0%B8%A5%E0%B8%B2%E0%B8%84%E0%B8%A1%202557">22. คำสั่งสำนักนายกรัฐมนตรี ที่ 156/2557 จัดตั้งศูนย์อำนวยการป้องกันและปราบปรามยาเสพติดแห่งชาติ ลงวันที่ 18 ตุลาคม 2557.pdf</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://nccd.go.th/img/icons/file/pdf.png" alt="pdf"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://nccd.go.th/pdfjs/web/viewer.html?file=/storage/preview/page-attachment/42/6762240950496VJXgRJc3tM.pdf?filename=%E0%B8%84%E0%B8%B3%E0%B8%AA%E0%B8%B1%E0%B9%88%E0%B8%87%E0%B8%AA%E0%B8%B3%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5%20%E0%B8%97%E0%B8%B5%E0%B9%88%20306/2553%20%E0%B8%9B%E0%B8%8F%E0%B8%B4%E0%B8%9A%E0%B8%B1%E0%B8%95%E0%B8%B4%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B9%80%E0%B8%97%E0%B8%A8%E0%B9%84%E0%B8%97%E0%B8%A2%E0%B9%80%E0%B8%82%E0%B9%89%E0%B8%A1%E0%B9%81%E0%B8%82%E0%B9%87%E0%B8%87%20%E0%B8%8A%E0%B8%99%E0%B8%B0%E0%B8%A2%E0%B8%B2%E0%B9%80%E0%B8%AA%E0%B8%9E%E0%B8%95%E0%B8%B4%E0%B8%94%E0%B8%A2%E0%B8%B1%E0%B9%88%E0%B8%87%E0%B8%A2%E0%B8%B7%E0%B8%99%20%20%20%20%20%20%E0%B8%A0%E0%B8%B2%E0%B8%A2%E0%B9%83%E0%B8%95%E0%B9%89%E0%B8%A2%E0%B8%B8%E0%B8%97%E0%B8%98%E0%B8%A8%E0%B8%B2%E0%B8%AA%E0%B8%95%E0%B8%A3%E0%B9%8C%205%20%E0%B8%A3%E0%B8%B1%E0%B9%89%E0%B8%A7%E0%B8%9B%E0%B9%89%E0%B8%AD%E0%B8%87%E0%B8%81%E0%B8%B1%E0%B8%99%20%E0%B8%A3%E0%B8%B0%E0%B8%A2%E0%B8%B0%E0%B8%97%E0%B8%B5%E0%B9%88%203%20(%E0%B8%9E%E0%B8%A4%E0%B8%A8%E0%B8%88%E0%B8%B4%E0%B8%81%E0%B8%B2%E0%B8%A2%E0%B8%99%202553%20-%20%20%E0%B8%81%E0%B8%B1%E0%B8%99%E0%B8%A2%E0%B8%B2%E0%B8%A2%E0%B8%99%202554)%20%20%E0%B8%A5%E0%B8%87%E0%B8%A7%E0%B8%B1%E0%B8%99%E0%B8%97%E0%B8%B5%E0%B9%88%2018%20%E0%B8%9E%E0%B8%A4%E0%B8%A8%E0%B8%88%E0%B8%B4%E0%B8%81%E0%B8%B2%E0%B8%A2%E0%B8%99%202553">23. คำสั่งสำนักนายกรัฐมนตรี ที่ 306/2553 ปฏิบัติการประเทศไทยเข้มแข็ง ชนะยาเสพติดยั่งยืน ภายใต้ยุทธศาสตร์ 5 รั้วป้องกัน ระยะที่ 3 (พฤศจิกายน 2553 - กันยายน 2554) ลงวันที่ 18 พฤศจิกายน 2553.pdf</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>คำสั่ง ระเบียบ ประกาศที่เกี่ยวข้อง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:list -->
+<ul class="wp-block-list"><!-- wp:list-item -->
+<li><a href="https://nccd.go.th/command1" target="_blank" rel="noreferrer noopener">คำสั่งสำนักนายกรัฐมนตรี</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://nccd.go.th/command1/45" target="_blank" rel="noreferrer noopener">คำสั่งคณะกรรมการ ป.ป.ส.</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://nccd.go.th/command1/68" target="_blank" rel="noreferrer noopener">คำสั่ง ศอ. ปส.</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://nccd.go.th/command1/89#" target="_blank" rel="noreferrer noopener">มติคณะรัฐมนตรีที่เกี่ยวข้อง</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://nccd.go.th/command1/49" target="_blank" rel="noreferrer noopener">คำสั่งร้อยใจรักษ์</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://nccd.go.th/command1/50" target="_blank" rel="noreferrer noopener">ประกาศคณะกรรมการ ปปส.</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://nccd.go.th/command1/51" target="_blank" rel="noreferrer noopener">ระเบียบคณะกรรมการ ปปส.</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li>แผนปฏิบัติการและการประเมินผล<!-- wp:list -->
+<ul class="wp-block-list"><!-- wp:list-item -->
+<li><a href="https://nccd.go.th/operation-direction-and-assessment" target="_blank" rel="noreferrer noopener">แผนการปฏิบัติการ ครส.</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://nccd.go.th/evaluation" target="_blank" rel="noreferrer noopener">เกณฑ์การประเมินผล</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://nccd.go.th/report" target="_blank" rel="noreferrer noopener">รายงานผลการดำเนินงาน</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li></li>
+<!-- /wp:list-item --></ul>
+<!-- /wp:list --></li>
+<!-- /wp:list-item --></ul>
+<!-- /wp:list -->
+
+<!-- wp:paragraph -->
+<p>หน้าที่และอำนาจ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:list {"ordered":true} -->
+<ol class="wp-block-list"><!-- wp:list-item -->
+<li>เร่งรัด กำกับดูแล ตรวจสอบ ติดตามประเมินผลการปฏิบัติการของสาวนราชการและองค์กรต่าง ๆ ที่เกี่ยวช้องทุกระดับ ตามนโยบายรัฐบาล และนโยบายและแผนระดับชาติว่าด้วยกระป้องกัน ปราบปราม และแก้ไขปัญหายาเสพติด</li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li>ให้คำปรึกษา แนะนำ ส่งเสริมและสนับสนุนการแก้ไขปัญหาอุปสรรคของหน่วยงานต่าง ๆ ในการดำเนินงานให้ประสบผลสำเร็จ</li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li>ประสานความร่วมมือจากหน่วยงานของรัฐ หน่วยงานภาคเอกชน และองค์กรภาคประชาชน เพื่อสนับสนุนการปฏิบัติ</li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li>แต่งตั้งคณะอนุกรรมการ คณะทำงาน หรือจัดตั้งศูนย์อำนวยการ ศูนย์ปฏิบัติการเพื่อช่วยเหลือการปฏิบัติงานได้ตามความเหมาะสม</li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li>เชิญผู้แทนส่วนราขการ หน่วยงานของรัฐ หรือบุคคลที่เกี่ยวข้องเข้าร่วมประชุมชี้แจง ข้อเท็จจริง ให้ข้อมูล รวมทั้งจัดส่งเอกสารที่เกี่ยวข้อง เพื่อประกอบการพิจารณาของคณะกรรมการ</li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li>พิจารณาให้ข้อเสนอแนะเกี่ยวกับการให้ความดีความชอบหรือโยกย้ายหรือลงโทษทางวินัยต่อข้าราชการ พนักงานส่วนท้องถิ่น พนักงานรัฐวิสาหกิจหรือพนักงานของหน่วยงานของรัฐ ซึ่งได้รับมอบหมายให้ปฏิบัติหน้าที่เกี่ยวกับการป้องกัน ปราบปราม และแก้ไขปัญหายาเสพติด หรือซึ่งเข้าไปเกี่ยวข้องกับการกระทำความผิดเกี่ยวกับยาเสพติด ตามที่เลขาธิการคณะกรรมการป้องกันและปราบปรามยาเสพติดเสนอ</li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li>รายงานผลการปฏิบัติงานและสถานการณ์ปัญหายาเสพติดให้นายกรัฐมนตรีและคณะรัฐมนตรีทราบทุกระยะ</li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li>ดำเนินการอื่นตามที่นายกรัฐมนตรีและคณะรัฐมนตรีมอบหมาย</li>
+<!-- /wp:list-item --></ol>
+<!-- /wp:list -->
+
+<!-- wp:image {"linkDestination":"custom"} -->
+<figure class="wp-block-image"><a href="https://phmc.coj.go.th/th/content/category/detail/id/8/cid/3575/iid/50545" target="_blank" rel="noreferrer noopener"><img src="https://image.jimcdn.com/app/cms/image/transf/none/path/s867332987e70275d/image/i88535e5e070d7372/version/1785192516/image.jpg" alt=""/></a></figure>
+<!-- /wp:image -->
+
+<!-- wp:table -->
+<figure class="wp-block-table"><table class="has-fixed-layout"><tbody><tr><td><strong>กฎหมายที่รัฐมนตรีว่าการกระทรวงมหาดไทยรักษาการ</strong>&nbsp;&nbsp;&nbsp;&nbsp;<strong>กฎหมายหลัก :</strong>&nbsp;&nbsp;<strong>พระราชบ</strong><strong>ัญญัติ</strong><strong>อาวุธปืน เครื่องกระสุนปืน วัตถุระเบิด ดอกไม้เพลิงและสิ่งเทียมอาวุธปืน พ.ศ. ๒๔๙๐</strong>&nbsp;&nbsp;&nbsp;<strong>สรุปสาระสำคัญของกฎหมาย :</strong>&nbsp;<strong><a href="https://www.customs.go.th/data_files/109d97af3fe0ed6449e18e3bdf35adb9.pdf" target="_blank" rel="noreferrer noopener">สรุปสาระสำคัญ พระราชบัญญัติอาวุธปืน เครื่องกระสุนปืน วัตถุระเบิด ดอกไม้เพลิงและสิ่งเทียมอาวุธปืน พ.ศ. ๒๔๙๐</a></strong>&nbsp;&nbsp;&nbsp;<strong>คำแปลภาษาอังกฤษ :&nbsp;<a href="http://web.krisdika.go.th/data//document/ext809/809905_0001.pdf" target="_blank" rel="noreferrer noopener">FIREARMS, AMMUNITION, EXPLOSIVES, FIREWORKS AND IMITATION FIREARMS ACT, B.E. 2490 (1947)</a></strong>&nbsp;&nbsp;&nbsp;<strong>หน่วยงานผู้รับผิดชอบ :</strong>&nbsp;<strong>ส่วนรักษาความความสงบเรียบร้อย ๑ (สรร.๑) สำนักการสอบสวนและนิติการ กรมการปกครอง โทร. ๐๒ ๓๕๖ ๙๕๔๒-๓</strong></td></tr></tbody></table></figure>
+<!-- /wp:table -->
+
+<!-- wp:table -->
+<figure class="wp-block-table"><table class="has-fixed-layout"><tbody><tr><td><strong>ลำดับ</strong></td><td><strong>ชื่อกฎหมาย</strong></td><td><strong>แก้ไขเพิ่มเติม<br>ครั้งที่</strong></td><td><strong>Download</strong></td></tr><tr><td><strong>๑.</strong></td><td>พระราชบัญญัติอาวุธปืน เครื่องกระสุนปืน วัตถุระเบิด&nbsp;ดอกไม้เพลิง และสิ่งเทียมอาวุธปืน&nbsp;พ.ศ. ๒๔๙๐&nbsp;(Update ล่าสุด)</td><td>&nbsp;</td><td><a href="https://www.krisdika.go.th/librarian/get?sysid=306653&amp;ext=pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>๒.</td><td>ประกาศคณะรักษาความสงบแห่งชาติ&nbsp;ฉบับที่ ๘๗/๒๕๕๗&nbsp;เรื่อง การแก้ไขเพิ่มเติมผู้รักษาการตามกฎหมายที่เกี่ยวข้องกับอำนาจหน้าที่ของเจ้าพนักงานตำรวจ</td><td>&nbsp;</td><td><a href="https://www.krisdika.go.th/librarian/get?sysid=710019&amp;ext=pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>๓.</td><td>พระราชบัญญัติอาวุธปืน เครื่องกระสุนปืน วัตถุระเบิด&nbsp;ดอกไม้เพลิง และสิ่งเทียมอาวุธปืน&nbsp;พ.ศ. ๒๔๙๐&nbsp;(Update ๑๑/๑๐/๒๕๔๓)</td><td>&nbsp;</td><td><a href="https://www.krisdika.go.th/librarian/get?sysid=711265&amp;ext=pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>๔.</td><td>พระราชบัญญัติอาวุธปืน เครื่องกระสุนปืน วัตถุระเบิด&nbsp;ดอกไม้เพลิง และสิ่งเทียมอาวุธปืน&nbsp;พ.ศ. ๒๔๙๐&nbsp;(ฉบับที่ ๘) พ.ศ. ๒๕๔๓</td><td>&nbsp;</td><td><a href="https://www.krisdika.go.th/librarian/get?sysid=311927&amp;ext=pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>๕.</td><td>พระราชบัญญัติอาวุธปืน เครื่องกระสุนปืน วัตถุระเบิด&nbsp;ดอกไม้เพลิง และสิ่งเทียมอาวุธปืน&nbsp;พ.ศ. ๒๔๙๐&nbsp;(Update ๒๔/๐๗/๒๕๓๐)</td><td>&nbsp;</td><td><a href="https://www.krisdika.go.th/librarian/get?sysid=315851&amp;ext=pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>๖.</td><td>พระราชบัญญัติอาวุธปืน เครื่องกระสุนปืน วัตถุระเบิด&nbsp;ดอกไม้เพลิง และสิ่งเทียมอาวุธปืน&nbsp;พ.ศ. ๒๔๙๐&nbsp;(ฉบับที่ ๘) พ.ศ. ๒๕๓๐</td><td>&nbsp;</td><td><a href="https://www.krisdika.go.th/librarian/get?sysid=320433&amp;ext=pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>๗.</td><td>พระราชบัญญัติอาวุธปืน เครื่องกระสุนปืน วัตถุระเบิด&nbsp;ดอกไม้เพลิง และสิ่งเทียมอาวุธปืน&nbsp;พ.ศ. ๒๔๙๐&nbsp;(Update ๐๑/๐๓/๒๕๒๒)</td><td>&nbsp;</td><td><a href="https://www.krisdika.go.th/librarian/get?sysid=315849&amp;ext=pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>๘.</td><td>พระราชบัญญัติอาวุธปืน เครื่องกระสุนปืน วัตถุระเบิด&nbsp;ดอกไม้เพลิง และสิ่งเทียมอาวุธปืน&nbsp;พ.ศ. ๒๔๙๐&nbsp;(ฉบับที่ ๗) พ.ศ. ๒๕๒๒</td><td>&nbsp;</td><td><a href="https://www.krisdika.go.th/librarian/get?sysid=306495&amp;ext=pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>๙.</td><td>พระราชบัญญัติอาวุธปืน เครื่องกระสุนปืน วัตถุระเบิด&nbsp;ดอกไม้เพลิง และสิ่งเทียมอาวุธปืน&nbsp;พ.ศ. ๒๔๙๐&nbsp;(Update ๒๑/๑๐/๒๕๑๙)</td><td>&nbsp;</td><td><a href="https://www.krisdika.go.th/librarian/get?sysid=315848&amp;ext=pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>๑๐.</td><td>คำสั่งของคณะปฏิรูปการปกครองแผ่นดิน&nbsp;ฉบับที่ ๔๔</td><td>&nbsp;</td><td><a href="https://www.krisdika.go.th/librarian/get?sysid=315668&amp;ext=pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>๑๒.</td><td>พระราชบัญญัติอาวุธปืน เครื่องกระสุนปืน วัตถุระเบิด&nbsp;ดอกไม้เพลิง และสิ่งเทียมอาวุธปืน&nbsp;พ.ศ. ๒๔๙๐&nbsp;(Update ๒๙/๐๘/๒๕๑๘)</td><td>&nbsp;</td><td><a href="https://www.krisdika.go.th/librarian/get?sysid=315845&amp;ext=pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>๑๓.</td><td>พระราชบัญญัติอาวุธปืน เครื่องกระสุนปืน วัตถุระเบิด&nbsp;ดอกไม้เพลิง และสิ่งเทียมอาวุธปืน&nbsp;พ.ศ. ๒๔๙๐&nbsp;(ฉบับที่ ๖) พ.ศ. ๒๕๑๘</td><td>&nbsp;</td><td><a href="https://www.krisdika.go.th/librarian/get?sysid=306494&amp;ext=pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>๑๔.</td><td>พระราชบัญญัติอาวุธปืน เครื่องกระสุนปืน วัตถุระเบิด&nbsp;ดอกไม้เพลิง และสิ่งเทียมอาวุธปืน&nbsp;พ.ศ. ๒๔๙๐&nbsp;(Update ๒๖/๐๖/๒๕๑๗)</td><td>&nbsp;</td><td><a href="https://www.krisdika.go.th/librarian/get?sysid=315843&amp;ext=pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>๑๕.</td><td>พระราชบัญญัติอาวุธปืน เครื่องกระสุนปืน วัตถุระเบิด&nbsp;ดอกไม้เพลิง และสิ่งเทียมอาวุธปืน&nbsp;พ.ศ. ๒๔๙๐&nbsp;(ฉบับที่ ๕) พ.ศ. ๒๕๑๗</td><td>&nbsp;</td><td><a href="https://www.krisdika.go.th/librarian/get?sysid=320432&amp;ext=pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>๑๖.</td><td>พระราชบัญญัติอาวุธปืน เครื่องกระสุนปืน วัตถุระเบิด&nbsp;ดอกไม้เพลิง และสิ่งเทียมอาวุธปืน&nbsp;พ.ศ. ๒๔๙๐&nbsp;(Update ๐๓/๑๐/๒๕๑๐)</td><td>&nbsp;</td><td><a href="https://www.krisdika.go.th/librarian/get?sysid=315842&amp;ext=pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>๑๗.</td><td>พระราชบัญญัติอาวุธปืน เครื่องกระสุนปืน วัตถุระเบิด&nbsp;ดอกไม้เพลิง และสิ่งเทียมอาวุธปืน&nbsp;พ.ศ. ๒๔๙๐&nbsp;(ฉบับที่ ๔) พ.ศ. ๒๕๑๐</td><td>&nbsp;</td><td><a href="https://www.krisdika.go.th/librarian/get?sysid=306493&amp;ext=pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>๑๘.</td><td>พระราชบัญญัติอาวุธปืน เครื่องกระสุนปืน วัตถุระเบิด&nbsp;ดอกไม้เพลิง และสิ่งเทียมอาวุธปืน&nbsp;พ.ศ. ๒๔๙๐&nbsp;(Update ๑๖/๐๙/๒๕๐๑)</td><td>&nbsp;</td><td><a href="https://www.krisdika.go.th/librarian/get?sysid=324987&amp;ext=pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>๑๙.</td><td>พระราชบัญญัติอาวุธปืน เครื่องกระสุนปืน วัตถุระเบิด&nbsp;ดอกไม้เพลิง และสิ่งเทียมอาวุธปืน&nbsp;พ.ศ. ๒๔๙๐&nbsp;(ฉบับที่ ๓) พ.ศ. ๒๕๐๑</td><td>&nbsp;</td><td><a href="https://www.krisdika.go.th/librarian/get?sysid=320431&amp;ext=pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>๒๐.</td><td>พระราชบัญญัติอาวุธปืน เครื่องกระสุนปืน วัตถุระเบิด&nbsp;ดอกไม้เพลิง และสิ่งเทียมอาวุธปืน&nbsp;พ.ศ. ๒๔๙๐&nbsp;(Update ๐๗/๐๑/๒๔๙๑)</td><td></td><td><a href="https://www.krisdika.go.th/librarian/get?sysid=315837&amp;ext=pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>๒๑.</td><td>พระราชบัญญัติอาวุธปืน เครื่องกระสุนปืน วัตถุระเบิด&nbsp;ดอกไม้เพลิง และสิ่งเทียมอาวุธปืน&nbsp;พ.ศ. ๒๔๙๐&nbsp;(ฉบับที่ ๒) พ.ศ. ๒๔๙๑</td><td>&nbsp;</td><td><a href="https://www.krisdika.go.th/librarian/get?sysid=306492&amp;ext=pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>๒๒.</td><td>พระราชบัญญัติอาวุธปืน เครื่องกระสุนปืน วัตถุระเบิด&nbsp;ดอกไม้เพลิง และสิ่งเทียมอาวุธปืน&nbsp;พ.ศ. ๒๔๙๐</td><td>&nbsp;</td><td><a href="https://www.krisdika.go.th/librarian/get?sysid=306491&amp;ext=pdf" target="_blank" rel="noreferrer noopener"></a></td></tr></tbody></table></figure>
+<!-- /wp:table -->
+
+<!-- wp:table -->
+<figure class="wp-block-table"><table class="has-fixed-layout"><tbody><tr><td>&nbsp;</td><td>&nbsp;&nbsp;&nbsp;<strong>กฎหมายรอง</strong></td></tr></tbody></table></figure>
+<!-- /wp:table -->
+
+<!-- wp:table -->
+<figure class="wp-block-table"><table class="has-fixed-layout"><tbody><tr><td colspan="2"><strong>ลำดับ</strong></td><td><strong>ชื่อกฎหมาย</strong></td><td><strong>Download</strong></td></tr><tr><td><strong><a></a>๑.</strong></td><td>&nbsp;</td><td><strong>พระราชกฤษฎีกา</strong></td><td>&nbsp;</td></tr><tr><td>&nbsp;</td><td>&nbsp;</td><td>&nbsp;</td><td></td></tr><tr><td>&nbsp;</td><td>&nbsp;</td><td>&nbsp;</td><td></td></tr><tr><td>&nbsp;</td><td>&nbsp;</td><td></td><td></td></tr><tr><td><strong><a></a>๒.</strong></td><td>&nbsp;</td><td><strong>กฎกระทรวง</strong></td><td>&nbsp;</td></tr><tr><td></td><td>๒.๑</td><td>กฎกระทรวง (พ.ศ. ๒๔๙๐) ออกตามความในพระราชบัญญัติอาวุธปืน เครื่องกระสุนปืน วัตถุระเบิดดอกไม้เพลิง และสิ่งเทียมอาวุธปืน พ.ศ. ๒๔๙๐</td><td><a href="http://mis.dopa.go.th/dopalaw/law_file/654_03032017266110900.9314.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td></td><td>๒.๒</td><td>กฎกระทรวง การมีและใช้อาวุธปืน เครื่องกระสุนปืน วัตถุระเบิด ดอกไม้เพลิง และสิ่งเทียมอาวุธปืน ของหน่วยราชการและรัฐวิสาหกิจ และการมอบให้ประชาชนมีและใช้เพื่อช่วยเหลือราชการ พ.ศ. ๒๕๕๓</td><td><img src="http://www.law.moi.go.th/addobe.gif" width="17" height="17"><a href="http://mis.dopa.go.th/dopalaw/law_file/655_030320171117390715.125.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๒.๓</td><td>กฎกระทรวง ฉบับที่ ๒ (พ.ศ. ๒๔๙๐) ออกตามความในพระราชบัญญัติอาวุธปืน เครื่องกระสุนปืน วัตถุระเบิดดอกไม้เพลิง และสิ่งเทียมอาวุธปืน พ.ศ. ๒๔๙๐</td><td><a href="http://mis.dopa.go.th/dopalaw/law_file/656_030320171120644658.3972.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๒.๔</td><td>กฎกระทรวง ฉบับที่ ๓ (พ.ศ. ๒๔๙๑) ออกตามความในพระราชบัญญัติอาวุธปืน เครื่องกระสุนปืน วัตถุระเบิดดอกไม้เพลิง และสิ่งเทียมอาวุธปืน พ.ศ. ๒๔๙๐</td><td><a href="http://mis.dopa.go.th/dopalaw/law_file/657_03032017856177099.83982.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๒.๕</td><td>กฎกระทรวง ฉบับที่ ๔ (พ.ศ. ๒๔๙๒) ออกตามความในพระราชบัญญัติอาวุธปืน เครื่องกระสุนปืน วัตถุระเบิดดอกไม้เพลิง และสิ่งเทียมอาวุธปืน พ.ศ. ๒๔๙๐</td><td><a href="http://mis.dopa.go.th/dopalaw/law_file/658_03032017850630835.17747.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๒.๖</td><td>กฎกระทรวง ฉบับที่ ๕ (พ.ศ. ๒๔๙๖) ออกตามความในพระราชบัญญัติอาวุธปืน เครื่องกระสุนปืน วัตถุระเบิดดอกไม้เพลิง และสิ่งเทียมอาวุธปืน พ.ศ. ๒๔๙๐</td><td><a href="http://mis.dopa.go.th/dopalaw/law_file/659_03032017146776749.62762.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๒.๗</td><td>กฎกระทรวง ฉบับที่ ๖ (พ.ศ. ๒๕๐๑) ออกตามความในพระราชบัญญัติอาวุธปืน เครื่องกระสุนปืน วัตถุระเบิดดอกไม้เพลิง และสิ่งเทียมอาวุธปืน พ.ศ. ๒๔๙๐</td><td><a href="http://mis.dopa.go.th/dopalaw/law_file/660_030320171036682531.2635.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๒.๘</td><td>กฎกระทรวง ฉบับที่ ๘ (พ.ศ. ๒๕๑๒) ออกตามความในพระราชบัญญัติอาวุธปืน เครื่องกระสุนปืน วัตถุระเบิดดอกไม้เพลิง และสิ่งเทียมอาวุธปืน พ.ศ. ๒๔๙๐</td><td><a href="http://mis.dopa.go.th/dopalaw/law_file/661_030320171444802441.7167.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๒.๙</td><td>กฎกระทรวง ฉบับที่ ๑๑ (พ.ศ. ๒๕๒๒) ออกตามความในพระราชบัญญัติอาวุธปืน เครื่องกระสุนปืน วัตถุระเบิดดอกไม้เพลิง และสิ่งเทียมอาวุธปืน พ.ศ. ๒๔๙๐</td><td><a href="http://mis.dopa.go.th/dopalaw/law_file/662_030320171200764989.5832.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๒.๑๐</td><td>กฎกระทรวง ฉบับที่ ๑๔ (พ.ศ. ๒๕๓๘) ออกตามความในพระราชบัญญัติอาวุธปืน เครื่องกระสุนปืน วัตถุระเบิดดอกไม้เพลิง และสิ่งเทียมอาวุธปืน พ.ศ. ๒๔๙๐</td><td><a href="http://mis.dopa.go.th/dopalaw/law_file/663_030320173786826.898784.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๒.๑๑</td><td>กฎกระทรวง ฉบับที่ ๑๕ (พ.ศ. ๒๕๔๕) ออกตามความในพระราชบัญญัติอาวุธปืน เครื่องกระสุนปืน วัตถุระเบิดดอกไม้เพลิง และสิ่งเทียมอาวุธปืน พ.ศ. ๒๔๙๐</td><td><a href="http://mis.dopa.go.th/dopalaw/law_file/664_030320171195270838.3436.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๒.๑๒</td><td>กฎกระทรวง ฉบับที่ ๑๗ (พ.ศ. ๒๕๕๐) ออกตามความในพระราชบัญญัติอาวุธปืน เครื่องกระสุนปืน วัตถุระเบิดดอกไม้เพลิง และสิ่งเทียมอาวุธปืน พ.ศ. ๒๔๙๐</td><td><a href="http://mis.dopa.go.th/dopalaw/law_file/665_03032017955631983.41555.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td></td><td>๒.๑๓</td><td>กฎกระทรวง (พ.ศ. ๒๕๐๓) ออกตามความในพระราชบัญญัติอาวุธปืน เครื่องกระสุนปืน วัตถุระเบิดดอกไม้เพลิง และสิ่งเทียมอาวุธปืน พ.ศ. ๒๔๙๐</td><td><img src="http://www.law.moi.go.th/addobe.gif" width="17" height="17"><a href="http://mis.dopa.go.th/dopalaw/law_file/666_0303201797829341.311694.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td><strong><a></a>๓.</strong></td><td>&nbsp;</td><td><strong>ประกาศ</strong></td><td>&nbsp;</td></tr><tr><td></td><td>๓.๑</td><td>ประกาศกระทรวงมหาดไทย เรื่อง แต่งตั้งนายทะเบียนเจ้าพนักงาน และเจ้าหน้าที่ ตามพระราชบัญญัติอาวุธปืน เครื่องกระสุนปืน วัตถุระเบิด ดอกไม้เพลิง และสิ่งเทียมอาวุธปืน พ.ศ. ๒๔๙๐</td><td><a href="http://mis.dopa.go.th/dopalaw/law_file/671_03032017121869160.43086.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td></td><td>๓.๒</td><td>ประกาศกระทรวงมหาดไทย เรื่อง แต่งตั้งเจ้าพนักงานออกหนังสืออนุญาตให้ย้ายวัตถุระเบิด ตามพระราชบัญญัติอาวุธปืน เครื่องกระสุนปืน วัตถุระเบิด ดอกไม้เพลิง และสิ่งเทียมอาวุธปืน พ.ศ. ๒๔๙๐</td><td><a href="http://mis.dopa.go.th/dopalaw/law_file/672_03032017665707618.43897.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๓.๓</td><td>ประกาศกระทรวงมหาดไทย เรื่อง แต่งตั้งนายทะเบียนเจ้าพนักงาน และเจ้าหน้าที่ตามพระราชบัญญัติอาวุธปืนเครื่องกระสุนปืน วัตถุระเบิด ดอกไม้เพลิง และสิ่งเทียมอาวุธปืน พ.ศ. ๒๔๙๐</td><td><a href="http://mis.dopa.go.th/dopalaw/law_file/673_03032017536096603.46412.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๓.๔</td><td>ประกาศกระทรวงมหาดไทย เรื่อง พระราชบัญญัติอาวุธปืน เครื่องกระสุนปืน วัตถุระเบิด ดอกไม้เพลิง และสิ่งเทียมอาวุธปืน (ฉบับที่ ๘) พ.ศ. ๒๕๓๐</td><td><a href="http://mis.dopa.go.th/dopalaw/law_file/674_03032017655406989.12099.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td></td><td>๓.๕</td><td>ประกาศกระทรวงกลาโหม กระทรวงมหาดไทย กระทรวงสาธารณสุข กระทรวงแรงงาน และกระทรวงอุตสาหกรรม เรื่อง หลักเกณฑ์การควบคุมและการกำกับดูแลการผลิตการค้าครอบครอง การขนส่งดอกไม้เพลิงและวัตถุดิบที่ใช้ ในการผลิตดอกไม้เพลิง พ.ศ. ๒๕๔๗</td><td><a href="http://mis.dopa.go.th/dopalaw/law_file/675_03032017678635668.08971.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td><strong><a></a>๔.</strong></td><td>&nbsp;</td><td><strong>ระเบียบ</strong></td><td>&nbsp;</td></tr><tr><td>&nbsp;</td><td>๔.๑</td><td>ระเบียบกระทรวงมหาดไทย ว่าด้วยการพาและใช้อาวุธปืนของพนักงานฝ่ายปกครอง พ.ศ. ๒๕๔๖</td><td><a href="http://mis.dopa.go.th/dopalaw/law_file/668_03032017263788824.50546.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๔.๒</td><td>ระเบียบกระทรวงมหาดไทย ว่าด้วยการพาและใช้อาวุธปืนของพนักงานฝ่ายปกครอง (ฉบับที่ ๒) พ.ศ. ๒๕๕๑</td><td><img src="http://www.law.moi.go.th/addobe.gif" width="17" height="17"><a href="http://mis.dopa.go.th/dopalaw/law_file/669_03032017130154318.63764.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๔.๓</td><td>&nbsp;</td><td></td></tr><tr><td><strong><a></a>๕.</strong></td><td>&nbsp;</td><td><strong>ข้อบังคับ</strong></td><td>&nbsp;</td></tr><tr><td>&nbsp;</td><td>&nbsp;</td><td>&nbsp;</td><td></td></tr><tr><td>&nbsp;</td><td>&nbsp;</td><td>&nbsp;</td><td></td></tr><tr><td>&nbsp;</td><td>&nbsp;</td><td>&nbsp;</td><td>&nbsp;</td></tr><tr><td><strong><a></a>๖.</strong></td><td>&nbsp;</td><td><strong>คำสั่ง</strong></td><td>&nbsp;</td></tr><tr><td>&nbsp;</td><td>๖.๑</td><td>คำสั่งคณะปฏิรูปการปกครองแผ่นดิน ฉบับที่ ๑๒</td><td><a href="http://mis.dopa.go.th/dopalaw/law_file/677_03032017836796796.2811.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๖.๒</td><td>คำสั่งกระทรวงมหาดไทย ที่ ๑๕/๒๕๔๘ เรื่อง การมอบอำนาจให้ปลัดกระทรวงมหาดไทย และผู้ว่าราชการจังหวัดปฏิบัติราชการแทนรัฐมนตรีว่าการกระทรวงมหาดไทย</td><td><a href="http://mis.dopa.go.th/dopalaw/law_file/678_030320171101429732.7067.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๖.๓</td><td>คำสั่งกระทรวงมหาดไทย ที่ ๑๐๘/๒๕๓๕ เรื่อง จำกัดการออกใบอนุญาตให้บุคคลสั่ง หรือนำเข้าซึ่งอาวุธปืนบางชนิด</td><td><a href="http://mis.dopa.go.th/dopalaw/law_file/679_0303201752537780.246965.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๖.๔</td><td>คำสั่งกระทรวงมหาดไทย ที่ ๒๖๐/๒๕๓๕ เรื่อง กำหนดชนิดประเภทอาวุธปืนสั้นที่ใช้ในการกีฬา</td><td><a href="http://mis.dopa.go.th/dopalaw/law_file/680_03032017423380532.10229.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๖.๕</td><td>คำสั่งกระทรวงมหาดไทย ที่ ๒๗๐/๒๕๑๓ เรื่อง แก้ไขเพิ่มเติมคำสั่งที่ ๖๗๔/๒๔๙๐ และหนังสือกระทรวง มหาดไทย ที่ ๑๕๘๔๕/๒๕๐๐</td><td><a href="http://mis.dopa.go.th/dopalaw/law_file/681_03032017570365751.7686.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๖.๖</td><td>คำสั่งกระทรวงมหาดไทย ที่ ๒๘๙/๒๕๕๒ เรื่อง การออกใบอนุญาตร้านค้าอาวุธปืน เครื่องกระสุนปืน ร้านประกอบ ซ่อมแซมเปลี่ยนลักษณะอาวุธปืนและกำหนดจำนวนอาวุธปืน เครื่องกระสุนปืนสำหรับการค้า</td><td><a href="http://mis.dopa.go.th/dopalaw/law_file/682_03032017735652489.50702.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๖.๗</td><td>คำสั่งกระทรวงมหาดไทย ที่ ๔๒๑/๒๕๕๒ เรื่อง แก้ไขเพิ่มเติมคำสั่งกระทรวงมหาดไทย ที่ ๒๘๙/๒๕๕๒ ลงวันที่ ๘ กันยายน ๒๕๕๒</td><td><a href="http://mis.dopa.go.th/dopalaw/law_file/683_03032017199028807.26741.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๖.๘</td><td>คำสั่งที่ ๔๓๖/๒๕๙๘ เรื่อง อนุญาตให้นายทะเบียนท้องที่กำหนดเงื่อนไขลงในใบอนุญาตว่าด้วยการเก็บรักษาวัตถุระเบิด</td><td><a href="http://mis.dopa.go.th/dopalaw/law_file/684_03032017664889117.43744.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๖.๙</td><td>คำสั่งที่ ๖๗๔/๒๔๙๐ เรื่อง ระเบียบการปฏิบัติตามพระราชบัญญัติอาวุธปืน เครื่องกระสุนปืน วัตถุระเบิด</td><td><a href="http://mis.dopa.go.th/dopalaw/law_file/685_03032017961948269.96622.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td><strong><a></a>๗.</strong></td><td>&nbsp;</td><td><strong>คู่มือการปฏิบัติงาน</strong></td><td>&nbsp;</td></tr><tr><td>&nbsp;</td><td>๗.๑</td><td>คู่มือปฏิบัติงานอาวุธปืน พ.ศ. 2555 เล่มที่ 1 (ฉบับปรับปรุง)</td><td><a href="http://203.114.121.13:8085/ebook/view.jsp?Open_Book=yes&amp;id_PageBook=34130&amp;booktype=5" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๗.๒</td><td>คู่มือปฎิบัติงานอาวุธปืน พ.ศ. 2548 เล่มที่ 1 ฉบับรวมกฎหมาย อาวุธปืน</td><td><a href="http://203.114.121.13:8085/ebook/view.jsp?Open_Book=yes&amp;id_PageBook=11131&amp;booktype=5" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๗.๓</td><td>คู่มือปฎิบัติงานอาวุธปืน พ.ศ. 2548 เล่มที่ 2 ฉบับรวมหนังสือสั่งการ</td><td><a href="http://203.114.121.13:8085/ebook/view.jsp?Open_Book=yes&amp;id_PageBook=11300&amp;booktype=5" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๗.๔</td><td>คู่มือปฎิบัติงานอาวุธปืน พ.ศ. 2548 เล่มที่ 3 ฉบับรวมหนังสือสั่งการ</td><td><a href="http://203.114.121.13:8085/ebook/view.jsp?Open_Book=yes&amp;id_PageBook=11664&amp;booktype=5" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๗.๕</td><td>คู่มือปฏิบัติงานอาวุธปืน พ.ศ.2555 เล่มที่ 4 (ฉบับรวมกฏหมายอาวุธปืนและหนังสือสั่งการ)</td><td><a href="http://203.114.121.13:8085/ebook/view.jsp?Open_Book=yes&amp;id_PageBook=33753&amp;booktype=5" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๗.๖</td><td>หนังสือสั่งการเกี่ยวกับการขออนุญาตซื้อ มี ใช้ ย้าย และการเก็บรักษาวัตถุระเบิด</td><td><a href="http://www.law.moi.go.th/Manual%20Explosives.html" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td></td><td>&nbsp;</td><td>&nbsp;</td></tr><tr><td><strong><a></a>๘.</strong></td><td>&nbsp;</td><td><strong>ข้อหารือเกี่ยวกับการปฏิบัติงาน</strong></td><td>&nbsp;</td></tr><tr><td></td><td>๘.๑</td><td>การขออนุญาตย้ายสถานที่ทำการค้าอาวุธปืนข้ามเขตท้องที่จังหวัด&nbsp;(คกก.พิจารณาร่างกฎหมายของ มท. คณะที่ ๑ ครั้งที่ ๓๘/๒๕๖๒)</td><td><a href="http://www.law.moi.go.th/pdf/1_2562_08_21_38t.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๘.๒</td><td>การขออนุมัติรับโอนกิจการร้านค้าอาวุธปืน&nbsp;(คกก.พิจารณาร่างกฎหมายของ มท. คณะที่ ๑ ครั้งที่ ๓๘/๒๕๖๒)</td><td><a href="http://www.law.moi.go.th/pdf/1_2562_08_21_38t.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td></td><td>๘.๓</td><td>แนวทางปฏิบัติในการจำหน่ายอาวุธปืนของโรงงานผลิตอาวุธปืนเอกชนภายในประเทศ (คกก.พิจารณาร่างกฎหมายของ มท. คณะที่ ๑ ครั้งที่ ๗/๒๕๕๙)</td><td><a href="http://www.law.moi.go.th/pdf/1_2559_11_2_7y.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๘.๔</td><td>การพิจารณาอุทธรณ์การขออนุญาตซื้อ มี ใช้ และย้ายวัตถุระเบิด&nbsp;(คกก.พิจารณาร่างกฎหมายของ มท. คณะที่ ๑ ครั้งที่ ๑๙/๒๕๖๒)</td><td><a href="http://www.law.moi.go.th/pdf/1_2562_03_06_19t.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td></td><td>๘.๕</td><td>การเพิกถอนใบอนุญาตให้มีและใช้อาวุธปืน (แบบ ป.๔) (คกก.พิจารณาร่างกฎหมายของ มท. คณะที่ ๑ ครั้งที่ ๑๙/๒๕๖๒)</td><td><a href="http://www.law.moi.go.th/pdf/1_2562_03_06_19t.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๘.๖</td><td>การขออนุญาตแปรสภาพร้านค้าอาวุธปืนจากประเภทบุคคลธรรมดาเป็นนิติบุคคลประเภทห้างหุ้นส่วนจำกัด&nbsp;(คกก.พิจารณาร่างกฎหมายของ มท. คณะที่ ๑ ครั้งที่ ๓๘/๒๕๖๑)</td><td><a href="http://www.law.moi.go.th/pdf/1_2561_08_15_38t.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๘.๗</td><td>ข้อหารือการอุทธรณ์คำสั่งทางปกครองกรณีผู้บัญชาการตำรวจแห่งชาติที่มีคำสั่ง ไม่อนุญาตให้ต่อใบอนุญาตให้มีอาวุธปืนติดตัวทั่วอาณาจักร&nbsp;(คกก.พิจารณาร่างกฎหมายของ มท. คณะที่ ๑ ครั้งที่ ๑๕/๒๕๕๘)</td><td><a href="http://www.law.moi.go.th/pdf/1_2558_3_18_15y.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๘.๘</td><td>ข้อหารือการขอเปลี่ยนตัวกรรมการผู้จัดการในใบอนุญาตให้จำหน่ายอาวุธปืนและ เครื่องกระสุนปืนสำหรับการค้า&nbsp;(คกก.พิจารณาร่างกฎหมายของ มท. คณะที่ ๑ ครั้งที่ ๓๒/๒๕๕๗)</td><td><a href="http://www.law.moi.go.th/pdf/1_2557_7_21_32y.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๘.๙</td><td>หารือการขออนุมัติแปรสภาพร้านค้าอาวุธปืนจากห้างหุ้นส่วนจำกัดเป็นบริษัทจำกัด</td><td><a href="http://www.law.moi.go.th/pdf/1_2554_8_08_49_.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๘.๑๐</td><td>การตีความในมาตรา ๕๒ แห่งพระราชบัญญัติอาวุธปืน เครื่องกระสุนปืน ฯลฯ พุทธศักราช ๒๔๗๗ (ความเห็น คกก.กฤษฎีกา เรื่องเสร็จที่ ๒๙/๒๔๗๙)</td><td><a href="http://web.krisdika.go.th/data/comment/comment2/2479/c2_0029_2479.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๘.๑๑</td><td>บันทึกเรื่อง ขอให้ตีความมาตรา ๑๘ แห่งพระราชบัญญัติอาวุธปืน ฯลฯ พ.ศ. ๒๔๗๗ (ความเห็น คกก.กฤษฎีกา เรื่องเสร็จที่ ๑๐๓/๒๔๘๐)</td><td><a href="http://web.krisdika.go.th/data/comment/comment2/2480/c2_0103_2480.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๘.๑๒</td><td>ตีความตามมาตรา ๖๑ แห่ง พระราชบัญญัติอาวุธปืน เครื่องกระสุนปืน วัตถุระเบิด ดอกไม้เพลิงและสิ่งเทียมอาวุธปืน พุทธศักราช ๒๘๙๐ (ความเห็น คกก.กฤษฎีกา เรื่องเสร็จที่ ๘/๒๔๙๑)</td><td><a href="http://web.krisdika.go.th/data/comment/comment2/2491/c2_0008_2491.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๘.๑๓</td><td>ขายทอดตลาดอาวุธปืนไม่มีทะเบียนที่ตกเป็นของแผ่นดิน (ความเห็น คกก.กฤษฎีกา เรื่องเสร็จที่ ๑๔/๒๕๐๙)</td><td><a href="http://web.krisdika.go.th/data/comment/comment2/2509/c2_0014_2509.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๘.๑๔</td><td>ทางปฏิบัติเกี่ยวกับอาวุธปืนต้องห้าม (ความเห็น คกก.กฤษฎีกา เรื่องเสร็จที่ ๗๔/๒๕๑๒)</td><td><a href="http://web.krisdika.go.th/data/comment/comment2/2512/c2_0074_2512.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๘.๑๕</td><td>หารือการปฏิบัติตามพระราชบัญญัติอาวุธปืน ฯลฯ พุทธศักราช ๒๔๙๐ (การรับโอนมรดกอาวุธปืน) (ความเห็น คกก.กฤษฎีกา เรื่องเสร็จที่ ๙๙/๒๕๑๒)</td><td><a href="http://web.krisdika.go.th/data/comment/comment2/2512/c2_0099_2512.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๘.๑๖</td><td>การตีความปัญหากฎหมายตามพระราชบัญญัติอาวุธปืน ฯ (นิติบุคคลยื่นคำขออนุญาต) (ความเห็น คกก.กฤษฎีกา เรื่องเสร็จที่ ๒๑๗/๒๕๒๒)</td><td><a href="http://web.krisdika.go.th/data/comment/comment2/2522/c2_0217_2522.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๘.๑๗</td><td>การออกกฎกระทรวงในกรณีที่มีการแก้ไขแม่บท (มาตรา ๖ แห่งพระราชบัญญัติอาวุธปืนเครื่องกระสุนปืน วัตถุระเบิด ดอกไม้เพลิง และสิ่งเทียมอาวุธปืน พุทธศักราช ๒๔๙๐) (ความเห็น คกก.กฤษฎีกา เรื่องเสร็จที่ ๓๕๘/๒๕๒๒)</td><td><a href="http://web.krisdika.go.th/data/comment/comment1/2522/c1_0358_2522.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๘.๑๘</td><td>การปฏิบัติตามพระราชบัญญัติอาวุธปืน เครื่องกระสุนปืน วัตถุระเบิด ดอกไม้เพลิงและสิ่งเทียมอาวุธปืน (ฉบับที่ ๗) พุทธศักราช ๒๕๒๒ (ความเห็น คกก.กฤษฎีกา เรื่องเสร็จที่ ๒๗๘/๒๕๒๓)</td><td><a href="http://web.krisdika.go.th/data/comment/comment2/2523/c2_0278_2523.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๘.๑๙</td><td>หารือการขออนุญาตซื้อเครื่องยิงตะปู(ปัญหาตามพระราชบัญญัติอาวุธปืนฯ พ.ศ. ๒๔๙๐) (ความเห็น คกก.กฤษฎีกา เรื่องเสร็จที่ ๓๕๙/๒๕๒๕)</td><td><a href="http://web.krisdika.go.th/data/comment/comment2/2525/c2_0359_2525.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๘.๒๐</td><td>หารือปัญหาข้อกฎหมายเกี่ยวกับการออกกฎกระทรวงตามความในพระราชบัญญัติอาวุธปืน เครื่องกระสุนปืน วัตถุระเบิดดอกไม้เพลิง และสิ่งเทียมอาวุธปืน พ.ศ. ๒๔๙๐ (ความเห็น คกก.กฤษฎีกา เรื่องเสร็จที่ ๕๖/๒๕๓๒)</td><td><a href="http://web.krisdika.go.th/data/comment/comment2/2532/c2_0056_2532.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๘.๒๑</td><td>ขอคำวินิจฉัยข้อกฎหมายกรณีการออกใบอนุญาตให้ส่วนราชการทหารมีและใช้อาวุธปืน (ความเห็น คกก.กฤษฎีกา เรื่องเสร็จที่ ๗๘๘/๒๕๔๒)</td><td><a href="http://web.krisdika.go.th/data/comment/comment2/2542/c2_0788_2542.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๘.๒๒</td><td>การเรียกค่าเสียหายกรณีอาวุธปืนของสำนักงานตำรวจแห่งชาติสูญหาย (ความเห็น คกก.กฤษฎีกา เรื่องเสร็จที่ ๕๖๒/๒๕๔๕)</td><td><a href="http://web.krisdika.go.th/data/comment/comment2/2545/c2_0562_2545.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๘.๒๓</td><td>ขอหารือข้อปฏิบัต ิ(การเก็บรักษาและจำหน่ายอาวุธปืนและเครื่องกระสุนปืนที่ใช้สำหรับหมู่บ้านอาสาพัฒนาและป้องกันตนเอง ๒๕๒๔) (ความเห็น คกก.กฤษฎีกา เรื่องเสร็จที่ ๓๓๑/๒๕๔๖)</td><td><a href="http://web.krisdika.go.th/data/comment/comment2/2546/c2_0331_2546.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๘.๒๔</td><td>ขอหารือข้อปฏิบัติ (กระทรวงมหาดไทยว่าด้วยการเบิกจ่าย การเก็บรักษา และการจำหน่ายอาวุธปืน และเครื่องกระสุนปืนที่ใช้สำหรับหมู่บ้านอาสาพัฒนาและป้องกันตนเอง พ.ศ. ๒๕๒๔ จะขัดแย้งกับระเบียบสำนักนายกรัฐมนตรีว่าด้วยหลักเกณฑ์การปฏิบัติเกี่ยวกับความรับผิดทางละเมิดของเจ้าหน้าที่ พ.ศ. ๒๕๓๙ หรือไม่) (ความเห็น คกก.กฤษฎีกา เรื่องเสร็จที่ ๕๕๓/๒๕๔๗)</td><td><a href="http://web.krisdika.go.th/data/comment/comment2/2547/c2_0553_2547.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๘.๒๕</td><td>หารือข้อกฎหมาย อาวุธปืนที่ประชาชนนำมามอบให้แก่ทางราชการตามพระราชบัญญัติยกเว้นความรับผิดทางอาญาให้แก่ผู้นำอาวุธปืน เครื่องกระสุนปืน หรือวัตถุระเบิดที่ไม่ได้รับอนุญาตหรือที่กฎหมายห้ามออกใบอนุญาตมามอบให้แก่ทางราชการ พ.ศ. ๒๕๔๖ ซึ่งตกเป็นของแผ่นดินแล้วนั้น กระทรวงมหาดไทย ซึ่งเป็นหน่วยงานที่รับผิดชอบในการดำเนินการตามพระราชบัญญัติดังกล่าว จะสามารถขายทอดตลาดอาวุธปืนแก๊ปซึ่งทางราชการไม่ได้ใช้ประโยชน์ และนำส่งเงินเป็นรายได้ของแผ่นดินตามระเบียบสำนักนายกรัฐมนตรีว่าด้วยการพัสดุ พ.ศ. ๒๕๓๕ ได้หรือไม่ อย่างไร (ความเห็น คกก.กฤษฎีกา เรื่องเสร็จที่ ๒๔๖/๒๕๔๘)</td><td><a href="http://web.krisdika.go.th/data/comment/comment2/2548/c2_0246_2548.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๘.๒๖</td><td>กระทรวงมหาดไทย หารือข้อกฎหมายและแนวทางปฏิบัติตามพระราชบัญญัติอาวุธปืนฯ พ.ศ. ๒๔๙๐ (ความเห็น คกก.กฤษฎีกา เรื่องเสร็จที่ ๘๗๒/๒๕๕๐)</td><td><a href="http://web.krisdika.go.th/data/comment/comment2/2550/c2_0872_2550.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๘.๒๗</td><td>กระทรวงมหาดไทย ขอหารือ BB GUN เป็นอาวุธปืนตามพระราชบัญญัติอาวุธปืนฯ พ.ศ. ๒๔๙๐ หรือไม่ (ความเห็น คกก.กฤษฎีกา เรื่องเสร็จที่ ๘๔๖/๒๕๕๑)</td><td><a href="http://web.krisdika.go.th/data/comment/comment2/2551/c2_0846_2551.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๘.๒๘</td><td>กรมการปกครอง หารือการขอออกใบอนุญาตให้สั่งหรือนำเข้าอาวุธปืนของกรมที่ดิน (ความเห็น คกก.กฤษฎีกา เรื่องเสร็จที่ ๓๐/๒๕๕๒)</td><td><a href="http://web.krisdika.go.th/data/comment/comment2/2552/c2_0030_2552.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๘.๒๙</td><td>กระทรวงมหาดไทย หารือข้อกฎหมายและแนวทางปฏิบัติตามพระราชบัญญัติตามพระราชบัญญัติอาวุธปืนฯ พ.ศ. ๒๔๙๐ (ความเห็น คกก.กฤษฎีกา เรื่องเสร็จที่ ๑๖๑/๒๕๕๒)</td><td><a href="http://web.krisdika.go.th/data/comment/comment2/2552/c2_0161_2552.pdf" target="_blank" rel="noreferrer noopener"></a></td></tr><tr><td>&nbsp;</td><td>๘.๓๐</td><td>สำนักงานตำรวจแห่งชาติ หารือปัญหาข้อกฎหมายเกี่ยวกับการขอใบอนุญาตมีอาวุธปืนติดตัวทั่วราชอาณาจักร (แบบ ป.12) (ความเห็น คกก.กฤษฎีกา เรื่องเสร็จที่ ๔๔/๒๕๕๖)</td><td><img src="http://www.law.moi.go.th/addobe.gif" width="17" height="17"></td></tr><tr><td>&nbsp;</td><td>&nbsp;</td><td>&nbsp;</td><td><img src="http://www.law.moi.go.th/addobe.gif" width="17" height="17"></td></tr><tr><td>&nbsp;</td><td>&nbsp;</td><td>&nbsp;</td><td><img src="http://www.law.moi.go.th/addobe.gif" width="17" height="17"></td></tr><tr><td>&nbsp;</td><td>&nbsp;</td><td>&nbsp;</td><td><img src="http://www.law.moi.go.th/addobe.gif" width="17" height="17"></td></tr><tr><td>&nbsp;</td><td>&nbsp;</td><td>&nbsp;</td><td><img src="http://www.law.moi.go.th/addobe.gif" width="17" height="17"></td></tr><tr><td></td><td></td><td></td><td><img src="http://www.law.moi.go.th/addobe.gif" width="17" height="17"></td></tr><tr><td><strong><a></a>๙.</strong></td><td>&nbsp;</td><td><strong>คำพิพากษา/คำสั่ง (ศาลรัฐธรรมนูญ/ศาลปกครอง/ศาลยุติธรรม)</strong></td><td>&nbsp;</td></tr><tr><td>&nbsp;</td><td>&nbsp;</td><td>&nbsp;</td><td>&nbsp;</td></tr><tr><td>&nbsp;</td><td>&nbsp;</td><td>&nbsp;</td><td>&nbsp;</td></tr><tr><td>&nbsp;</td><td>&nbsp;</td><td>&nbsp;</td><td>&nbsp;</td></tr><tr><td>&nbsp;</td><td></td><td>&nbsp;</td><td></td></tr><tr><td>&nbsp;</td><td></td><td>&nbsp;</td><td>&nbsp;</td></tr><tr><td>&nbsp;</td><td></td><td>&nbsp;</td><td></td></tr></tbody></table></figure>
+<!-- /wp:table -->
+
+<!-- wp:table -->
+<figure class="wp-block-table"><table class="has-fixed-layout"><tbody><tr><td>ข้อมูล ณ วันที่ ๑๔ เมษายน ๒๕๖๕ ปรับปรุงข้อมูลโดย..ไพรัตน์ ทรัพย์อนันต์</td></tr><tr><td><img src="http://www.law.moi.go.th/ornbar4grn_1.gif" width="551" height="35"></td></tr><tr><td>&nbsp;</td></tr><tr><td><strong>สำนักกฎหมาย สำนักงานปลัดกระทรวงมหาดไทย ถนนอัษฎางค์ กรุงเทพมหานคร 10200<br>ร้อยโท ธราดล ทิพยมนตรี ผู้จัดทำ</strong><strong>Best veiw with 1024 x 768 pixels windows, Text size: Medium</strong></td></tr></tbody></table></figure>
+<!-- /wp:table -->
+
+<!-- wp:paragraph -->
+<p>สำนักงานคณะกรรมการป้องกันและปราบปรามยาเสพติด (ป.ป.ส.) ไม่มีหน้าที่ประจำหรือโครงสร้างภายในอยู่ภายในการไฟฟ้าส่วนภูมิภาค (กฟภ.) แต่อาจมีกรณีที่ทั้งสองหน่วยงานต้องประสานงานร่วมกัน เช่น การตรวจสอบเส้นทางการเงินหรือการระงับใช้กระแสไฟฟ้าบริเวณชายแดนที่เกี่ยวโยงกับเครือข่ายยาเสพติดและการฟอกเงิน&nbsp;</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ลักษณะการประสานงานระหว่าง ป.ป.ส. และ กฟภ.</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ตรวจสอบและอายัดบัญชี: ป.ป.ส. อาจประสานขอข้อมูลหรือสั่งการให้ กฟภ. ระงับการรับเงิน หรือตรวจสอบบัญชีการชำระค่าไฟฟ้าที่พบว่ามีความเชื่อมโยงกับเครือข่ายอาชญากรรมข้ามชาติหรือบัญชีม้ายาเสพติด&nbsp;</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>การพิจารณาระงับจ่ายกระแสไฟฟ้า: ในกรณีพื้นที่ชายแดนหรือจุดเสี่ยง กฟภ. จะทำหนังสือหารือหรือขอข้อมูลเชิงลึกจาก ป.ป.ส. เพื่อประกอบการพิจารณาว่าบริษัทคู่สัญญาหรือผู้ขอใช้ไฟฟ้ามีประวัติเอี่ยวพัวพันกับยาเสพติดและความมั่นคงหรือไม่ ก่อนตัดสินใจดำเนินการตามกฎหมาย&nbsp;</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>·โตโต้ ปิยรัฐ - Piyarat Chongthep</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ท่านสามารถศึกษาข้อมูลเพิ่มเติมเกี่ยวกับภารกิจหลักของ สำนักงาน ป.ป.ส. หรือ การไฟฟ้าส่วนภูมิภาค</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>หากคุณต้องการทราบรายละเอียดเกี่ยวกับกรณีข่าวหรือคดีเฉพาะเจาะจงใดระหว่าง ป.ป.ส. และ กฟภ. สามารถบอกเพิ่มเติมได้ครับ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image {"linkDestination":"custom"} -->
+<figure class="wp-block-image"><a href="https://acrobat.adobe.com/id/urn:aaid:sc:AP:f59db262-3300-43d8-83fc-a1d445ee2435?view=1&amp;tl=0%2C0%2C842&amp;br=1%2C594%2C415" target="_blank" rel="noreferrer noopener"><img src="https://image.jimcdn.com/app/cms/image/transf/none/path/s867332987e70275d/image/i5efe420451039b6e/version/1785193202/image.jpg" alt=""/></a></figure>
+<!-- /wp:image -->
+
+<!-- wp:image {"linkDestination":"custom"} -->
+<figure class="wp-block-image"><a href="https://acrobat.adobe.com/id/urn:aaid:sc:AP:c21e6ebc-8972-4160-9b2d-7b14cb85f49a?view=1&amp;tl=0%2C0%2C586&amp;br=1%2C402%2C312" target="_blank" rel="noreferrer noopener"><img src="https://image.jimcdn.com/app/cms/image/transf/none/path/s867332987e70275d/image/i7456401ce85e4a55/version/1785193581/image.jpg" alt=""/></a></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><strong>หมวด ๒/๑</strong></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><strong>หน้าที่และอำนาจของกรรมการ ป.ป.ส.</strong></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><strong>เลขาธิการคณะกรรมการป้องกันและปราบปรามยาเสพติด</strong></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><strong>รองเลขาธิการคณะกรรมการป้องกันและปราบปรามยาเสพติด</strong></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><strong>และเจ้าพนักงาน ป.ป.ส.</strong><sup>๑</sup></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>-------------------------</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<strong>มาตรา ๑๑/๑</strong><sup>๒</sup>&nbsp; เพื่อดําเนินการป้องกันและปราบปรามการกระทําความผิดเกี่ยวกับยาเสพติด ให้กรรมการ ป.ป.ส. เลขาธิการคณะกรรมการป้องกันและปราบปรามยาเสพติด รองเลขาธิการคณะกรรมการป้องกันและปราบปรามยาเสพติด และเจ้าพนักงาน ป.ป.ส. มีหน้าที่และอํานาจดังต่อไปนี้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; (๑) เข้าไปในเคหสถานหรือสถานที่ใด ๆ เพื่อตรวจค้นเมื่อมีเหตุอันควรสงสัยตามสมควรว่ามียาเสพติด หรือมีบุคคลซึ่งมีเหตุอันควรสงสัยว่ากระทําความผิดเกี่ยวกับยาเสพติดหลบซ่อนอยู่ หรือมีทรัพย์สินซึ่งมีไว้เป็นความผิด หรือได้มาโดยการกระทําความผิด หรือได้ใช้หรือจะใช้ในการกระทําความผิดเกี่ยวกับยาเสพติด หรือซึ่งอาจใช้เป็นพยานหลักฐานได้ ประกอบกับมีเหตุอันควรเชื่อว่าเนื่องจากการเนิ่นช้ากว่าจะเอาหมายค้นมาได้ บุคคลนั้นจะหลบหนีไป หรือทรัพย์สินนั้นจะถูกโยกย้าย ซุกซ่อน ทําลาย หรือทําให้เปลี่ยนสภาพไปจากเดิม</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; (๒) ค้นบุคคลหรือยานพาหนะใด ๆ ที่มีเหตุอันควรสงสัยตามสมควรว่ามียาเสพติดซุกซ่อนอยู่โดยไม่ชอบด้วยกฎหมาย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; (๓) ค้นตามบทบัญญัติแห่งประมวลกฎหมายวิธีพิจารณาความอาญา</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; (๔) จับกุมบุคคลใด ๆ ที่กระทําความผิดเกี่ยวกับยาเสพติด</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; (๕) ยึดหรืออายัดยาเสพติดที่มีไว้โดยไม่ชอบด้วยกฎหมาย หรือทรัพย์สินอื่นใดที่ได้ใช้หรือจะใช้ในการกระทําความผิดเกี่ยวกับยาเสพติด หรือที่ได้รับมาจากการกระทําความผิดเกี่ยวกับยาเสพติด หรือที่อาจใช้เป็นพยานหลักฐานได้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; (๖) ยึดหรืออายัดทรัพย์สินที่มีเหตุอันควรสงสัยว่าเป็นทรัพย์สินที่เกี่ยวเนื่องกับการกระทําความผิดร้ายแรงเกี่ยวกับยาเสพติดเป็นกรณีเร่งด่วน ก่อนดําเนินการตรวจสอบทรัพย์สิน แล้วรายงานให้เลขาธิการคณะกรรมการป้องกันและปราบปรามยาเสพติดภายในเจ็ดวันเพื่อดำเนินการตาม (๗) ต่อไป</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; (๗) ตรวจสอบทรัพย์สิน ยึดหรืออายัดทรัพย์สิน ตามที่คณะกรรมการตรวจสอบทรัพย์สินตามประมวลกฎหมายยาเสพติดหรือเลขาธิการคณะกรรมการป้องกันและปราบปรามยาเสพติดมอบหมาย แล้วแต่กรณี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; (๘) สอบสวนผู้ต้องหาในคดีความผิดเกี่ยวกับยาเสพติด</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; (๙) มีหนังสือสอบถามหรือเรียกบุคคลใด ๆ หรือเจ้าหน้าที่ของหน่วยราชการใด ๆ มาให้ถ้อยคําหรือให้ส่งบัญชี ข้อมูล เอกสาร หรือวัตถุใด ๆ มาเพื่อตรวจสอบหรือประกอบการพิจารณา</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; การใช้อํานาจตามวรรคหนึ่ง (๑) ให้เจ้าพนักงาน ป.ป.ส. ผู้ค้นปฏิบัติตามระเบียบที่คณะกรรมการ ป.ป.ส. กําหนด และแสดงความบริสุทธิ์ก่อนการเข้าค้น รายงานเหตุผล และผลการตรวจค้นเป็นหนังสือต่อผู้บังคับบัญชาเหนือขึ้นไป และบันทึกเหตุอันควรสงสัยตามสมควรและเหตุอันควรเชื่อที่ทําให้สามารถเข้าค้นได้เป็นหนังสือให้ไว้แก่ผู้ครอบครองเคหสถาน หรือสถานที่ค้น แต่ถ้าไม่มีผู้ครอบครองอยู่ ณ ที่นั้น ให้เจ้าพนักงาน ป.ป.ส. ผู้ค้นส่งมอบสําเนาหนังสือนั้นให้แก่ผู้ครอบครองดังกล่าวในทันทีที่กระทําได้ และหากเป็นการเข้าค้นในเวลากลางคืนภายหลังพระอาทิตย์ตก เจ้าพนักงาน ป.ป.ส. ผู้เป็นหัวหน้าในการเข้าค้นต้องเป็นข้าราชการพลเรือนตําแหน่งประเภทบริหาร ตําแหน่งประเภทอํานวยการ ตําแหน่งประเภทวิชาการระดับชํานาญการขึ้นไป ตําแหน่งประเภททั่วไประดับอาวุโสขึ้นไป หรือข้าราชการตํารวจตําแหน่งตั้งแต่สารวัตรหรือเทียบเท่าขึ้นไป หรือข้าราชการทหารตําแหน่งตั้งแต่ผู้บังคับกองร้อยหรือเทียบเท่าขึ้นไป</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; เจ้าพนักงาน ป.ป.ส. ตําแหน่งใดหรือระดับใดจะมีหน้าที่และอํานาจตามที่ได้กําหนดไว้ตามวรรคหนึ่งทั้งหมดหรือแต่บางส่วน หรือจะต้องได้รับอนุมัติจากบุคคลใดก่อนดําเนินการ ให้เป็นไปตามที่เลขาธิการคณะกรรมการป้องกันและปราบปรามยาเสพติดกําหนดด้วยความเห็นขอบของคณะกรรมการ ป.ป.ส. โดยทําเอกสารมอบหมายให้ไว้ประจําตัวเจ้าพนักงาน ป.ป.ส. ผู้ได้รับมอบหมายนั้น</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; เจ้าพนักงาน ป.ป.ส. ผู้ได้รับมอบหมายตามวรรคหนึ่ง ต้องแสดงเอกสารมอบหมายนั้นต่อบุคคลที่เกี่ยวข้องทุกครั้ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ในการปฏิบัติการตามมาตรานี้ ให้กรรมการ ป.ป.ส. เลขาธิการคณะกรรมการป้องกันและปราบปรามยาเสพติด รองเลขาธิการคณะกรรมการป้องกันและปราบปรามยาเสพติด และเจ้าพนักงาน ป.ป.ส. เป็นเจ้าพนักงานตามประมวลกฎหมายอาญา</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ให้เลขาธิการคณะกรรมการป้องกันและปราบปรามยาเสพติดจัดทํารายงานผลการปฏิบัติตามมาตรานี้เสนอต่อคณะรัฐมนตรี เพื่อรายงานผลการปฏิบัติงานประจําปี โดยให้รายงานข้อเท็จจริง ปัญหาอุปสรรค ปริมาณการปฏิบัติงานตามงบประมาณและกองทุนประจําปี และผลสัมฤทธิ์ของการปฏิบัติงานโดยละเอียด เพื่อให้คณะรัฐมนตรีเสนอรายงานดังกล่าวพร้อมข้อสังเกตของคณะรัฐมนตรีต่อสภาผู้แทนราษฎรและวุฒิสภา</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<strong>มาตรา ๑๑/๒</strong><sup>๓</sup>&nbsp; ในกรณีจําเป็นและมีเหตุอันควรเชื่อได้ว่ามีบุคคลหรือกลุ่มบุคคลใดเสพยาเสพติดในเคหสถาน สถานที่ใด ๆ หรือยานพาหนะ ให้กรรมการ ป.ป.ส. เลขาธิการคณะกรรมการป้องกันและปราบปรามยาเสพติด รองเลขาธิการคณะกรรมการป้องกันและปราบปรามยาเสพติด และเจ้าพนักงานป.ป.ส. มีอํานาจตรวจหรือทดสอบหรือสั่งให้รับการตรวจหรือทดสอบว่าบุคคลหรือกลุ่มบุคคลนั้นมีสารเสพติดอยู่ในร่างกายหรือไม่</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; วิธีการตรวจหรือทดสอบตามวรรคหนึ่ง ให้เป็นไปตามหลักเกณฑ์ วิธีการ และเงื่อนไขที่คณะกรรมการ ป.ป.ส. กำหนดโดยประกาศในราชกิจจานุเบกษา</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<strong>มาตรา ๑๑/๓</strong><sup>๔</sup>&nbsp; ในกรณีที่มีการยึดยาเสพติดตามพระราชบัญญัตินี้หรือตามกฎหมายอื่น ไม่ว่าจะมีการฟ้องคดีต่อศาลหรือไม่ก็ตาม เมื่อได้มีการตรวจพิสูจน์ชนิดและปริมาณแล้วว่าเป็นยาเสพติดโดยบันทึกรายงานการตรวจพิสูจน์ไว้และให้ดําเนินการ ดังต่อไปนี้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; (๑) กรณีที่เป็นยาเสพติดให้โทษในประเภท ๑ ประเภท ๒ หรือประเภท ๓ หรือวัตถุออกฤทธิ์ที่เหลือจากการตรวจพิสูจน์ ให้กระทรวงสาธารณสุขหรือผู้ซึ่งกระทรวงสาธารณสุขมอบหมายทําลายหรือนําไปใช้ประโยชน์ได้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; (๒) กรณีที่เป็นยาเสพติดให้โทษในประเภท ๔ หรือประเภท ๕ หรือสารระเหยที่เหลือจากการตรวจพิสูจน์ ให้พนักงานสอบสวนทําลายหรือนําไปใช้ประโยชน์ได้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; (๓) ภาชนะหรือหีบห่อบรรจุยาเสพติดให้โทษและวัตถุออกฤทธิ์ หรือเอกสารที่เกี่ยวข้องที่ยึดไว้ ให้สถานตรวจพิสูจน์คืนพนักงานสอบสวน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; การตรวจรับ การเก็บรักษา การทําลาย การนําไปใช้ประโยชน์ และการรายงาน ให้เป็นไปตามหลักเกณฑ์ วิธีการ และเงื่อนไขที่คณะกรรมการ ป.ป.ส. กําหนดโดยประกาศในราชกิจจานุเบกษา</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<strong>มาตรา ๑๑/๔</strong><sup>๕</sup>&nbsp; ในการปฏิบัติหน้าที่ของเจ้าพนักงาน ป.ป.ส. ตามมาตรา ๑๑/๑ หรือมาตรา ๑๑/๒ ถ้าเจ้าพนักงาน ป.ป.ส. ได้ขอให้บุคคลใดช่วยเหลือการปฏิบัติหน้าที่ ให้บุคคลนั้นมีอํานาจช่วยการปฏิบัติงานของเจ้าพนักงาน ป.ป.ส. ได้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<strong>มาตรา ๑๑/๕</strong><sup>๖</sup>&nbsp; ในกรณีจําเป็นและมีเหตุอันควรเชื่อได้ว่าเอกสารหรือข้อมูลข่าวสารอื่นใด ซึ่งส่งทางไปรษณีย์ โทรศัพท์ โทรสาร คอมพิวเตอร์ เครื่องมือ หรืออุปกรณ์ในการสื่อสาร สื่ออิเล็กทรอนิกส์ หรือสื่อทางเทคโนโลยีสารสนเทศใด ถูกใช้หรืออาจถูกใช้เพื่อประโยชน์ในการกระทําความผิดเกี่ยวกับยาเสพติด เจ้าพนักงาน ป.ป.ส. ซึ่งได้รับอนุมัติจากเลขาธิการคณะกรรมการป้องกันและปราบปรามยาเสพติดเป็นหนังสือจะยื่นคําขอฝ่ายเดียวต่อศาลอาญา เพื่อมีคําสั่งอนุญาตให้เจ้าพนักงาน ป.ป.ส. ได้มาซึ่งข้อมูลข่าวสารดังกล่าวได้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; การอนุญาตตามวรรคหนึ่ง ให้ศาลพิจารณาถึงผลกระทบต่อสิทธิส่วนบุคคลหรือสิทธิอื่นใด ประกอบกับเหตุผลและความจําเป็น ดังต่อไปนี้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; (๑) มีเหตุอันควรเชื่อได้ว่ามีการกระทําความผิดหรือจะมีการกระทําความผิดเกี่ยวกับยาเสพติด</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; (๒) มีเหตุอันควรเชื่อได้ว่าจะได้ข้อมูลข่าวสารเกี่ยวกับการกระทําความผิดเกี่ยวกับยาเสพติดจากการเข้าถึงข้อมูลข่าวสารดังกล่าว</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; (๓) ไม่อาจใช้วิธีการอื่นใดที่เหมาะสมหรือมีประสิทธิภาพมากกว่าได้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; การอนุญาตตามวรรคหนึ่ง ให้ศาลสั่งอนุญาตได้คราวละไม่เกินเก้าสิบวัน โดยกําหนดเงื่อนไขใด ๆ ก็ได้ และให้ผู้เกี่ยวข้องกับข้อมูลข่าวสารในสิ่งสื่อสารตามคําสั่งดังกล่าวจะต้องให้ความร่วมมือเพื่อให้เป็นไปตามความในมาตรานี้ภายในระยะเวลาที่ศาลกำหนด ภายหลังที่มีคําสั่งอนุญาต หากปรากฏข้อเท็จจริงว่าเหตุผลความจําเป็นไม่เป็นไปตามที่ระบุหรือพฤติการณ์เปลี่ยนแปลงไป ให้ศาลมีอํานาจเปลี่ยนแปลงคําสั่งอนุญาตได้ตามที่เห็นสมควร</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; เมื่อเจ้าพนักงาน ป.ป.ส. ได้ดําเนินการตามที่ได้รับอนุญาตแล้ว ให้รายงานการดําเนินการให้ศาลทราบ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; บรรดาข้อมูลข่าวสารที่ได้มาตามวรรคหนึ่ง ให้เก็บรักษาและใช้ประโยชน์ในการสืบสวนและใช้เป็นพยานหลักฐานในการดําเนินคดีเท่านั้น ทั้งนี้ ตามระเบียบที่คณะกรรมการ ป.ป.ส. กําหนดโดยประกาศในราชกิจจานุเบกษา</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<strong>มาตรา ๑๑/๖</strong><sup>๗</sup>&nbsp; เพื่อประโยชน์ในการปฏิบัติการตามมาตรา ๑๑/๑ ให้ถือว่ากรรมการ ป.ป.ส. เลขาธิการคณะกรรมการป้องกันและปราบปรามยาเสพติด รองเลขาธิการคณะกรรมการป้องกันและปราบปรามยาเสพติด และเจ้าพนักงาน ป.ป.ส. ซึ่งได้รับมอบหมายให้มีอํานาจตามมาตรา ๑๑/๑ (๔) มีหน้าที่และอำนาจเช่นเดียวกับพนักงานสอบสวนตามประมวลกฎหมายวิธีพิจารณาความอาญาได้ทั่วราชอาณาจักร และให้มีอํานาจควบคุมผู้ถูกจับตามมาตรา ๑๑/๑ (๔) ซึ่งกระทําความผิดร้ายแรงเกี่ยวกับยาเสพติดตามประมวลกฎหมายยาเสพติดไว้เพื่อทําการสืบสวนสอบสวนได้เป็นเวลาไม่เกินสามวัน เมื่อครบกําหนดเวลาดังกล่าวหรือก่อนนั้นตามที่จะเห็นสมควร ให้ส่งตัวผู้ถูกจับไปยังพนักงานสอบสวนตามประมวลกฎหมายวิธีพิจารณาความอาญาเพื่อดําเนินการต่อไป ทั้งนี้ โดยมิให้ถือว่าการควบคุมผู้ถูกจับดังกล่าว เป็นการควบคุมของพนักงานสอบสวนตามประมวลกฎหมายวิธีพิจารณาความอาญา</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; การควบคุมผู้ถูกจับตามวรรคหนึ่ง ให้เป็นไปตามระเบียบที่คณะกรรมการ ป.ป.ส. กําหนดโดยประกาศในราชกิจจานุเบกษา</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<strong>มาตรา ๑๑/๗</strong><sup>๘</sup>&nbsp; การแจ้งข้อหาแก่ผู้กระทําความผิดตามมาตรา ๑๒๕ หรือมาตรา ๑๒๗ แห่งประมวลกฎหมายยาเสพติด ต้องได้รับอนุมัติจากเลขาธิการคณะกรรมการป้องกันและปราบปรามยาเสพติดหรือผู้ที่เลขาธิการคณะกรรมการป้องกันและปราบปรามยาเสพติดมอบหมาย เว้นแต่กรณีที่พนักงานสอบสวนส่งสํานวนให้พนักงานอัยการเพื่อฟ้องคดีแล้วพนักงานอัยการเห็นควรแจ้งข้อหาแก่ผู้กระทําความผิดตามมาตรา ๑๒๕ หรือมาตรา ๑๒๗ แห่งประมวลกฎหมายยาเสพติดเพิ่มเติม ให้พนักงานอัยการเป็นผู้อนุมัติให้แจ้งข้อหาเพื่อดําเนินคดีตามมาตรานี้ และเมื่อดําเนินการตามที่ได้รับอนุมัติแล้ว ให้พนักงานสอบสวนรายงานให้เลขาธิการคณะกรรมการป้องกันและปราบปรามยาเสพติดทราบทันที</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; การขออนุมัติ การอนุมัติ และการรายงานตามวรรคหนึ่ง ให้เป็นไปตามหลักเกณฑ์ วิธีการ และเงื่อนไขที่กําหนดในกฎกระทรวง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<sup>๑</sup>&nbsp;หมวด ๒/๑ หน้าที่และอำนาจของกรรมการ ป.ป.ส. เลขาธิการคณะกรรมการป้องกันและปราบปรามยาเสพติด รองเลขาธิการคณะกรรมการป้องกันและปราบปรามยาเสพติด และเจ้าพนักงาน ป.ป.ส. มาตรา ๑๑/๑ ถึงมาตรา ๑๑/๗ เพิ่มเติมโดยพระราชบัญญัติวิธีพิจารณาคดียาเสพติด (ฉบับที่ ๒) พ.ศ. ๒๕๖๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<sup>๒</sup>&nbsp;มาตรา ๑๑/๑ เพิ่มเติมโดยพระราชบัญญัติวิธีพิจารณาคดียาเสพติด (ฉบับที่ ๒) พ.ศ. ๒๕๖๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<sup>๓</sup>&nbsp;มาตรา ๑๑/๒ เพิ่มเติมโดยพระราชบัญญัติวิธีพิจารณาคดียาเสพติด (ฉบับที่ ๒) พ.ศ. ๒๕๖๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<sup>๔</sup>&nbsp;มาตรา ๑๑/๓ เพิ่มเติมโดยพระราชบัญญัติวิธีพิจารณาคดียาเสพติด (ฉบับที่ ๒) พ.ศ. ๒๕๖๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<sup>๕</sup>&nbsp;มาตรา ๑๑/๔ เพิ่มเติมโดยพระราชบัญญัติวิธีพิจารณาคดียาเสพติด (ฉบับที่ ๒) พ.ศ. ๒๕๖๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<sup>๖</sup>&nbsp;มาตรา ๑๑/๕ เพิ่มเติมโดยพระราชบัญญัติวิธีพิจารณาคดียาเสพติด (ฉบับที่ ๒) พ.ศ. ๒๕๖๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<sup>๗</sup>&nbsp;มาตรา ๑๑/๖ เพิ่มเติมโดยพระราชบัญญัติวิธีพิจารณาคดียาเสพติด (ฉบับที่ ๒) พ.ศ. ๒๕๖๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<sup>๘</sup>&nbsp;มาตรา ๑๑/๗ เพิ่มเติมโดยพระราชบัญญัติวิธีพิจารณาคดียาเสพติด (ฉบับที่ ๒) พ.ศ. ๒๕๖๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:heading -->
+<h2 class="wp-block-heading">เกี่ยวกับคลังสารสนเทศ</h2>
+<!-- /wp:heading -->
+
+<!-- wp:heading {"level":4} -->
+<h4 class="wp-block-heading">เกี่ยวกับคลังสารสนเทศ</h4>
+<!-- /wp:heading -->
+
+<!-- wp:paragraph -->
+<p>คลังสารสนเทศรัฐสภา (Parliamentary Repository of Thailand) เป็นคลังสารสนเทศดิจิทัลที่จัดทำ<a href="https://www.senate.go.th/view/1/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%E0%B9%81%E0%B8%A3%E0%B8%81/TH-TH">ขึ้น</a>โดยสำนักวิชาการ สำนักงานเลขาธิการสภาผู้แทนราษฎร เพื่อเป็นแหล่งจัดเก็บ สงวนรักษา และเผยแพร่<a href="https://prt.parliament.go.th/about-the-repository">สารสนเทศ</a>ดิจิทัลทางด้าน<a href="https://www.law.go.th/">นิติบัญญัติ</a>ภายใต้การปกครองในระบอบประชาธิปไตยอันมีพระมหา<a href="https://prid.opc.police.go.th/%E0%B8%9E%E0%B8%A3%E0%B8%B0%E0%B8%A3%E0%B8%B2%E0%B8%8A%E0%B8%81%E0%B8%A4%E0%B8%A9%E0%B8%8E%E0%B8%B5%E0%B8%81%E0%B8%B2%E0%B9%81%E0%B8%9A%E0%B9%88%E0%B8%87%E0%B8%AA%E0%B9%88%E0%B8%A7%E0%B8%99%E0%B8%A3">กษัตริย์</a>ทรงเป็นประมุข โดยมุ่งเน้นการพัฒนาให้เป็นคลังสารสนเทศในรูปแบบเปิด (Open Access) เพื่อให้สมาชิกรัฐสภา บุคคลในวงงานรัฐสภา ประชาชน และผู้ที่สนใจทั่วไป สามารถเข้าถึงเนื้อหา ความรู้ และเอกสารหลักฐานด้านนิติบัญญัติและการเมืองการปกครองได้อย่างเสรีและเสมอภาค อันจะนำไปสู่การสร้างสังคมแห่งประชาธิปไตยแบบมีส่วนร่วมที่มีความเข้มแข็งและเป็นไปตามกรอบศีลธรรมอันดีของพลเมืองไทย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>สารสนเทศที่จัดเก็บจัดครอบคลุมสารสนเทศ 4 กลุ่ม ดังนี้ 1. เอกสารการประชุมสภา ได้แก่ ร่างรัฐธรรมนูญ ร่างพระราชบัญญัติประกอบรัฐธรรมนูญ ร่างพระราชบัญญัติ กระทู้ถาม ญัตติ รายงานการประชุม บันทึกการประชุม สรุปผลการประชุมสภา บันทึกการออกเสียงลงคะแนน ประมวลคำวินิจฉัย สรุปเหตุการณ์ รายงานของคณะกรรมาธิการ เอกสารประกอบการพิจารณา เอกสารงบประมาณ รายงานผลการดำเนินงานของหน่วยงาน/รายงานประจำปี เอกสารแนบระเบียบวาระอื่น ๆ 2. ผลงานสร้างสรรค์ของบุคคลหรือหน่วยงานในสังกัดรัฐสภา ได้แก่ วารสาร บทความวิชาการ ภาพถ่าย หนังสือ คู่มือ นโยบายและแผน รายงานประจำปี/สรุปผลการดำเนินงาน รายงานการอบรม/สัมมนา/ดูงาน อินโฟกราฟิกส์ วีดิทัศน์ 3. กฎหมาย กฎ ระเบียบ ข้อบังคับ ประกาศ คำสั่ง ที่ประกาศในราชกิจจานุเบกษาซึ่งเกี่ยวข้องกับรัฐสภา ได้แก่ รัฐธรรมนูญและธรรมนูญการปกครอง พระราชบัญญัติ พระราชบัญญัติประกอบรัฐธรรมนูญพระราชกำหนด พระราชกฤษฎีกา กระทู้ถาม คำวินิจฉัย คำพิพากษาบันทึกการประชุมสภา ประกาศ ระเบียบ คำสั่ง ที่เกี่ยวกับรัฐสภา 4. ทรัพยากรสารสนเทศจากบุคคลหรือหน่วยงานภายนอกเกี่ยวกับรัฐสภา เช่น งานวิจัยสำนักงานคณะกรรรมการส่งเสริมวิทยาศาสตร์ วิจัยและนวัตกรรม (สกสว.) บทความวิชาการจากสำนักงานการวิจัยแห่งชาติ (วช.)</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:heading {"level":5} -->
+<h5 class="wp-block-heading">วิสัยทัศน์</h5>
+<!-- /wp:heading -->
+
+<!-- wp:paragraph -->
+<p>เป็นคลังสารสนเทศดิจิทัลแบบเปิดที่ส่งเสริมและสนับสนุนการเข้าถึงความรู้ด้านนิติบัญญัติและการเมืองการปกครองแบบมีส่วนร่วมของประชาชนอย่างเท่าเทียมกัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:heading {"level":5} -->
+<h5 class="wp-block-heading">พันธกิจ</h5>
+<!-- /wp:heading -->
+
+<!-- wp:list {"ordered":true} -->
+<ol class="wp-block-list"><!-- wp:list-item -->
+<li>รวบรวม จัดเก็บ และสงวนรักษาทรัพยากรสารสนเทศดิจิทัลด้านนิติบัญญัติ มุ่งพัฒนาคลังสารสนเทศให้เป็นศูนย์กลางในการรวบรวม จัดเก็บ และสงวนรักษาสารสนเทศที่เกิดจากกระบวนการนิติบัญญัติภายใต้ระบบรัฐสภาไทยในรูปแบบดิจิทัล ให้คงอยู่และสามารถเข้าถึงได้ในระยะยาวตามมาตรฐานสากล</li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li>เผยแพร่ทรัพยากรสารสนเทศดิจิทัลด้านนิติบัญญัติในรูปแบบเปิด เพื่อให้ประชาชนสามารถเข้าถึงเอกสารหลักฐานในกระบวนการตรากฎหมายและการทำหน้าที่ของฝ่ายนิติบัญญัติเพื่อตรวจสอบการบริหารราชการแผ่นดินของไทยทั้งในปัจจุบันและระยะยาว</li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li>ส่งเสริมและสนับสนุนการเข้าถึงความรู้และการเรียนรู้เกี่ยวกับระบอบประชาธิปไตยแบบมีส่วนร่วมของประชาชน เป็นฐานข้อมูลที่โปร่งใส เป็นกลาง และตรวจสอบได้</li>
+<!-- /wp:list-item --></ol>
+<!-- /wp:list -->
+
+<!-- wp:paragraph -->
+<p>ความผิดเกี่ยวกับการฆ่าคนตามกฎหมายไทย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>สามารถจำแนกความผิดเกี่ยวกับการฆ๋าคนตามประมวลกฎหมายอาญาของไทย (ปอ.) และกฎหมายอื่นของไทยที่เกี่ยวข้องได้ดังต่อไปนี้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:table -->
+<figure class="wp-block-table"><table class="has-fixed-layout"><tbody><tr><td>ที่</td><td>ความผิด</td><td>โทษ</td><td>กฎหมายและมาตรา</td><td></td><td></td><td></td></tr><tr><td colspan="4">ประมุขแห่งรัฐ</td><td></td><td></td><td></td></tr><tr><td>1</td><td>การปลงพระชนม์พระมหากษัตริย์ พระราชินี หรือรัชทายาท หรือฆ่าผู้สำเร็จราชการแทนพระองค์แห่งประเทศไทย</td><td>- ประหารชีวิต</td><td>ปอ. มาตรา 107 วรรคหนึ่ง และมาตรา 109 วรรคหนึ่ง</td><td></td><td></td><td></td></tr><tr><td>2</td><td>การพยายามฆ่าบุคคลตามข้อ 1 หรือข้อ 2</td><td>- โทษเช่นเดียวกับการฆ่าบุคคลนั้น</td><td>ปอ. มาตรา 107 วรรคสอง มาตรา 109 วรรคสอง และมาตรา 130</td><td></td><td></td><td></td></tr><tr><td>3</td><td>การเตรียมการปลงพระชนม์พระมหากษัตริย์แห่งประเทศไทย หรือ การล่วงรู้ข้อมูลเกี่ยวกับการเตรียมการดังกล่าวแต่ช่วยปกปิดไว้</td><td>- จำคุกตลอดชีวิต</td><td>ปอ. มาตรา 107 วรรคสาม</td><td></td><td></td><td></td></tr><tr><td>4</td><td>การเตรียมการปลงพระชนม์พระราชินีหรือรัชทายาท หรือการเตรียมการฆ่าผู้สำเร็จราชการแทนพระองค์แห่งประเทศไทย หรือ การล่วงรู้ข้อมูลเกี่ยวกับการเตรียมการดังกล่าวแต่ช่วยปกปิดไว้</td><td>- จำคุกตั้งแต่ 12-20 ปี</td><td>ปอ. มาตรา 107 วรรคสาม</td><td></td><td></td><td></td></tr><tr><td>5</td><td>การสนับสนุนการกระทำความผิดตามข้อ 1 ข้อ 3 ข้อ หรือ 4</td><td>- โทษเช่นเดียวกับความผิดนั้น</td><td>ปอ. มาตรา 111</td><td></td><td></td><td></td></tr><tr><td colspan="4">บุคคล</td><td></td><td></td><td></td></tr><tr><td>6</td><td>การฆ่าผู้อื่น</td><td>- ประหารชีวิต หรือ - จำคุกตลอดชีวิต หรือ - จำคุกตั้งแต่ 15-20 ปี</td><td>ปอ. มาตรา 288</td><td></td><td></td><td></td></tr><tr><td>7</td><td>การฆ่า - 7.1 บุพการี - 7.2 เจ้าพนักงานซึ่งกระทำการตามอำนาจหน้าที่ - 7.3 ผู้ช่วยเหลือเจ้าพนักงานตาม 7.2 - 7.4 ผู้อื่นโดยไตร่ตรองไว้ก่อน - 7.5 ผู้อื่นอย่างทารุณ - 7.6 ผู้อื่นเพื่อให้กระทำความผิดอื่นได้สะดวก - 7.7 ปิดปาก - 7.8 ผู้อื่นเพื่อรักษาผลประโยชน์ของตน โดยที่ผลประโยชน์นั้นมาจากการกระทำความผิดอื่น - 7.9 ผู้อื่นเพื่อหนีความผิด</td><td>- ประหารชีวิต</td><td>ปอ. มาตรา 289</td><td></td><td></td><td></td></tr><tr><td>8</td><td>การทำให้คนตายโดยไม่เจตนา</td><td>- จำคุกตั้งแต่ 3-15 ปี</td><td>ปอ. มาตรา 290 วรรคหนึ่ง</td><td></td><td></td><td></td></tr><tr><td>9</td><td>การทำให้เกิดความผิดตามข้อ 7 โดยไม่เจตนา</td><td>- จำคุกตั้งแต่ 3-20 ปี</td><td>ปอ. มาตรา 290 วรรคสอง</td><td></td><td></td><td></td></tr><tr><td>11</td><td>การยุให้บุคคลดังต่อไปนี้ฆ่าตัวตาย - เด็กอายุไม่เกินสิบหกปี - ผู้ที่ไม่อาจจำแนกได้ว่าการกระทำของตนดีหรือชั่วอย่างไร - ผู้ที่ไม่อาจบังคับการกระทำของตนเองได้ (ถ้าหากบุคคลดังกล่าวได้ฆ่าตัวตายหรือได้พยายามฆ่าตัวตาย จึงจะเป็นความผิดตามข้อนี้)</td><td>- จำคุกไม่เกิน 5 ปี หรือ - ปรับไม่เกิน 1,000 บาท หรือ - ทั้งสองโทษ</td><td>ปอ. มาตรา 293</td><td></td><td></td><td></td></tr></tbody></table></figure>
+<!-- /wp:table -->
+
+<!-- wp:paragraph -->
+<p><strong>หมวด ๑</strong></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><strong>ความผิดต่อชีวิต</strong></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>-------------------------</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<strong>มาตรา ๒๘๘</strong>&nbsp; ผู้ใดฆ่าผู้อื่น ต้องระวางโทษประหารชีวิต จำคุกตลอดชีวิต หรือจำคุกตั้งแต่สิบห้าปีถึงยี่สิบปี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<strong>มาตรา ๒๘๙</strong>&nbsp; ผู้ใด</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; (๑) ฆ่าบุพการี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; (๒) ฆ่าเจ้าพนักงาน ซึ่งกระทำการตามหน้าที่ หรือเพราะเหตุที่จะกระทำ หรือได้กระทำการตามหน้าที่</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; (๓) ฆ่าผู้ช่วยเหลือเจ้าพนักงาน ในการที่เจ้าพนักงานนั้นกระทำตามหน้าที่ หรือเพราะเหตุที่บุคคลนั้นจะช่วยหรือได้ช่วยเจ้าพนักงานดังกล่าวแล้ว</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; (๔) ฆ่าผู้อื่นโดยไตร่ตรองไว้ก่อน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; (๕) ฆ่าผู้อื่นโดยทรมานหรือโดยกระทำทารุณโหดร้าย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; (๖) ฆ่าผู้อื่นเพื่อตระเตรียมการ หรือเพื่อความสะดวกในการที่จะกระทำความผิดอย่างอื่น หรือ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; (๗) ฆ่าผู้อื่นเพื่อจะเอา หรือเอาไว้ซึ่งผลประโยชน์อันเกิดแต่การที่ตนได้กระทำความผิดอื่น เพื่อปกปิดความผิดอื่นของตน หรือเพื่อหลีกเลี่ยงให้พ้นอาญาในความผิดอื่นที่ตนได้กระทำไว้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ต้องระวางโทษประหารชีวิต</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<strong>มาตรา ๒๙๐</strong>&nbsp; ผู้ใดมิได้มีเจตนาฆ่า แต่ทำร้ายผู้อื่นจนเป็นเหตุให้ผู้นั้นถึงแก่ความตาย ต้องระวางโทษจำคุกตั้งแต่สามปีถึงสิบห้าปี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ถ้าความผิดนั้นมีลักษณะประการหนึ่งประการใด ดังที่บัญญัติไว้ในมาตรา ๒๘๙ ผู้กระทำต้องระวางโทษจำคุกตั้งแต่สามปีถึงยี่สิบปี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<strong>มาตรา ๒๙๑</strong>&nbsp; ผู้ใดกระทำโดยประมาท และการกระทำนั้นเป็นเหตุให้ผู้อื่นถึงแก่ความตาย ต้องระวางโทษจำคุกไม่เกินสิบปี และปรับไม่เกินสองแสนบาท</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; [อัตราโทษ แก้ไขเพิ่มเติมโดยมาตรา ๔ แห่งพระราชบัญญัติแก้ไขเพิ่มเติมประมวลกฎหมายอาญา (ฉบับที่ ๒๖) พ.ศ. ๒๕๖๐]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<strong>มาตรา ๒๙๒</strong>&nbsp; ผู้ใดกระทำด้วยการปฏิบัติอันทารุณ หรือด้วยปัจจัยคล้ายคลึงกันแก่บุคคลซึ่งต้องพึ่งตน ในการดำรงชีพหรือในการอื่นใด เพื่อให้บุคคลนั้นฆ่าตนเอง ถ้าการฆ่าตนเองนั้นได้เกิดขึ้นหรือได้มีการพยายามฆ่าตนเอง ต้องระวางโทษจำคุกไม่เกินเจ็ดปี และปรับไม่เกินหนึ่งแสนสี่หมื่นบาท</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; [อัตราโทษ แก้ไขเพิ่มเติมโดยมาตรา ๔ แห่งพระราชบัญญัติแก้ไขเพิ่มเติมประมวลกฎหมายอาญา (ฉบับที่ ๒๖) พ.ศ. ๒๕๖๐]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<strong>มาตรา ๒๙๓</strong>&nbsp; ผู้ใดช่วยหรือยุยงเด็กอายุยังไม่เกินสิบหกปี หรือผู้ซึ่งไม่สามารถเข้าใจว่าการกระทำของตนมีสภาพหรือสาระสำคัญอย่างไร หรือไม่สามารถบังคับการกระทำของตนได้ ให้ฆ่าตนเอง ถ้าการฆ่าตนเองนั้นได้เกิดขึ้นหรือได้มีการพยายามฆ่าตนเอง ต้องระวางโทษจำคุกไม่เกินห้าปี หรือปรับไม่เกินหนึ่งแสนบาท หรือทั้งจำทั้งปรับ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; [อัตราโทษ แก้ไขเพิ่มเติมโดยมาตรา ๔ แห่งพระราชบัญญัติแก้ไขเพิ่มเติมประมวลกฎหมายอาญา (ฉบับที่ ๒๖) พ.ศ. ๒๕๖๐]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<strong>มาตรา ๒๙๔</strong>&nbsp; ผู้ใดเข้าร่วมในการชุลมุนต่อสู้ระหว่างบุคคลตั้งแต่สามคนขึ้นไป และบุคคลหนึ่งบุคคลใดไม่ว่าจะเป็นผู้ที่เข้าร่วมในการนั้นหรือไม่ ถึงแก่ความตายโดยการกระทำในการชุลมุนต่อสู้นั้น ต้องระวางโทษจำคุกไม่เกินสองปี หรือปรับไม่เกินสี่หมื่นบาท หรือทั้งจำทั้งปรับ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ถ้าผู้ที่เข้าร่วมในการชุลมุนต่อสู้นั้นแสดงได้ว่า ได้กระทำไปเพื่อห้ามการชุลมุนต่อสู้นั้น หรือเพื่อป้องกันโดยชอบด้วยกฎหมาย ผู้นั้นไม่ต้องรับโทษ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; [อัตราโทษ แก้ไขเพิ่มเติมโดยมาตรา ๔ แห่งพระราชบัญญัติแก้ไขเพิ่มเติมประมวลกฎหมายอาญา (ฉบับที่ ๒๖) พ.ศ. ๒๕๖๐]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>หน่วยที่ 3</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>สรุปสาระสำคัญกฎหมายอาญา</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>หัวข้อที่ต้องศึกษา</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; 1. ลักษณะการใช้กฎหมายอาญาในการบังคับ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; 2. ความรับผิดทางอาญา</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; 3. ความผิดอาญาที่เกี่ยวข้องกับการประกอบวิชาชีพ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; กฎหมายอาญาเป็นกฎหมายมหาชน&nbsp; มีลักษณะการใช้บังคับดังนี้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp;- ต้องมีบทบัญญัติโดยชัดแจ้งกฎหมายอาญาจะต้องมีบทบัญญัติไว้เป็นลายลักษณ์อักษร โดยบัญญัติความผิดและโทษไว้ในขณะกระทำ และบทบัญญัตินั้นต้องชัดเจนปราศจากการคลุมเครือมิฉะนั้นจะใช้บังคับมิได้ เพราะการลงโทษเป็นเรื่องที่มีผลกระทบต่อสิทธิและเสรีภาพส่วนบุคคลโดยตรง&nbsp; ฉะนั้น ลักษณะการใช้บังคับกฎหมายอาญาจึงถือหลักไม่มีความผิด ไม่มีโทษ ไม่มีกฎหมาย โดยเคร่งครัด</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp;- ต้องตีความโดยเคร่งครัดบางกรณีการตีความตามตัวอักษรแต่เพียงอย่างเดียวยังไม่อาจทำเข้าใจความหมายที่แท้จริงของบทบัญญัติแห่งกฎหมายได้ ด้วยเหตุนี้จึงต้องคำนึงถึงเจตนารมณ์ของกฎหมายด้วย นอกจากนี้ การตีความตามตัวอักษรอย่างเคร่งครัดดังกล่าว มีความหมายเฉพาะการเคร่งครัดในด้านที่เป็นคุณแก่ผู้กระทำเท่านั้น มิใช่ในทางที่จะเป็นโทษแก่ผู้กระทำ ในการตีความกฎหมายอาญานั้น จะนำหลักการเทียบกฎหมายที่ใกล้เคียงอย่างยิ่ง มาใช้บังคับให้เป็นผลร้ายแก่ผู้กระทำมิได้ หลักการเทียบเคียงนั้น ใช้เฉพาะในกฎหมายแพ่งดังที่มีบัญญัติไว้ในประมวลกฎหมายแพ่งและพาณิชย์ มาตรา 4 อย่างไรก็ดีหลักการเทียบเคียงดังกล่าวอาจนำมาใช้เพื่อเป็นคุณหรือเป็นประโยชน์แก่ผู้กระทำได้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; - ย้อนหลังเป็นผลร้ายมิได้ แต่หากการใช้บังคับกฎหมายอาญาย้อนหลังแล้วเกิดผลดีแก่ผู้กระทำผิดนั้นสามารถใช้บังคับได้ กรณี คือ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;1. กรณีกฎหมายใหม่ยกเลิกความผิดตามกฎหมายเก่า</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;2. กรณีกฎหมายใหม่แตกต่างจากกฎหมายเก่า</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ความรับผิดทางอาญา</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ในการรับผิดทางอาญา ต้องมีครบทั้ง 2 องค์ประกอบ คือ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; 1. องค์ประกอบภายนอก</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; 2. องค์ประกอบภายใน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ข้อสังเกต มีเพียงบางความผิดเท่านั้น ที่ต้องรับผิดแม้ไม่ครบองค์ประกอบ กล่าวคือ มีแต่องค์ประกอบภายนอกเท่านั้น ก็ถือเป็นความผิด (รายละเอียดขอให้ติดตามในเนื้อหา)</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;1. องค์ประกอบภายนอก คือ องค์ประกอบภายนอกของความผิดแต่ละฐาน เช่น ความผิดฐานฆ่าคนตาย (มาตรา 288)&nbsp; จะประกอบด้วย ผู้กระทำ การกระทำและวัตถุแห่งการกระทำ คือ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; 1. ผู้ใด</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; 2.ฆ่า</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; 3.ผู้อื่น</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; 2. องค์ประกอบภายใน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;1. เจตนา พอแบ่งได้ 2 ความหมายคือ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; 1.1&nbsp; เจตนาประสงค์ต่อผล หมายความว่า มุ่งหมายหรือประสงค์ต่อผลโดยตรง ในความผิดต่อชีวิต และความผิดต่อร่างกาย ในการวินิจฉัยต้องใช้หลักกรรมเป็นเครื่องชี้เจตนาเป็นแนวทางในการพิจารณา เช่น ถ้าผู้กระทำใช้ปืนยิงไปที่ผู้เสียหาย โดยยิงไปที่อวัยวะสำคัญ ๆ ต้องถือว่าประสงค์หรือมุ่งหมายให้ผู้เสียหายตาย แต่ถ้าใช้มีดเล็กๆ แทงทีเดียวในเวลาค่ำมืด ขณะที่มองเห็นไม่ถนัด อาจต้องถือว่าประสงค์หรือมุ่งหมายต่ออันตรายแก่กายหรือจิตใจของผู้เสียหายเท่านั้นก็ได้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; 1.2 เจตนาเล็งเห็นผล หมายความว่า ผู้กระทำไม่ประสงค์ต่อผลแต่เล็งเห็นได้ว่าจะเกิดผลอย่างแน่นอน เท่าที่จิตใจของบุคคลในฐานะเช่นเดียวกับผู้กระทำโดยปกติเล็งเห็นได้ในการวินิจฉัยนั้น ให้พิจารณาถึงเรื่องประสงค์ต่อผลก่อน หากพิจารณาเห็นว่าผู้กระทำไม่ประสงค์ต่อผล จึงค่อยมาพิจารณาต่อไปว่าผู้กระทำเล็งเห็นผลหรือไม่ เจตนาประสงค์ต่อผลหรือเล็งเห็นผลก็มีผลทางกฎหมายอย่างเดียวกันกล่าวคือ ถ้าเป็นเจตนาฆ่าประเภทประสงค์ต่อผล ผู้กระทำก็ผิดฐานฆ่าคนตายโดยเจตนา ตามปอ. มาตรา 288 ถ้าเป็นเจตนาฆ่าประเภทเล็งเห็นผล ผู้กระทำก็ผิดฐานฆ่าคนตายโดยเจตนา ตาม ปอ. มาตรา 288 เช่นเดียวกัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;2. เจตนาพิเศษ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>เจตนาพิเศษ คือ มูลเหตุจูงใจในการกระทำความผิด เจตนาพิเศษเป็นคนละกรณีกับเจตนาธรรมดา เจตนาธรรมดาคือประสงค์ต่อผลหรือเล็งเห็นผล ความผิดใดกฎหมายต้องเจตนาพิเศษ ก็จะบัญญัติถ้อยคำที่แสดงว่าเป็นเจตนาพิเศษไว้ในองค์ประกอบของความผิดนั้น ๆ โดยตรง เช่น คำว่า โดยทุจริต ถือว่าเป็นเจตนาพิเศษของความผิดฐานลักทรัพย์(ประมวลกฎหมายอาญา มาตรา 334) คำว่า เพื่อให้ผู้หนึ่งผู้ใดหลงเชื่อว่าเป็นเอกสารที่แท้จริง เป็นเจตนาพิเศษของความผิดฐานปลอมเอกสาร(มาตรา 264) ในการพิจารณาถ้อยคำนั้น ๆ เป็นเจตนาพิเศษหรือไม่ให้สังเกตที่คำว่า เพื่อ………..หรือคำว่า โดยทุจริต เป็นต้น&nbsp; &nbsp; ความผิดที่กฎหมายต้องการเจตนาพิเศษ เช่น ความผิดฐานปลอมเอกสาร(มาตรา 264)&nbsp; หากผู้กระทำมีแต่เจตนาธรรมดา เช่น ประสงค์ต่อผลหรือเล็งเห็นผลเท่านั้น ผู้กระทำก็ยังไม่มีความผิด โดยถือว่าขาดองค์ประกอบภายใน แต่ถ้าความผิดมาตรา นั้น ๆ กฎหมายไม่ต้องการเจตนาพิเศษ เช่น ความผิดฐานฆ่าคนตายโดยเจตนาตาม มาตรา 288&nbsp; เพียงแต่ผู้กระทำมีเจตนาธรรมดา กล่าวคือ ประสงค์ต่อผลหรือเล็งเห็นผล ผู้กระทำก็มีความผิดแล้ว</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; 3. ประมาท</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>การกระทำโดยประมาท&nbsp; ตามปอ. มาตรา 59 วรรค 4 มีหลักเกณฑ์ดังนี้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>1.&nbsp; &nbsp; &nbsp; &nbsp;มิใช่เป็นการกระทำความผิดโดยเจตนา</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>2.&nbsp; &nbsp; &nbsp; &nbsp;กระทำไปโดยปราศจากความระมัดระวัง ซึ่งบุคคลในภาวะเช่นนั้นจักต้องมีตามวิสัยและพฤติการณ์</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>3.&nbsp; &nbsp; &nbsp; &nbsp;ผู้กระทำอาจใช้ความระมัดระวังเช่นว่านั้นได้ แต่หาได้ใช้ให้เพียงพอไม่</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ลักษณะ ๒ วิธีพิจารณาวิสามัญในศาลชั้นต้น (มาตรา ๑๘๙ - ๒๒๒/๔๙)</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:list -->
+<ul class="wp-block-list"><!-- wp:list-item -->
+<li><a href="https://www.drthawip.com/civilprocedurecode/029">หมวด ๑ วิธีพิจารณาคดีมโนสาเร่ (มาตรา ๑๘๙ - ๑๙๖)</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.drthawip.com/civilprocedurecode/030">หมวด ๒ การพิจารณาโดยขาดนัด (มาตรา ๑๙๗ - ๒๐๙)</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.drthawip.com/civilprocedurecode/033">หมวด ๓ อนุญาโตตุลาการ (มาตรา ๒๑๐ - ๒๒๒)</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://www.drthawip.com/civilprocedurecode/034">หมวด ๔ การดำเนินคดีแบบกลุ่ม (มาตรา ๒๒๒/๑ - ๒๒๒/๔๙)</a></li>
+<!-- /wp:list-item --></ul>
+<!-- /wp:list -->
+
+<!-- wp:paragraph -->
+<p><a href="https://support.apple.com/guide/icloud/welcome/icloud">ราชกิจจานุเบกษา</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>กรุงเทพมหานครในพระบรมมหาราชวัง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>เล่ม ๒๕ฉบับพิเศษ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>หน้า ๒๐๖</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>วันที่ ๑ มิถุนายน รัตนโกสินทร์ศ๔ก๑&nbsp;๑๒๗</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:image {"linkDestination":"custom"} -->
+<figure class="wp-block-image"><a class="mw-file-description" href="https://commons.wikimedia.org/wiki/File:Old_Seal_of_the_Royal_Command_of_Thailand_(3).svg"><img src="https://upload.wikimedia.org/wikipedia/commons/thumb/0/09/Old_Seal_of_the_Royal_Command_of_Thailand_%283%29.svg/250px-Old_Seal_of_the_Royal_Command_of_Thailand_%283%29.svg.png?utm_source=th.wikisource.org&amp;utm_campaign=parser&amp;utm_content=thumbnail" alt="ตราราชโองการ"/></a></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%81%E0%B8%AD">กฎหมายลักษณอาญา</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>ศุภมัสดุ พระพุทธสาสนกาลเปนอดีตภาคล่วงแล้ว ๒๔๕๐ พรรษา ปัตยุบันกาล จันทรคตินิยม มกฎสังวัจฉร จิตรมาศ สุกปักษ์ ปัณรสีดิถี พุฒวาร สุริยคติกาล รัตนโกสินทร์ศก ๑๒๗ เมษายนมาศ ปัณรสมาศาหคุณพิเศษ บริเฉทกาลกำหนด</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>พระบาทสมเด็จพระปรมินทรมหาจุฬาลงกรณ์ บดินทรเทพยมหามกุฎ บุรษยรัตนราชรวิวงษ์ วรุฒมพงษบริพัตร์ วรขัตติยราชนิกโรดม จาตุรันตบรมมหาจักรพรรดิราชสังกาศ อุภโตสุชาตสังสุทธเคราะหณี จักรกรีบรมนารถ มหามกุฎราชวรางกูร สุจริตมูลสุสาธิต อรรคอุกฤษฐไพบูลย์ บุรพาดูลย์กฤษฎาภินิหาร สุภาธิการรังสฤษดิ์ ธัญลักษณวิจิตร์โสภาคยสรรพางค์ มหาชโนตมางคประนต บาทบงกชยุคล ประสิทธิสรรพศุภผลอุดมบรมสุขุมาล ทิพยเทพาวตารไพศาลเกียรติคุณอดุลยพิเศษ สรรพเทเวศรานุรักษ์ วิสิฐศักดิสมญาพินิตประชานารถ เปรมกระมลขัตติยราชประยูร มูลมุขมาตยาภิรมย์อุดมเดชาธิการ บริบูรณ์คุณสารสยามาทินครวรุตเมกราชดิลก มหาปริวารนายกอนันต์มหันตวรฤทธิเดช สรรพวิเศษศิรินธร อเนกชนนิกรสโมสรสมมติ ประสิทธิวรยศมโหดมบรมราชสมบัติ นพปดลเสวตรฉัตราดิฉัตร์ ศิริรัตโนปลักษณมหาบรมราชาภิเศกาภิสิต สรรพทศทิศวิชิตไชย สกลมไหสวริยามหาสวามินทร์ มเหศวรมหินทรมหารามาธิราชวโรดม บรมนารถชาติอาชาวไศรย พุทธาทิไตรรัตนสรณารักษ์ อดุลยศักดิ์อรรคนเรศราธิบดี เมตตากรุณาสีตลหฤไทย อโนปไมยบุญการ สกลไพศาลมหารัษฎาธิบดินทร์ ปรมินทรธรรมิกมหาราชาธิราช บรมนารถบพิตร พระจุลจอมเกล้าเจ้าอยู่หัว</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ทรงพระราชดำริห์ว่า พระราชกำหนดกฎหมายสำหรับพระราชอาณาจักร์สยามนี้ บรมกระษัตริย์แต่โบราณสมัยได้รับคัมภีร์พระธรรมสาตรของมนูสาราจารย์ซึ่งเปนกฎหมายในมัชฌิมประเทศมาเปนหลักของกฎหมายแล้ว</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>แลเมื่อมีเหตุอันใดเกิดขึ้นอันจะตัดสินด้วยพระธรรมสาตรมิได้ โดยกฎหมายพระธรรมสาตรไม่กล่าวถึงก็ดี หรือโดยประเพณีแลความนิยมในสยามประเทศผิดกันกับมัชฌิมประเทศก็ดี บรมกระษัตริย์แต่ปางก่อนก็ทรงตั้งพระราชกำหนดบทพระอัยการขึ้นไว้เปนแบบแผนสำหรับพิพากษาเหตุแลคดีอย่างนั้น ๆ ที่จะมีขึ้นในภายหน้า พระราชกำหนดบทพระอัยการนี้ก็เปนกฎหมายสำหรับพระราชอาณาจักรเพิ่มเติมขึ้นโดยลำดับมา แลพระราชกำหนดบทพระอัยการที่ได้ตั้งมาเปนครั้งเปนคราวนี้ เมื่อล่วงเวลาช้านานเข้า ก็มีมากมายซับซ้อนกัน เกิดลำบากแก่การที่จะพิพากษาอรรถคดี โดยการบ้านเมืองเปลี่ยนแปลงมาพ้นเหตุล่วงสมัยที่จะต้องใช้พระราชกำหนดบทพระอัยการที่กระษัตริย์พระองค์แต่ก่อน ๆ ได้ทรงบัญญัติไว้หลายชั่วอายุคนแล้วบ้าง หรือโดยเหตุที่พระราชกำหนดบทพระอัยการเก่าขัดขวางกับที่บรมกระษัตริย์ภายหลังได้ทรงตั้งขึ้นบ้าง ในเวลาเมื่อถึงความลำบากมีขึ้นเช่นนี้ พระเจ้าแผ่นดินจึงโปรดให้ประชุมลูกขุนณศาลาอันเปนเจ้ากระทรวงฝ่ายธุระการ พร้อมด้วยลูกขุนณศาลหลวงอันมีตำแหน่งในฝ่ายตุลาการ ตรวจชำระพระราชกำหนดกฎหมาย แลทรงพระราชวินิจฉัยให้ยกเลิกบทกฎหมายที่พ้นเวลาแลมิควรจะใช้ออกเสีย คงไว้แต่ที่ยังใช้ได้ จัดระเบียบเข้าเปนลักษณมีหมวดหมู่แลมาตราให้คนทั้งหลายรอบรู้บทกฎหมายง่ายขึ้นแลเปนความสดวกแก่การพิพากษาอรรถคดีทั้งปวงทั่วไป เปนราชประเพณีมีสืบมาแต่โบราณทีเดียวดังนี้ แลการตรวจชำระพระราชกำหนดกฎหมายดังว่ามานี้ ครั้งหลังที่สุดได้มีเมื่อจุลศักราช ๑๑๖๖ ปีชวดฉศก รัตนโกสินทร์ศก ๒๓ ในรัชกาลแห่งสมเด็จพระบรมไปยกาธิราช พระบาทสมเด็จพระพุทธยอดฟ้าจุฬาโลก ตั้งแต่นั้นมาจนบัดนี้นับได้ ๑๐๓ ปี ยังหาได้ตรวจชำระพระราชกำหนดบทพระอัยการให้เรียบร้อยไม่ ก็เปนธรรมดาอยู่เองที่พระราชกำหนดบทพระอัยการอันพ้นความต้องการในสมัยนี้แลที่ขัดขวางกันเองจะมีอยู่เปนอันมาก ทรงพระราชดำริห์เห็นว่า ถึงเวลาสมควรที่จะต้องตรวจชำระพระราชกำหนดกฎหมายอยู่ด้วยเหตุนี้แล้วประการหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>อีกประการหนึ่งในระหว่างตั้งแต่จุลศักราช ๑๒๑๗ ปีเถาะสัปตศก รัตนโกสินทร์ศก ๗๔ มา กรุงสยามได้ทำหนังสือสัญญาทางพระราชไมตรีกับนานาประเทศ แลหนังสือสัญญาทั้งปวงนั้นได้ทำตามแบบหนังสือสัญญาที่ฝรั่งได้ทำกับประเทศทางตวันออก คือประเทศเตอรกี ประเทศจีน แลประเทศยี่ปุ่น เปนต้น มีข้อความอย่างเดียวกันที่ยอมให้กงสุลมีอำนาจตั้งศาลพิจารณาแลพิพากษาคดีตามกฎหมายของเขา ในเมื่อคนในบังคับของชาตินั้น ๆ ที่เข้ามาอยู่ในประเทศทางตวันออกเปนความกันขึ้นเองหรือเปนจำเลยของคนในบังคับของบ้านเมือง ลักษณการอย่างนี้แม้จะมีประโยชน์ที่บันเทาความรับผิดชอบแห่งเจ้าของประเทศได้อยู่บ้างในสมัยเมื่อแรกทำหนังสือสัญญาเวลายังมีชาวต่างประเทศพึ่งเข้ามาค้าขาย แต่ต่อมาเมื่อการค้าขายคบหากับนานาประเทศเจริญแพร่หลาย มีชาวต่างประเทศมาตั้งประกอบการค้าขายในพระราชอาณาจักรมากขึ้น ความลำบากในเรื่องคดีที่เกี่ยวข้องกับคนในบังคับต่างประเทศก็ยิ่งปรากฎเกิดมีทวีมากขึ้นทุกที เพราะเหตุที่คนทั้งหลายอันประกอบการสมาคมค้าขายอยู่ในประเทศบ้านเมืองอันเดียวกันต้องอยู่ในอำนาจศาลแลในอำนาจกฎหมายต่าง ๆ กันตามชาติของบุคคล กระทำให้เปนความลำบากขัดข้องทั้งในการปกครองบ้านเมือง แลกีดกันประโยชน์ของคนทั้งหลายตลอดจนชนชาติต่างประเทศนั้น ๆ เองอยู่เปนอันมาก ความลำบากด้วยเรื่องอำนาจศาลกงสุลเช่นว่ามานี้ย่อมมีทุกประเทศที่ได้ทำสัญญาโดยแบบอย่างอันเดียวกัน แลต่างมีความประสงค์อย่างเดียวกันที่จะหาอุบายเลิกล้างวิธีศาลกงสุลต่างประเทศ ให้คนทั้งหลายไม่ว่าชาติใด ๆ บรรดาอยู่ในประเทศนั้น ๆ ได้รับประโยชน์อยู่ในอำนาจกฎหมายแลอำนาจศาลสำหรับบ้านเมืองแต่อย่างเดียวทั่วกัน ประเทศยี่ปุ่นได้เริ่มริคิดอ่านจัดการเรื่องนี้ก่อนประเทศอื่นโดยวิธีเลือกหาเนติบัณฑิตย์ต่างประเทศที่ชำนาญระเบียบบทกฎหมายฝรั่งมารับราชการเปนที่ปฤกษาทำการพร้อมด้วยข้าราชการยี่ปุ่น ช่วยกันตรวจชำระกฎหมายของประเทศยี่ปุ่นจัดเข้าระเบียบเรียงเรียงให้เปนแบบแผนวิธีทำนองเดียวกับกฎหมายที่ใช้อยู่ในประเทศฝรั่งโดยมาก ทั้งจัดการศาลยุติธรรมให้เปนไปตามสมควรแก่ปัตยุบันสมัยทั่วไปในประเทศยี่ปุ่น เมื่อประเทศทั้งปวงแลเห็นว่ากฎหมายแลศาลของยี่ปุ่นเปนระเบียบแบบแผนเรียบร้อยดีแล้ว ก็ยอมแก้สัญญายกเลิกอำนาจศาลกงสุลให้คนในบังคับต่างประเทศอยู่ในอำนาจกฎหมายแลศาลยี่ปุ่นตั้งแต่นั้นมา มีประเทศยี่ปุ่นที่เลิกอำนาจศาลกงสุลต่างประเทศได้ด้วยอุบายที่จัดการดังกล่าวมานี้เปนปฐม แลเปนทางที่ประเทศอื่น ๆ อันได้รับความลำบากอยู่ด้วยวิธีศาลกงสุลต่างประเทศเข้ามาตั้งในบ้านเมืองจะดำเนิรตามให้สำเร็จประโยชน์อย่างเดียวกันได้ ด้วยเหตุเหล่านี้จึงได้โปรดให้หาเนติบัณฑิตย์ผู้ชำนาญกฎหมายต่างประเทศเข้ามารับราชการหลายนาย มีมองซิเออร์โลแลงยัคแมงส์ผู้ได้เคยเปนเสนาบดีในประเทศเบลเคียม ที่ได้มารับพระราชทานบรรดาศักดิ์เปนเจ้าพระยาอภัยราชานั้นเปนต้น แลเมื่อรัตนโกสินทร์ศก ๑๑๖ ได้ทรงพระกรุณาโปรดให้มีกรรมการผู้ชำนาญกฎหมายทั้งฝ่ายไทยแลต่างประเทศ คือ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>พระเจ้าลูกยาเธอ กรมหมื่นราชบุรีดิเรกฤทธิ์ เสนาบดีกระทรวงยุติธรรม เปนประธาน ๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>พระเจ้าน้องยาเธอ กรมหลวงพิชิตปรีชากร ซึ่งเคยรับราชการในตำแหน่งเสนาบดีกระทรวงยุติธรรม ๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>พระยาประชากิจกรจักร (แช่ม) เมื่อเปนอธิบดีผู้พิพากษาศาลแพ่ง ๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>เจ้าพระยาอภัยราชา ที่ปฤกษาราชการ ๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มองซิเออร์ริชาด์ ยัคส์ เกอกแปตริก เนติบัณฑิตย์เบลเคียม ที่ปฤกษากฎหมาย ๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>หมอโตกีจิ มาเซา เนติบัณฑิตย์ยี่ปุ่นเมื่อเปนผู้ช่วยของที่ปฤกษาราชการ ๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>พร้อมกันตรวจพระราชกำหนดบทพระอัยการเก่าใหม่แลปฤกษาลักษณการที่จะชำระแลจัดระเบียบกฎหมายเปนเดิมมา มองซิเออร์เกอกแปตริกถึงแก่กรรม มองซิเออร์คอร์เนย์ ชเลสเตอร์ เนติบัณฑิตย์เบลเคียม ได้รับตำแหน่งแทน แลได้รับหน้าที่พร้อมด้วยหมอโตกีจิ มาเซา ช่วยกันรวบรวมพระราชกำหนดบทพระอัยการอันควรคงจะใช้ต่อไปเรียบเรียงเปนร่างขึ้นไว้ แต่ยังหาได้ตรวจชำระไม่ ครั้นเมื่อรัตนโกสินทร์ศก ๑๒๓ ทรงพระกรุณาโปรดให้หามองซิเออร์ยอชส์ ปาดู เนติบัณฑิตย์ฝรั่งเศส เข้ามารับราชการในตำแหน่งที่ปฤกษาในการร่างกฎหมาย จึงได้โปรดให้ตั้งกรรมการ มี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มองซิเออร์ยอชส์ ปาดู เปนประธาน ๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มิสเตอร์วิลเลียม แอลเฟรด คุณะ ติลเก ผู้แทนเจ้ากรมอัยการ ๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>พระอัตถการประสิทธิ์ (ปลื้ม) ผู้พิพากษาศาลคดีต่างประเทศ ๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>หลวงสกลสัตยาทร (ทองบุ๋น) ผู้พิพากษาศาลแพ่ง ๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>รับร่างกฎหมายที่กรรมการก่อนได้ทำไว้มาตรวจชำระแก้ไขอิกครั้งหนึ่ง เมื่อกรรมการนี้ได้ชำระร่างกฎหมายส่วนลักษณอาญาเสร็จ แลได้ส่งร่างนั้นไปปฤกษาเจ้ากระทรวงฝ่ายธุระการบรรดามีหน้าที่ราชการเกี่ยวข้องต้องปฏิบัติเนื่องด้วยกฎหมายนี้ทุกกระทรวง แล้วจึงนำร่างนั้นขึ้นทูลเกล้าฯ ถวาย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>พระบาทสมเด็จพระเจ้าอยู่หัวจึงทรงพระกรุณาโปรดให้ตั้งกรรมการเสนาบดี มี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>พระเจ้าน้องยาเธอ กรมหลวงดำรงราชานุภาพ เสนาบดีกระทรวงมหาดไทย เปนประธาน ๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>พระเจ้าน้องยาเธอ กรมหลวงนเรศรวรฤทธิ เสนาบดีกระทรวงนครบาล ๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>พระเจ้าน้องยาเธอ กรมหลวงเทวะวงษ์วโรประการ เสนาบดีกระทรวงต่างประเทศ ๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>พระเจ้าลูกยาเธอ กรมหมื่นราชบุรีดิเรกฤทธิ์ เสนาบดีกระทรวงยุติธรรม ๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>แลให้มีกรรมการสำหรับตรวจเทียบเคียงถ้อยคำบทกฎหมายที่ร่างใหม่กับกฎหมายเก่า มี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>พระเจ้าน้องยาเธอ กรมขุนศิริธัชสังกาศ กรรมการศาลฎีกา เปนประธาน ๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>พระยาประชากิจกรจักร (แช่ม) กรรมการศาลฎีกา ๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>พระบริรักษ์จัตุรงค์ (พุ่ม) กระทรวงต่างประเทศ ๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ช่วยกันตรวจชำระร่างกฎหมายลักษณอาญาที่ร่างใหม่ พร้อมด้วยกรรมการซึ่งมองซิเออร์ยอชส์ ปาดู เปนประธานนั้น เปนชั้นที่สุดอิกชั้นหนึ่ง กรรมการทั้งหลายนี้ได้ลงมือตรวจชำระมาตั้งแต่เดือนกุมภาพันธ์ รัตนโกสินทร์ศก ๑๒๕ ครั้นเมื่อมาประจวบเวลาเสด็จประพาศประเทศยุโรป พระเจ้าลูกยาเธอ กรมหมื่นราชบุรีดิเรกฤทธิ์ ไปตามเสด็จ หมอโตกีจิ มาเซา กรรมการศาลฎีกา แลมิสเตอร์ยอนสติววาด แบล๊ก เนติบัณฑิตย์อังกฤษ กรรมการศาลฎีกา ได้รับหน้าที่ในกรรมการนี้แทนพระเจ้าลูกยาเธอ กรมหมื่นราชบุรีดิเรกฤทธิ์ ตลอดมาจนถึงเดือนกันยายน รัตนโกสินทรศก ๑๒๖ การตรวจชำระร่างกฎหมายลักษณอาญาสำเร็จได้ดังพระราชประสงค์ ได้นำขึ้นทูลเกล้าฯ ถวายเมื่อเสด็จกลับคืนพระนคร ทรงตรวจแก้ไขด้วยพระองค์เองอิกชั้นหนึ่ง แลได้ทรงปฤกษาในที่ประชุมเสนาบดีเห็นชอบโดยพระราชบริหารแล้ว จึงทรงพระกรุณาโปรดเกล้าฯ ให้ตราไว้เปนพระราชบัญญัติสืบไปดังนี้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%90">ความเบื้องต้น</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ให้เรียกพระราชบัญญัตินี้ว่ากฎหมายลักษณอาญา</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ให้ใช้พระราชบัญญัตินี้เปนกฎหมายตั้งแต่วันที่ ๒๑ เดือนกันยายน รัตนโกสินทร์ศ๔ก๑&nbsp;๑๒๗ เปนต้นไป</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ตั้งแต่วันที่ใช้กฎหมายนี้สืบไป ให้ยกเลิก</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)บรรดาพระราชกำหนดกฎหมายที่มีแจ้งอยู่ในบาญชีข้างท้ายกฎหมายนี้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)ข้อความในพระราชกำหนดกฎหมายแลกฎข้อบังคับอื่น ๆ บรรดาที่กฎหมายนี้บัญญัติว่าต้องมีโทษหรือยกเว้นไม่ต้องมีโทษ ให้ใช้กฎหมายนี้แทน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๓)บรรดาพระราชกำหนดกฎหมายแลกฎข้อบังคับอื่น ๆ ที่มีเนื้อความขัดกับกฎหมายลักษณอาญานี้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>กฎหมายลักษณอาญานี้ไม่ลบล้างกฎหมายที่ใช้เฉภาะในศาลกระทรวงวัง ศาลกระทรวงธรรมการ ศาลทหารบก แลศาลทหารเรือ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%91">ภาค ๑<br>ว่าด้วยข้อบังคับต่าง ๆ</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%91%E0%B8%AB%E0%B8%A1%E0%B9%91">หมวดที่ ๑<br>คำอธิบาย</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๕</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>เพื่อจะมิให้เกิดมีความสงไสยในบทกฎหมายนี้ ท่านจึงให้อธิบายคำสำคัญต่าง ๆ ไว้เปนหลักถานในมาตรา ๖ ต่อไปนี้ แลให้ถือตามความอธิบายนั้นเสมอไป เว้นไว้แต่เมื่อคำสำคัญเหล่านี้ คำใดไปปรากฎในที่ใดซึ่งมีเนื้อความขัดกันกับความอธิบายในมาตรา ๖ นี้ไซ้ จึงให้ถือเอาเนื้อความในที่นั้นเปนใหญ่</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๖</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)คำว่ากระทำนั้น ท่านให้ถือว่าไม่หมายความแต่เฉภาะการที่บุคคลกระทำ ให้หมายความได้ตลอดถึงการละเว้นการซึ่งกฎหมายกำชับให้กระทำ แลผลแห่งการที่ละเว้นนั้นด้วย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)ผู้ใดกระทำการอันใดที่ตนมิได้มีอำนาจจะทำได้โดยชอบด้วยกฎหมาย ท่านว่าผู้นั้นกระทำมิชอบ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๓)ผู้ใดกระทำการแสวงหาประโยชน์เพื่อตนเองก็ดี เพื่อผู้อื่นก็ดี อันเปนประโยชน์ที่มิควรได้โดยชอบด้วยกฎหมาย แลเกิดเสียหายแก่ผู้อื่นด้วยไซ้ ท่านว่าผู้นั้นกระทำการทุจริต</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๔)ผู้ใดกระทำการอย่างหนึ่งอย่างใดโดยเจตนาจะให้ผู้อื่นขาดเสียความชอบธรรมที่เขาควรมีควรได้ ท่านว่าผู้นั้นกระทำการฉ้อโกง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๕)ผู้ใดทำสิ่งของเทียมโดยเจตนาจะให้ผู้อื่นหลงว่าเปนของแท้ ท่านว่าผู้นั้นทำของปลอม</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๖)ผู้ใดกระทำการอันใดซึ่งกฎหมายที่คงใช้อยู่ในเวลานั้นบัญญัติว่าจะต้องถูกทำโทษ ท่านว่า ผู้นั้นกระทำความผิด</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๗)คำว่าความผิดต่อส่วนตัวนั้น ท่านหมายความว่าบรรดาความผิดที่จะฟ้องขอให้ศาลพิจารณาทางอาญาได้แต่เมื่อผู้ที่ต้องประทุษฐร้ายหรือเสียหายนั้นได้มาร้องทุกข์ขอให้ว่ากล่าว</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๘)ถ้าบุคคลตั้งแต่สองขึ้นไปสมรู้ด้วยกันเพื่อจะกระทำความผิด ท่านว่าคนเหล่านั้นสมคบกัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๙)บุคคลเอาทรัพย์หรือประโยชน์อย่างใด ๆ อันมิใช่เปนของที่ต้องให้ตามกฎหมายไปให้แก่เจ้าพนักงาน เพื่อให้เจ้าพนักงานกระทำหรือละเว้นไม่กระทำการอย่างหนึ่งอย่างใดในหน้าที่ เช่นนี้ท่านให้ถือว่าเปนการให้สินบน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>สามารถมีกรรมสิทธิ์หรือถืออำนาจเปนเจ้าของได้ เปนต้นว่าเงินตรา แลบรรดาสิ่งของอันพึงเคลื่อนจากที่ได้ก็ดี แลเคลื่อนจากที่มิได้ก็ดี ท่านก็นับว่าเปนทรัพย์อันกล่าวมาในข้อนี้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑๑)ทางหลวงนั้น ท่านหมายความว่าบรรดาทางบกแลทางน้ำทั่วไปซึ่งใช้เปนทางสัญจรสำหรับสาธารณชน แลนับรวมตลอดถึงถนนหลวงด้วย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑๒)ถนนหลวงนั้น ท่านหมายความว่าที่หรือถนนแลทางบกต่าง ๆ ซึ่งสาธารณชนมีความชอบธรรมที่จะใช้เปนทางสัญจร แลนับรวมตลอดถึงทางรถไฟแลทางรถรางที่มีรถเดิรสำหรับให้คนโดยสานนั้นด้วย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑๓)ที่สาธารณสถานนั้น ท่านหมายความว่าบรรดาที่ต่าง ๆ จะเปนที่มีเคหสถานก็ดี หรือเปนที่ว่างเปล่าก็ดี ซึ่งสาธารณชนมีความชอบธรรมที่จะเข้าไปได้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑๔)ที่อาศไรยนั้น ท่านหมายความว่าเคหสถานที่คนอยู่อาไศรย เช่นเรือน โรง เรือ แพ แลชุมรุม เปนต้น แลนับรวมตลอดถึงสิ่งที่อยู่ในบริเวณเกี่ยวเนื่องกับเคหสถานนั้นด้วย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑๕)สาตราวุธนั้น ท่านหมายความว่าเครื่องประหารอันสามารถจะใช้กระทำแก่ร่างกายให้แตกหักบุบฉลายได้ถึงสาหัส คือปืน ดาบ หอก แหลน หลาว มีด แลตระบอง เปนต้น</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑๖)ที่เรียกว่าปสุสัตว์แลสัตว์พาหะนะนั้น ท่านหมายความตลอดถึงช้าง ม้า โค กระบือ ล่อ แพะ แกะ แลสุกรด้วย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑๗)จดหมายนั้น ท่านหมายความว่าเครื่องหมายแทนถ้อยคำหรือจำนวนเลข ไม่ว่าทำด้วยกิริยาที่ขีดเขียนจารึกหรือพิมพ์แลถ่ายด้วยวิธีอย่างใด ๆ เครื่องหมายเช่นว่ามานี้นับว่าจดหมาย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑๘)หนังสือนั้น ท่านหมายความว่าบรรดาจดหมายที่จะใช้เปนพยานแห่งถ้อยคำที่เขียนไว้ในนั้นได้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑๙)หนังสือราชการนั้น ท่านหมายความว่าบรรดาหนังสือที่เจ้าหน้าที่เรียบเรียงหรือรับว่าเปนของแท้ แลหมายความตลอดถึงหนังสือที่เจ้าหน้าที่รับว่าเปนสำเนาอันแท้จริงของหนังสือนั้น ๆ ด้วย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒๐)หนังสือสำคัญนั้น ท่านหมายความว่าบรรดาหนังสือซึ่งเปนสำคัญแก่การตั้งกรรมสิทธิ์หรือหนี้สิน แลบรรดาหนังสือที่เปนหลักถานแก่การเปลี่ยนแก้หรือเลิกล้างโอนกรรมสิทธิ์หรือหนี้สินทุกอย่าง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒๑)ลายมือนั้น ท่านหมายความทั้งที่ลงชื่อเปนตัวอักษรแลลงแกงไดลายนิ้วมือเปนเครื่องหมายต่างอักษรชื่อซึ่งบุคคลไม่รู้หนังสือเขียนลงไว้ในจดหมายนั้นด้วย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒๒)ปีหนึ่งนั้น ท่านหมายความว่าระยะเวลาสิบสองเดือนตามสุริยคติกาลโดยวิธีของรัฐบาล</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒๓)วันหนึ่งนั้น ท่านหมายความว่าระยะเวลายี่สิบสี่ชั่วโมง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒๔)กลางคืนนั้น ท่านหมายความว่าเวลาระหว่างตั้งแต่พระอาทิตย์ตกไปจนพระอาทิตย์ขึ้น</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒๕)ตอนนั้น ท่านหมายความว่าส่วนข้อความในมาตราหนึ่งที่ตั้งต้นด้วยบรรทัดย่อหน้า</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒๖)ข้อนั้น ท่านหมายความว่าส่วนข้อความในมาตราหนึ่งที่ขึ้นต้นด้วยบรรทัดย่อแลมีเครื่องหมายเปนอักษรหรือเปนเลขกำกับอยู่ข้างหน้า</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%91%E0%B8%AB%E0%B8%A1%E0%B9%92">หมวดที่ ๒<br>ว่าด้วยการใช้กฎหมายลักษณอาญา</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๗</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>บุคคลควรรับอาญาต่อเมื่อมันได้กระทำการอันกฎหมายซึ่งใช้อยู่ในเวลาที่กระทำนั้นบัญญัติว่าเปนความผิดแลกำหนดโทษไว้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>แลอาญาที่จะใช้ลงโทษผู้กระทำผิดนั้นก็ไม่ควรใช้อาญาอย่างอื่นนอกจากอาญาที่ได้บัญญัติไว้ในกฎหมาย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๘</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>เมื่อใดความปรากฏว่ากฎหมายที่ใช้อยู่ในขณะเมื่อผู้ต้องหากระทำการที่เกิดเปนคดีขึ้นนั้นต่างกันกับกฎหมายที่ใช้อยู่ในขณะเมื่อพิจารณาคดีไซ้ ท่านให้ใช้กฎหมายฝ่ายที่มีโทษเบาแก่ผู้ต้องหา</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๙</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>บุคคลกระทำผิดภายในสยามประเทศ ท่านให้พิจารณาแลลงอาญาตามพระราชกำหนดกฎหมาย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๐</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดกระทำความผิดภายนอกสยามประเทศ จะต้องรับอาญาภายในพระราชอาณาจักรแต่ในคดีเหล่านี้ คือ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)คดีที่กระทำผิดคิดประทุษฐร้ายต่อพระเจ้าอยู่หัว หรือประทุษฐร้ายต่อพระราชอาณาจักร์ ตามความที่กล่าวไว้ตั้งแต่มาตรา ๙๗ จนมาตรา ๑๑๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)คดีที่เปนความผิดในทางปลอมเงินตรา ปลอมดวงตรา หรือปลอมบัตร์ตราหลวง ตามความที่กล่าวไว้ตั้งแต่มาตร ๒๐๒ จนมาตรา ๒๒๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๓)คดีที่เปนความผิดในฐานโจรสลัด</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๔)คดีที่คนในบังคับสยามไปกระทำผิดประกอบพร้อมด้วยเหตุ ๔ ประการนี้ คือ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ประการที่๑รัฐบาลประเทศอื่นหรือบุคคลที่ได้รับความเสียหายได้ร้องฟ้องขอให้ทำโทษ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ประการที่๒ความผิดที่ได้กระทำนั้น กฎหมายในเมืองที่ผู้นั้นไปกระทำผิดบัญญัติว่าจะต้องถูกลงอาญา</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ประการที่๓ความผิดที่กระทำนั้น แม้กระทำในสยามประเทศ พระราชกำหนดกฎหมายก็บัญญัติว่าจะต้องถูกลงอาญา</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ประการที่๔ผู้กระทำผิดนั้น ศาลในประเทศที่มันไปกระทำผิดไม่ได้ตัดสินปล่อยมันเสียโดยว่าไม่มีโทษ หรือศาลตัดสินให้ลงอาญาแล้ว แต่มันยังไม่ได้รับอาญาตามคำตัดสินหรือยังไม่พ้นอาญาด้วยความยกเว้นแลลดหย่อนผ่อนโทษให้แก่มัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>บรรดาความที่บัญญัติไว้ในภาค ๑ แห่งกฎหมายลักษณอาญานี้ ท่านให้ใช้ได้ทั่วไปในสรรพคดีซึ่งพระราชกำหนดกฎหมายอื่นบัญญัติว่าเปนความผิดอันควรลงอาญา เว้นเสียแต่ที่พระราชกำหนดกฎหมายนั้น ๆ บัญญัติไว้เปนอย่างอื่น</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%91%E0%B8%AB%E0%B8%A1%E0%B9%93">หมวดที่ ๓<br>ว่าด้วยอาญาแลการลงอาญา</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๒</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>อาญาสำหรับลงโทษแก่ผู้กระทำผิดนั้น ท่านกำหนดไว้เปนหกสฐานดังนี้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>สฐานหนึ่งให้ประหารชีวิตร์</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>สฐานหนึ่งให้จำคุก</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>สฐานหนึ่งให้ปรับ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>สฐานหนึ่งให้อยู่ภายในเขตร์ที่อันมีกำหนด</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>สฐานหนึ่งให้ริบทรัพย์</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>สฐานหนึ่งให้เรียกประกันทานบน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดต้องคำพิพากษาให้ลงอาญาประหารชีวิตร์ ท่านให้เอามันไปตัดศีร์ษะเสีย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าจะลงอาญาประหารชีวิตร์แก่ผู้ใด ท่านให้นำความขึ้นกราบบังคมทูลพระกรุณาเสียก่อน ต่อได้รับพระราชทานพระบรมราชาอนุญาตแล้ว จึงให้เอาตัวมันไปประการชีวิตร์ณะตำบลแลในเวลาที่เจ้าพนักงานผู้มีหน้าที่ในการอันนั้นจะเห็นสมควร</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๕</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ศพของคนที่ต้องอาญาประหารชีวิตร์นั้น ถ้ามีญาติมาขอรับศพไปปลง ก็ให้ให้ไป แต่ห้ามมิให้ไปทำการปลงศพคนโทษที่ต้องประหารชีวิตร์นั้นเปนการเอิกเกริก</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๖</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>หญิงใดจะต้องประหารชีวิตร์ ถ้ามีครรภ์ ท่านให้รอไว้ให้มันคลอดเสียก่อน จึงให้ประหารชีวิตร์</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๗</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>โทษปรับนั้น ท่านหมายความว่าจำนวนเงินอันกำหนดไว้ในคำพิพากษาให้ปรับเปนพินัยหลวง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๘</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดต้องคำพิพากษาให้ปรับ แลมิใช้ค่าปรับภายในสิบห้าวันนับตั้งแต่วันคำพิพากษาถึงที่สุดนั้น ให้ยึดทรัพย์สมบัติมันใช้ค่าปรับ หรือมิฉนั้นให้เอาตัวมันจำคุกแทนค่าปรับ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>แลการจำคุกแทนค่าปรับเช่นนี้ ท่านกำหนดเปนอัตราไว้ว่าให้จำวันหนึ่งแทนราคาค่าปรับบาทหนึ่งเปนประมาณ แต่ห้ามมิให้จำคุกด้วยโทษฐานนี้เกินกว่าปีหนึ่งขึ้นไป</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๙</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดนำค่าปรับมาเสียได้ครบจำนวนในเวลาต้องจำคุกแทนค่าปรับอยู่ ท่านให้ตั้งรายวันที่จำคุกมาแล้วเท่าใด ให้คิดหักลดเงินให้มันวันละบาทหนึ่ง แลปล่อยตัวมันให้พ้นไปจากเวนจำ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๐</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดต้องคำพิพากษาให้ปรับ ถ้าศาลเห็นเหตุอันควรสงไสยว่ามันจะหลีกเลี่ยงไม่นำค่าปรับมาส่งไซ้ ศาลจะบังคับเรียกประกันผู้นั้นก็ได้ ถ้าแลมันหาประกันให้มิได้ ศาลจะให้จับตัวมันคุมขังไว้ก็ได้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดกระทำความผิดอันต้องด้วยโทษปรับสฐานเดียว ถ้าแลมันเอาค่าปรับอันเปนจำนวนอย่างสูงตามที่กฎหมายกำหนดไว้สำหรับความผิดเช่นนั้นมาใช้ก่อนเวลาพิจาณราไซ้ ท่านให้ยกเลิกคดีนั้นเสีย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๒</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>บรรดาบุคคลที่ศาลพิพากษาว่ามีความผิดอย่างเดียวกันในคดีอันเดียวกัน แม้ศาลพิพากษาให้ปรับไซ้ ศาลจะพิพากษาให้คนเหล่านั้นต้องเสียค่าปรับด้วยกันทุกคน หรือมิฉนั้นศาลจะบังคับให้คนหนึ่งคนใดในคนเหล่านั้นเสียค่าปรับจนครบก็ได้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>แต่ที่จะพิพากษาให้ปรับด้วยกันหรือปรับแทนกันเช่นนี้ ท่านให้ใช้แต่เฉภาะส่วนค่าปรับ ห้ามมิให้ใชถึงการจำคุกแทนค่าปรับ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ในกฎหมายนี้ บรรดาบทที่ท่านกำหนดโทษทั้งจำคุกแลปรับเปนสองสฐาน ให้ศาลวินิจฉัยตามเหตุการ ถ้าเห็นสมควร จะยกโทษปรับเสียให้จำเลยรับแต่โทษจำคุกสฐานเดียวก็ได้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>โทษสฐานให้อยู่ภายในเขตรที่อันมีกำหนดนั้น ท่านบัญญัติไว้เปนสองอย่าง คือ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)ห้ามมิให้เข้าไปในท้องที่หรือจังหวัดที่ที่กำหนดไว้ในคำพิพากษา</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)บังคับให้อยู่แต่ในท้องที่หรือจังหวัดที่ซึ่งเจ้าพนักงานฝ่ายธุระการจะได้กำหนดให้อยู่</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ในสองอย่างนั้น ให้ศาลมีอำนาจเลือกใช้ตามสมควรแก่เหตุ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๕</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>โทษสฐานให้อยู่ภายในเขตร์ที่อันมีกำหนดนั้น จะพิพากษาให้เปนโทษเพิ่มโทษสฐานอื่นก็ได้ แต่อย่ากำหนดเวลาเกินกว่าเจ็ดปีเปนอย่างหนัก จะกำหนดเท่าใดให้ว่าไว้ในคำพิพากษาด้วย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๖</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>บรรดาทรัพย์ซึ่งศาลพิพากษาให้ริบนั้น ท่านให้ส่งไว้เปนของหลวงทั้งสิ้น</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๗</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ในการริบนั้น นอกจากคดีที่กล่าวไว้โดยเฉภาะในภาคที่ ๒ แห่งกฎหมายนี้ ท่านให้ศาลมีอำนาจที่จะสั่งให้ริบทรัพย์สิ่งของที่ว่าไว้ในมาตรานี้ได้อีกโสดหนึ่ง คือ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)สิ่งของที่บุคคลใช้หรือมีไว้โดยเจตนาจะใช้สำหรับกระทำความผิด ท่านว่าเปนของควรริบอย่างหนึ่ง เว้นแต่ถ้าสิ่งของที่ว่ามาในข้อนี้เปนของ ๆ ผู้อื่นที่เขามิได้รู้เห็นเปนใจด้วยในการที่กระทำผิดหรือเจตนาที่จะกระทำผิดนั้น ท่านว่ามิควรริบ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)ทรัพย์ที่บุคคลได้มาโดยได้กระทำความผิด ท่านว่าเปนของควรริบอิกอย่างหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>เว้นแต่ถ้าทรัพย์นั้นมีเจ้าของควรได้คืนตามกฎหมาย ท่านจึงมิให้ริบ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๘</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ทรัพย์อย่างใด ๆ ที่กฎหมายบัญญัติไว้ว่าถ้าผู้ใดทำ หรือใช้ หรือมีไว้ หรือขาย หรือทอดตลาด เปนความผิดนั้น ท่านให้ริบเสียทั้งสิ้น ไม่ว่าเปนของ ๆ ผู้กระทำผิดหรือมิใช่ แลไม่ให้ถือเอาเหตุที่คำพิพากษาว่าผู้หนึ่งผู้ใดกระทำผิดในคดีนั้นหรือไม่ผิด เปนประมาณในการที่จะสั่งให้ริบทรัพย์ที่ว่ามาในมาตรานี้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๙</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าผู้ใดไม่นำทรัพย์ที่ต้องริบมาส่งต่อศาล ท่านให้ศาลตีราคาทรัพย์นั้นไว้ตามที่เห็นสมควร แลให้ศาลมีอำนาจสั่งให้ยึดทรัพย์สมบัติของผู้นั้นใช้ราคาจงเต็ม หรือมิฉนั้นสั่งให้จำคุกแทนราคานั้นตามลักษณจำคุกแทนค่าปรับที่กล่าวไว้ในมาตรา ๑๘, ๑๙, แล ๒๐ แต่อย่าให้จำคุกเพราะความผิดที่ว่ามาในมาตรานี้เกินกว่าหกเดือนเปนอย่างช้า</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๐</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>เมื่อผู้ใดแสดงความอาฆาฏมาดร้ายแก่ผู้อื่นก็ดี หรือเมื่อศาลพิจารณาเห็นเหตุอันควรเชื่อว่าผู้ใดจะก่อการร้ายให้เกิดภยันตรายแก่ผู้อื่นก็ดี หรือเมื่อปรากฎแก่ศาลว่าผู้ใดเปนคนจรจัดไม่มีที่อยู่เปนหลักแหล่ง แลไม่ปรากฎการทำมาหาเลี้ยงชีพด้วยประการใดก็ดี ศาลมีอำนาจที่จะบังคับเรียกประกันทานบน หรือเรียกแต่ทานบน ให้ผู้นั้นสัญญาว่าจะประพฤติตนรักษาความเรียบร้อยมิกระทำให้เกิดเหตุร้ายตลอดเวลาที่ศาลจะกำหนดให้ไม่เกินกว่าสองปี แลจำนวนเงินค่าปรับเมื่อทำผิดทานบนนั้นแล้วแต่ศาลจะกำหนด แต่อย่าให้เกินห้าร้อยบาทขึ้นไป</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าผู้ใดที่ศาลบังคับเรียกประกันตามความที่กล่าวมาในมาตรา ๓๐ นั้นหาประกันมาให้มิได้ไซ้ ศาลจะสั่งให้เอาตัวผู้นั้นจำคุกเร่งประกันก็ได้ แต่อย่าให้จำคุกเพราะเหตุเช่นนี้เกินกว่าหกเดือนเปนอย่างช้า</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๒</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>กำหนดเวลาที่ผู้กระทำผิดต้องจำคุกตามคำพิพากษานั้น ท่านให้นับวันที่มันต้องคุมขังมาในคดีเรื่องนั้นแต่ก่อนได้พิพากษาโทษรวมเข้าในกำหนดโทษตามคำพิพากษาด้วย เว้นไว้แต่ถ้ามีความปรากฎในคำพิพากษาสั่งเปนอย่างอื่น จึงให้กำหนดตามที่ว่าไว้ในคำพิพากษา</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ในการนับกำหนดเวลาที่ผู้กระทำผิดต้องจำคุกนั้น ท่านให้นับวันแรกที่ต้องจำคุกเปนวันหนึ่ง ไม่ว่าจะส่งตัวเข้าจำคุกเช้าสายบ่ายเย็นประการใด แลให้นับสามสิบวันเปนเดือนหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>เมื่อจะปล่อยนักโทษจากเวรจำ ท่านให้ปล่อยในวันที่ถัดวันครบกำหนดเวลาต้องจำคุกตามคำพิพากษา</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>บรรดาบทที่บัญญัติไว้ในกฎหมายนี้ว่าด้วยการเพิ่มอาญาหรือลดอาญานั้น ท่านมิให้ใช้เพิ่มแลลดในส่วนโทษริบทรัพย์</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๕</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้มีความผิดโทษไม่ถึงประหารชีวิตร์แลไม่ถึงจำคุกจนตลอดชีวิตร์นั้น ถ้าจะต้องเพิ่มอาญาขึ้นด้วยเหตุประการใด ท่านมิให้เพิ่มขึ้นถึงโทษประหารชีวิตร์หรือถึงจำคุกจนตลอดชีวิตร์</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๖</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ในการที่จะเพิ่มกำหนดเวลาจำคุกผู้กระทำผิดนั้น ท่านให้พิจารณาดูกำหนดที่มันต้องจำคุกอยู่แล้วนั้นก่อน แลห้ามมิให้เพิ่มกำหนดเวลาให้มันต้องจำคุก ทั้งในกำหนดเดิมแลกำหนดที่เพิ่มใหม่ รวมกันเกินกว่ายี่สิบปีขึ้นไป</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๗</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าผู้ใดมีความผิดโทษถึงประหารชีวิตร์ แลมีเหตุอันสมควรที่มันจะได้รับความลดหย่อนอาญาลงตามกฎหมาย ท่านให้ถือเปนกำหนดดังนี้ คือ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)ถ้าจะลดลงส่วนหนึ่งในสาม ให้ลดลงเปนอาญาจำคุกจนตลอดชีวิตร์หรือจำคุกตั้งแต่สิบหกปีถึงยี่สิบปี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)ถ้าจะลดลงกึ่งหนึ่ง ให้ลดลงเปนอาญาจำคุกจนตลอดชีวิตร์หรือจำคุกตั้งแต่สิบสองปีถึงยี่สิบปี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๘</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดมีความผิดโทษถึงจำคุกจนตลอดชีวิตร์ แลมีเหตุอันสมควรที่มันจะได้รับความลดหย่อนอาญาลงตามกฎหมาย ท่านให้ถือเปนกำหนดังนี้ คือ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)ถ้าจะลดลงส่วนหนึ่งในสาม ให้ลดลงเปนอาญาจำคุกตั้งแต่สิบสองปีถึงสิบหกปี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)ถ้าจะลดลงกึ่งหนึ่ง ให้ลดลงเปนอาญาจำคุกตั้งแต่เก้าปีถึงสิบสองปี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๙</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>เมื่อมีเหตุอันควรที่ผู้กระทำผิดจะต้องถูกเพิ่มโทษแลได้ลดโทษในคดีเดียวกันตามบทต่างกันในกฎหมายนี้ไซ้ ท่านว่าถ้าโทษที่ควรเพิ่มแลที่ควรลดมีกำหนดเสมอกัน ก็ให้หักกลบลบกันไป ไม่ต้องเพิ่มแลไม่ต้องลด ถ้าแลมิเสมอกัน ท่านให้ศาลตั้งอาญาที่ควรเพิ่มเพียงใดนั้นบวกไว้ในกำหนดก่อน แล้วจึงให้คิดส่วนที่ควรลดหักทอนลง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๔๐</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>เมื่อผู้ที่ต้องคำพิพากษาให้ลงโทษได้รับความลดหย่อนอาญาลงตามบทกฎหมายนี้จนเหลือแต่อาญาอย่างเบาเพียงต้องจำคุกเดือนหนึ่งหรือต่ำกว่าเดือนหนึ่งแลปรับด้วยเท่านั้นไซ้ ท่านว่าศาลจะกำหนดเวลาจำคุกผู้นั้นให้น้อยลงกว่านั้นอิก ทั้งปรับด้วยหรือไม่ปรับด้วยก็ได้ หรือจะยกอาญาจำคุกเสีย จะให้คงแต่ปรับสฐานเดียวก็ได้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๔๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าผู้ที่ต้องคำพิพากษาให้รับอาญาจำคุกเพียงปีหนึ่งก็ดี หรือไม่ถึงปีหนึ่งก็ดี เปนคนยังไม่เคยต้องคำพิพากษาว่าได้กระทำความผิดมาแต่ก่อน ท่านให้ศาลวินิจฉัยดู ถ้าเห็นสมควร จะสั่งในคำพิพากษาให้รอการลงอาญาไว้ก่อนก็ได้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๔๒</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>เมื่อศาลได้สั่งให้รอการลงอาญาผู้ใดไว้ตามความที่กล่าวมาในมาตรา ๔๑ แลผู้นั้นประพฤติตัวดี ไม่กระทำความผิดอย่างหนึ่งอย่างใดที่ว่าไว้ในภาคที่ ๒ ตั้งแต่ส่วนที่ ๑ จนถึงส่วนที่ ๙ ตลอดเวลาห้าปีแล้ว ท่านให้ยกโทษที่รอไว้ให้แก่มันทีเดียว</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าแลภายในเวลาห้าปีนั้น มันกระทำผิดอย่างหนึ่งอย่างใดที่ว่าไว้ในภาค ๒ ตั้งแต่ส่วนที่ ๑ จนถึงส่วนที่ ๙ ขึ้นไซ้ ท่านให้ลงอาญาที่ได้รอไว้ไปทีเดียวเปนโสดหนึ่งต่างหากจากอาญาที่มันจะต้องรับสำหรับความผิดครั้งหลัง หรือที่จะต้องเพิ่มโทษฐานทำความผิดหลายครั้งไม่เข็ดหลาบนั้น ที่ว่านี้คือว่าผู้กระทำผิดนั้นจะต้องรับอาญาสำหรับความผิดทั้งสองคราวบวกกัน แลเมื่อศาลพิพากษาโทษครั้งที่สองนั้น ควรเพิ่มโทษฐานที่ไม่เข็ดหลาบด้วย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%91%E0%B8%AB%E0%B8%A1%E0%B9%94">หมวดที่ ๔<br>ว่าด้วยเหตุอันควรยกเว้นอาญา<br>หรือลดหย่อนผ่อนอาญา<br>ให้แก่บุคคลผู้กระทำความผิด</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๔๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ต่อผู้ใดกระทำโดยเจตนา ผู้นั้นจึงควรรับอาญา ถ้าแลมันมิได้มีใจเจตนาที่จะกระทำ ท่านว่าอย่าให้ลงอาญาแก่มันเลย เว้นแต่เมื่อมันกระทำโดยประมาทต้องตามลักษณที่กฎหมายบัญญัติไว้ว่ามีโทษ ท่านจึงให้ลงอาญาแก่มันฐานกระทำการโดยประมาท</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ที่ว่ากระทำโดยเจตนานั้น ท่านอธิบายว่าบุคคลกระทำโดยตั้งใจ แลประสงค์ต่อผลหรืออาจจะแลเห็นผลแห่งการที่กระทำนั้นได้ อย่างนี้ชื่อว่ากระทำโดยเจตนา</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ที่ว่ากระทำโดยประมาทนั้น ท่านอธิบายว่าบุคคลกระทำโดยมิได้ตั้งใจ แต่กระทำโดยอาการอย่างใดอย่างหนึ่งดังว่าต่อไปนี้ คือ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)กระทำโดยปราศจากความรมัดระวังอันควรเปนวิไสยของปรกติชนก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)ผู้หาเลี้ยงชีพด้วยศิลปสาตร์ในกิจการอย่างหนึ่งอย่างใด เช่นเปนหมอหรือเปนช่างเปนต้น ละเลยการอันควรต้องทำให้ดีในทางศิลปสาตร์นั้นเสียก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๓)ทำฝ่าฝืนกฎหมาย ข้อบังคับหรือคำสั่งอันชอบด้วยกฎหมายก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>เหล่านี้ถึงกระทำโดยมิได้ตั้งใจ ท่านก็ว่ากระทำโดยฐานประมาท</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๔๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าผู้ใดที่เจตนาจะกระทำร้ายแก่ผู้หนึ่งไปกระทำผิดตัวโดยหลงก็ตาม หรือโดยพลั้งพลาดก็ตาม ท่านว่ามันควรรับอาญาตามที่กฎหมายบัญญัติไว้สำหรับความผิดนั้นฐานทำโดยเจตนา</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๔๕</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>บุคคลที่กระทำความผิดไม่รู้กฎหมาย ท่านว่าจะเอาความที่ไม่รู้กฎหมายมาแก้ตัวเพื่อให้พ้นผิดนั้นไม่ได้เลย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๔๖</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดกระทำผิดในเวลาวิกลจริตอันเกิดแต่สัญญาวิปลาศก็ตาม เกิดแต่พยาธิก็ตาม ถ้าปรากฎว่ามันไม่สามารถจะรู้ผิดชอบหรือยับยั้งได้ในเวลาที่กระทำผิดเพราะเหตุวิกลจริตนั้นไซ้ ท่านว่าอย่าให้เอาโทษแก่มันเลย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>แต่ถ้าศาลพิเคราะห์เห็นว่าจะปละปล่อยผู้วิกลจริตนั้นไปอาจจะเกิดเหตุภยันตรายแก่ผู้อื่น จะสั่งให้ส่งตัวมันให้เจ้าพนักงานกักขังรักษาไว้ในโรงพยาบาลสำหรับคนวิกลจริตหรือเอาไปคุมขังรักษาไว้ในที่อื่นเพื่อป้องกันภยันตรายอย่าให้มีแก่สาธารณชนก็ได้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๔๗</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดกระทำผิดในเวลาวิกลจริตอันเกิดแต่สัญญาวิปลาศก็ตาม เกิดแต่พยาธิก็ตาม ถ้าปรากฎว่าในเวลากระทำนั้น มันยังมีสติพอจะรู้ผิดชอบหรือยับยั้งได้ ท่านว่ามันควรต้องมีโทษ แต่ศาลจะเห็นสมควรลดหย่อนอาญาให้เบาลงกว่าที่กฎหมายกำหนดไว้สำหรับความผิดนั้นก็ได้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๔๘</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ความวิกลจริตเพราะเสพย์สุรายาเมานั้น ท่านมิให้นับว่าต้องด้วยความยกเว้นหรือลดหย่อนผ่อนโทษตามที่ว่ามาในมาตรา ๔๖&nbsp;แลมาตรา ๔๗ เว้นแต่ถ้าปรากฎว่าเมื่อเสพย์สุรายาเมานั้น ผู้เสพย์มิได้รู้ว่าเปนสุรายาเมาก็ดี หรือผู้อื่นใช้กำลังแลอำนาจข่มขืนใจให้มันต้องจำเสพย์สุรายาเมาก็ดี ท่านจึงให้ยกโทษให้ในฐานวิกลจริต</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๔๙</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดกระทำความผิดเพราะต้องทำด้วยความจำเปนในเหตุเหล่านี้ คือว่า</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)เพราะมันอยู่ในที่บังคับแลในใต้อำนาจที่มันไม่สามารถจะขัดขืนหรือหลีกเลี่ยงได้ก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)มันไม่มีเจตนาชั่วร้าย แต่ต้องกระทำผิดเพื่อจะป้องกันตัวเองหรือผู้อื่นให้พ้นภยันตรายอันร้ายแรงซึ่งมันมิได้ก่อให้เกิดขึ้นเอง และจะป้องกันภยันตรายนั้นด้วยอุบายอย่างอื่นมิได้ก็ดี ถ้าความผิดของมันในสองข้อที่กล่าวนี้ไม่ปรากฎว่ามันได้กระทำเกินไปกว่าสมควรแก่เหตุแล้ว ท่านว่าอย่าให้เอาโทษแก่มันเลย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>แต่ความกรุณาที่ว่ามานี้ ท่านมิให้ใช้ในส่วนคดีที่กระทำผิดคิดประทุษฐร้ายต่อพระเจ้าอยู่หัว หรือประทุษฐร้ายต่อพระราชอาณาจักร์ ตามที่กล่าวไว้ตั้งแต่มาตรา ๙๗ จนมาตรา ๑๑๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๕๐</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>บุคคลที่กระทำการอย่างหนึ่งอย่างใดแต่พอสมควรแก่เหตุ โดยมีความจำเปนเพื่อป้องกันชีวิตร์ เกียรติยศ แลชื่อเสียง หรือทรัพย์ของตัวมันเองก็ดี หรือของผู้อื่นก็ดี เพื่อให้พ้นภยันตรายซึ่งเกิดโดยผิดด้วยกฎหมาย ท่านว่าไม่ควรลงอาญาแก่มัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๕๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>การต่อสู้เจ้าพนักงานที่กระทำการอย่างใดใดตามหน้าที่นั้น ท่านว่ามิให้นับว่าเปนการป้องกันที่ชอบด้วยกฎหมาย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๕๒</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดกระทำการตามคำสั่งอันชอบด้วยกฎหมาย ท่านว่าผู้นั้นไม่ควรรับอาญา</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ที่ว่ากระทำการตามคำสั่งอันชอบด้วยกฎหมายนั้น ท่านอธิบายไว้ดังนี้ คือ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)การที่กระทำเปนการต้องตามพระราชกำหนดกฎหมายที่ใช้อยู่ในเวลานั้น</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)บุคคลกระทำการตามคำสั่งของเจ้าพนักงานฝ่ายทหารก็ดี พลเรือนก็ดี อันตนมีหน้าที่ที่จะต้องฟังบังคับบัญชา แม้ว่าคำสั่งนั้นจะผิดกฎหมาย ถ้าปรากฎว่าผู้รับคำสั่งไปกระทำกระทำโดยเชื่อว่าชอบด้วยกฎหมายโดยเหตุผลอันสมควร ท่านก็ให้ถือว่าผู้รับคำสั่งไปกระทำการนั้นไม่ควรรับอาญาเหมือนกัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๕๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าผู้ใดที่กระทำความผิดอันต้องด้วยลักษณยกเว้นประการหนึ่งประการใดตามที่ว่ามาตั้งแต่มาตรา ๔๙ จนถึงมาตรา ๕๒ นั้นได้กระทำเกินไปกว่าสมควรแก่เหตุก็ดี หรือเกินไปกว่าที่กฎหมายอนุญาตให้ทำได้ก็ดี ท่านว่าผู้นั้นควรมีโทษ แต่ศาลจะลดหย่อนอาญาที่กฎหมายบัญญัติไว้สำหรับความผิดเช่นนั้นให้เบาลงก็ได้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๕๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดกระทำความผิดฐานประทุษฐร้ายต่อทรัพย์สมบัติตามที่กล่าวไว้ตั้งแต่มาตรา ๒๘๘ จนถึงมาตรา ๒๙๖ ก็ดี ตั้งแต่มาตรา ๓๐๔ จนถึงมาตรา ๓๒๑ ก็ดี ตั้งแต่มาตรา ๓๒๔ จนถึงมาตรา ๓๒๙ ก็ดี แลในมาตรา ๓๔๐ นั้นก็ดี ถ้ากระทำแก่ทรัพย์ญาติที่สืบสายโลหิตนับโดยตรงขึ้นไป คือพ่อ, แม่, ปู่, ย่า, ตา, ยาย, ทวด ของมันเองก็ดี นับโดยตรงลงมา คือลูก, หลาน, เหลน, ลื่อ ของมันเองก็ดี ท่านว่ามันควรรับอาญาที่กฎหมายบัญญัติไว้สำหรับความผิดเช่นนั้นแต่กึ่งหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าแลความเช่นว่ามานี้เปนความผิดที่สามีกระทำต่อภรรยา หรือภรรยากระทำต่อสามี ท่านว่าไม่มีโทษ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๕๕</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>เมื่อผู้ใดถูกกดขี่ข่มเหงอย่างร้ายแรงด้วยเหตุอันไม่เปนธรรม แลมันบันดาลโทษะขึ้นในขณะนั้น ถ้าแลมันแลกระทำผิดในขณะนั้นไซ้ ท่านให้ลงอาญาตามที่บัญญัติไว้สำหรับความผิดนั้นแก่มันเพียงกึ่งหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๕๖</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าเด็กอายุยังไม่ถึงเจ็ดขวบกระทำความผิด ท่านว่ามันยังมิรู้ผิดแลชอบ อย่าให้ลงอาญาแก่มันเลย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๕๗</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าเด็กอายุกว่าเจ็ดขวบขึ้นไป แต่ยังไม่ถึงสิบสี่ขวบ กระทำความผิด ท่านให้ศาลมีอำนาจกระทำอย่างหนึ่งอย่างใดใน ๓ ประการที่จะว่าต่อไปนี้ คือ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)ถ้าเห็นว่ามันยังไม่รู้ผิดชอบ จะให้ปล่อยตัวไปเสียก็ได้ หรือถ้าศาลเห็นว่ามันพอจะเข้าใจความผิดชอบได้อยู่บ้าง ให้ศาลว่ากล่าวให้มันรู้สึกตัว แล้วภาคทัณฑ์ปล่อยตัวไปก็ได้ ฉนี้ประการหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)มอบตัวเด็กให้แก่บิดามารดาหรือผู้ปกครองไป แลบังคับเรียกประกันทานบนหรือเรียกแต่ทานบนแก่บิดามารดาหรือผู้ปกครองเด็กนั้นให้สัญญาว่าจะระวังเด็กนั้นให้ประพฤติตนรักษาความเรียบร้อยตลอดเวลาที่ศาลจะกำหนดให้ไม่เกินกว่าสามปี ถ้าผิดทานบน ให้ศาลปรับเปนจำนวนเงินตามที่กำหนดไว้ในทานบนไม่เกินร้อยบาทขึ้นไป ฉนี้ประการหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๓)สั่งให้ส่งตัวเด็กนั้นไปไว้ในโรงเรียนดัดสันดานตลอดเวลาที่ศาลจะกำหนดให้ แต่อย่าให้เกินไปกว่าเวลาที่เด็กนั้นมีอายุครบสิบแปดขวบ ประการหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๕๘</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าเด็กอายุกว่าสิบสี่ขวบขึ้นไป แต่ยังไม่ถึงสิบหกขวบ กระทำความผิด ท่านว่าศาลควรพิจารณาดูเสียก่อนว่า มันมีสติพอจะรู้ผิดชอบได้หรือไม่</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าปรากฎว่ามันยังอ่อนแก่ความคิด ไม่มีสติพอจะรู้ผิดชอบไซ้ ท่านว่าให้ศาลกระทำแก่มันดุจเดียวกันกับที่ควรกระทำแก่เด็กอายุเกินกว่าเจ็ดขวบ แต่ยังไม่ถึงสิบสี่ขวบ ดังที่ได้บัญญัติไว้ในมาตรา ๕๗ นั้น</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าแลปรากฎว่ามันมีสติพอจะรู้ผิดชอบได้แล้ว ศาลจะสั่งให้ลงอาญาแก่มันตามที่กฎหมายบัญญัติไว้สำหรับความผิดเช่นนั้นแต่กึ่งหนึ่ง หรือมิฉนั้นจะสั่งให้ส่งตัวมันไปไว้ในโรงเรียนดัดสันดานตามลักษณข้อ ๓ แห่งมาตรา ๕๗ นั้นก็ได้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๕๙</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>เมื่อใดความปรากฎว่ามีเหตุอันควรปรานีแก่ผู้กระทำผิดไซ้ ถึงว่าศาลจะได้เพิ่มหรือลดกำหนดโทษตามความในมาตราอื่นของกฎหมายนี้แล้วก็ดี ศาลยังลดโทษฐานปรานีได้อิกโสดหนึ่ง ไม่เกินกว่ากึ่งอัตราโทษที่กฎหมายกำหนดไว้สำหรับความผิดนั้น ๆ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ที่เรียกว่าเหตุอันควรปรานีนั้น ท่านประสงค์ในเหตุเหล่านี้ คือ ผู้กระทำผิดจริตไม่ปรกติก็ดี ผู้กระทำเปนผู้มีคุณความดีมาแต่ก่อนก็ดี ผู้กระทำผิด เมื่อกระทำลงแล้ว มันรู้สึกตัวกลัวผิดแลได้พยายามแก้ไขให้บันเทาผลร้ายที่มันทำนั้นก็ดี ผู้กระทำผิดมาลุแก่โทษก่อนที่ความผิดของมันได้ปรากฎก็ดี ผู้กระทำผิดรับสารภาพให้ความสัจความรู้ต่อศาลให้เปนประโยชน์ในทางพิจารณาคดีนั้นก็ดี แลความชอบอย่างอื่น ๆ ซึ่งศาลพิเคราะห์เห็นว่าเปนทำนองเดียวกับที่กล่าวมานี้ก็ดี ท่านให้ถือว่าเปนเหตุอันควรปรานีแก่ผู้กระทำผิดดุจกัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%91%E0%B8%AB%E0%B8%A1%E0%B9%95">หมวดที่ ๕<br>ว่าด้วยพยายามกระทำความผิด</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๖๐</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดพยายามจะกระทำความผิด แต่หากมีเหตุอันพ้นวิไสยของมันจะป้องกันได้มาขัดขวางมิให้กระทำลงได้ไซ้ ท่านว่ามันควรรับอาญาตามที่กฎหมายกำหนดไว้สำหรับความผิดนั้น แบ่งเปนสามส่วน ให้ลงอาญาแต่สองส่วน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๖๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดพยายามจะกระทำความผิด แต่ยับยั้งเสียด้วยใจตนเอง ไม่ได้กระทำความผิดนั้นลงไปให้ตลอดตามความมุ่งหมาย ท่านว่าควรเอาโทษแก่มันเพียงความผิดที่มันไดกระทำลงไปแล้ว</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๖๒</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดพยายามจะกระทำความผิดฐานลหุโทษ ท่านว่าอย่าให้ลงอาญาแก่มันเลย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%91%E0%B8%AB%E0%B8%A1%E0%B9%96">หมวดที่ ๖<br>ว่าด้วยบุคคลหลายคน<br>ทำความผิดอย่างเดียวกัน</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๖๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ในคดีที่บุคคลตั้งแต่สองขึ้นไปกระทำความผิดอย่างเดียวกัน ท่านให้ถือว่าบรรดาผู้ที่ได้ลงมือกระทำความผิดนั้นเปนตัวการ แลอาจลงอาญาตามที่กฎหมายบัญญัติไว้สำหรับความผิดนั้นแก่มันทุกคนเหมือนอย่างมันได้กระทำความผิดแต่ผู้เดียวฉนั้น</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๖๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดใช้ให้ผู้อื่นกระทำความผิดด้วยอุบายอย่างใดใด เช่นว่าจ้างวานหรือบังคับขู่เข็ญข่มขืนให้ผู้อื่นกระทำความผิดเปนต้น ท่านว่ามันผู้ใช้นั้นต้องรวางโทษฐานเปนตัวการ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๖๕</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดกระทำการอุดหนุนแก่ผู้กระทำผิดด้วยประการหนึ่งประการใดดังจะกล่าวต่อไปในมาตรานี้ คือว่า</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)ช่วยหาช่องโอกาศ หรือให้กำลังพาหนะ หรือให้ความรู้ อันเปนอุปการะแก่การที่กระทำผิดนั้นก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)กระทำการอย่างหนึ่งอย่างใดในเวลาแต่ก่อนหรือเมื่อขณะความผิดนั้นได้เกิดขึ้น อันเปนการอุปการะแก่การกระทำผิดนั้นก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ท่านว่าผู้กระทำการดังกล่าวมานี้เปนผู้สมรู้ด้วยผู้กระทำผิด แลอาญาที่กฎหมายบัญญัติไว้สำหรับความผิดนั้นเท่าใด รวางโทษส่วนมันผู้สมรู้นั้น ท่านให้ลดจากกำหนดลงส่วนหนึ่ง คงไว้แต่สองส่วน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๖๖</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้ามีความผิดเกิดขึ้นเพราะเหตุที่โฆษนาการในสมุด หรือในหนังสือที่ออกโดยมีกำหนด หรือในจดหมายอย่างใดใด ท่านให้ถือว่าผู้ที่ให้โฆษนานั้นมีความผิดแลต้องรวางโทษฐานเปนตัวการ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าหากว่าจะเอาตัวผู้ที่ให้โฆษนามาพิจารณามิได้ไซ้ ท่านให้ถือว่าผู้ที่โฆษนาหรือผู้ที่พิมพ์หนังสือนั้นต้องรวางโทษฐานตัวการดุจกัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๖๗</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดจำหน่าย ขาย แจกสมุดหรือหนังสือซึ่งความผิดมีอยู่เพราะโฆษนาการ ถ้าแลมันผู้จำหน่าย ขาย แจกหนังสือนั้นรู้อยู่ว่าเปนหนังสือซึ่งเปนเหตุแห่งความผิดไซ้ ท่านว่ามันต้องรวางโทษฐานเปนผู้สมรู้ด้วยผู้กระทำผิด</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๖๘</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ในคดีเรื่องใด ถ้าผู้กระทำผิดมีเหตุเปนส่วนตัวอันควรจะได้รับความยกเว้นอาญาก็ดี ลดหย่อนอาญาก็ดี หรือเพิ่มอาญาก็ดี ท่านให้ยกเหตุนั้นขึ้นใช้เฉภาะแก่ตัวมันเปนคน ๆ ไป ห้ามมิให้ยกเหตุที่มีในผู้หนึ่งไปใช้ตลอดถึงผู้อื่นที่กระทำผิดในคดีอันเดียวกันนั้น</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ต่อเหตุที่ควรยกเว้นอาญา หรือลดหย่อนอาญา หรือเพิ่มอาญานั้นเปนเหตุอยู่ในส่วนลักษณดีท่านจึงว่าควรยกเหตุนั้นขึ้นใช้แก่ผู้กระทำผิดในคดีอันเดียวกันได้ทุกคน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๖๙</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดสมรู้ในความผิดฐานลหุโทษ ท่านว่าไม่ควรลงอาญาแก่มัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%91%E0%B8%AB%E0%B8%A1%E0%B9%97">หมวดที่ ๗<br>ว่าด้วยคน ๆ เดียวกระทำความผิดหลายอย่าง</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๗๐</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดกระทำการอย่างใดอย่างหนึ่ง แลการที่กระทำนั้นเปนการเลมิดกฎหมายหลายบทด้วยกัน ท่านให้ใช้บทกฎหมายที่อาญาหนักลงโทษแก่มัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๗๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>เมื่อศาลพิจารณาเห็นว่าผู้ใดมีความผิดหลายกทง ในคำพิพากษาอันเดียวกันศาลจะพิพากษาลงโทษตามกทงความผิดทุกกทงก็ได้ แต่เมื่อรวมโทษทุกกทงเข้าด้วยกัน ถ้าจะต้องจำคุก อย่าจำให้เกินยี่สิบปีขึ้นไป เว้นแต่โทษของมันถึงจำคุกตลอดชีวิตร์ เช่นนั้นต้องเปนไปตามโทษ ถ้าแลรวมโทษทุกกทง ในฐานที่จะต้องจำคุกแทนปรับ ท่านว่าอย่าให้จำมันเกินกว่าสองปีขึ้นไป</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%91%E0%B8%AB%E0%B8%A1%E0%B9%98">หมวดที่ ๘<br>ว่าด้วยผู้กระทำผิดหลายครั้งไม่เข็ดหลาบ</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๗๒</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดถูกพิพากษาให้ลงโทษเพราะได้กระทำความผิดอย่างหนึ่งอย่างใด แลเมื่อมันได้พ้นโทษไปแล้ว ไปกระทำความผิดขึ้นอิกภายในเวลาที่ท่านกำหนดไว้ ท่านว่ามันไม่เข็ดหลาบ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดศาลพิจารณาได้ความจริงว่าไปกระทำความผิดขึ้นอิกภายในระหว่างห้าปีตั้งแต่ได้พ้นโทษไป ผู้นั้นต้องรวางโทษที่กฎหมายบัญญัติไว้สำหรับความผิดที่มันทำครั้งหลัง ทั้งเพิ่มโทษนั้นขึ้นอิกส่วนหนึ่งในสามส่วนด้วย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๗๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดไม่เข็ดหลาบ แลมันกระทำความผิดอย่างใดอย่างหนึ่งซึ่งจำแนกไว้ในมาตรานี้ ขึ้นอิกภายในสามปี ท่านว่ามันต้องรวางโทษที่กฎหมายบัญญัติไว้สำหรับความผิดที่มันกระทำครั้งหลังนั้น ทั้งเพิ่มโทษนั้นขึ้นอิกกึ่งหนึ่งด้วย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ความผิดที่ควรลงโทษด้วยกฎหมายมาตรานี้นั้น คือ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)ความผิดฐานประทุษฐร้ายต่อพระเจ้าอยู่หัวแลพระราชอาณาจักร์</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)ความผิดฐานต่อสู้หรือกระทำร้ายต่อเจ้าพนักงาน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๓)ความผิดฐานเอาอำนาจในตำแหน่งหน้าที่ไปใช้ในทางทุจริต</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๔)ความผิดฐานกระทำให้เสื่อมเสียความยุติธรรมแลอำนาจโรงศาล</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๕)ความผิดฐานเข้าส้องโจรผู้ร้ายหรือเปนอั้งยี่แลก่อการจลาจล</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๖)ความผิดฐานกระทำให้เกิดภยันตรายแก่สาธารณชน แลให้สาธารณชนปราศจากความสดวกในการไปมาแลที่จะส่งข่าวแลของถึงกัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๗)ความผิดฐานทำให้สาธารณชนปราศจากความศุขสบาย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๘)ความผิดฐานปลอมเงินตรา ดวงตรา แลบัตร์ตรา แลปลอมตั๋ว ปลอมหนังสือ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๙)ความผิดฐานกระทำอนาจาร</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑๐)ความผิดฐานประทุษฐร้ายต่อชีวิตร์แลร่างกาย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑๑)ความผิดฐานประทุษฐร้ายต่ออิศระภาพแลชื่อเสียง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑๒)ความผิดฐานประทุษฐร้ายต่อทรัพย์</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>แต่ถ้าความผิดของมันที่ได้กระทำในครั้งก่อน มันต้องโทษจำคุกไม่เกินกว่าหกเดือนแล้ว ท่านว่าอย่าให้ยกความในมาตรานี้ขึ้นปรับโทษมันเลย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๗๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดไม่เข็ดหลาบ แลมันกระทำความผิดอย่างใดอย่างหนึ่งซึ่งจำแนกไว้ในมาตรานี้อย่างเดียวซ้ำกันเปนสองครั้งภายในห้าปีไซ้ ท่านว่ามันต้องรวางโทษตามที่กฎหมายบัญญัติไว้สำหรับความผิดที่มันกระทำครั้งหลัง ทั้งเพิ่มโทษขึ้นเปนทวีคูณด้วย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ความผิดที่ควรลงโทษด้วยกฎหมายมาตรานี้นั้น คือความผิดฐานประทุษฐร้ายต่อชีวิตร์แลร่างกาย ฐานลักทรัพย์ ฐานวิ่งราว ฐานชิงทรัพย์ ฐานปล้นทรัพย์ ฐานสลัด ฐานกันโชก ฐานฉ้อโกง ฐานยักยอกอันต้องอาญา ฐานรับของโจร บรรดาที่กล่าวไว้ตั้งแต่มาตรา ๒๔๙ จนมาตรา ๒๕๙ แลตั้งแต่มาตรา ๒๘๘ จนมาตรา ๓๒๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>แต่ถ้าความผิดของมันที่ได้กระทำในครั้งก่อน โทษของมันต้องจำคุกไม่เกินกว่าหกเดือนแล้ว ท่านว่าอย่าให้ยกเอาความในมาตรานี้ขึ้นปรับโทษแก่มันเลย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๗๕</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ลักษณเพิ่มโทษแก่ผู้ที่ไม่เข็ดหลาบที่ว่าในมาตรา ๗๒, ๗๓, ๗๔, นั้น ท่านว่าอย่าให้ใช้ในความผิดเหล่านี้ คือ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)ความผิดที่กฎหมายกำหนดว่า เปนส่วนลหุโทษ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)ความผิดที่เกิดขึ้นด้วยความประมาท</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๗๖</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดไม่เข็ดหลาบ แลปรากฎว่ามันกระทำความผิดในส่วนลหุโทษตั้งแต่มาตรา ๓๓๔ จนถึงมาตรา ๓๔๐ ในข้อเดียวซ้ำกันภายในปีหนึ่ง ท่านว่ามันต้องรวางโทษตามที่กฎหมายบัญญัติไว้สำหรับความผิดที่มันกระทำครั้งหลัง ทั้งเพิ่มโทษขึ้นเปนทวีคูณ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%91%E0%B8%AB%E0%B8%A1%E0%B9%99">หมวดที่ ๙<br>ว่าด้วยกำหนดเวลาที่จะฟ้องความ<br>แลที่จะลงโทษในคดีทางอาญา</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๗๗</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ความชอบธรรมที่จะร้องฟ้องผู้ใดว่ากระทำความผิดก็ดี หรือที่จะลงอาญาแก่ผู้ใดตามคำพิพากษาก็ดี ท่านให้ถือว่าเปนอันระงับด้วยความมรณภาพของผู้นั้น</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๗๘</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>การฟ้องคดีทางอาญานั้น ถ้ามิได้ยื่นฟ้องต่อศาลภายในเวลาที่ท่านได้ตั้งไว้เปนกำหนดไซ้ ท่านว่าคดีนั้นขาดอายุความ อย่าให้ศาลรับไว้พิจารณาเลย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>แลอายุความนั้น ท่านตั้งเปนกำหนดไว้ตามประเภทคดีต่างกันดังนี้ คือ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)คดีที่ความผิดต้องรวางโทษประหารชีวิตร์หรือจำคุกจนตลอดชีวิตร์ ให้ฟ้องได้ในยี่สิบปี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)คดีที่ความผิดต้องรวางโทษจำคุกกว่าเจ็ดปีขึ้นไปจนถึงยี่สิบปี ให้ฟ้องได้ในสิบห้าปี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๓)คดีที่ความผิดต้องรวางโทษจำคุกกว่าเดือนหนึ่งขึ้นไปจนถึงเจ็ดปี ให้ฟ้องได้ในห้าปี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๔)คดีที่ความผิดต้องรวางโทษอย่างอื่นนอกจากที่ว่ามานี้ ให้ฟ้องได้ในปีหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๗๙</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>เวลาในระหว่างคดีเรื่องใดอยู่ในศาล คือในระหว่างร้องขอต่อศาลด้วยประการใดใดก็ดี ในระหว่างเวลาเรียกหรือจับตัวจำเลยตามหมายสั่งของศาลก็ดี ท่านว่าเปนเวลาหยุดอายุความ มิให้นับเวลาระหว่างคดีที่กล่าวมานี้เข้าในอายุความ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๘๐</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>คดีในจำพวกความผิดต่อส่วนตัวนั้น ถ้าผู้ที่ควรร้องทุกข์ได้ตามกฎหมายรู้เรื่องความผิดแลรู้จักผู้กระทำผิดแล้วมิได้ร้องทุกข์พ้นสามเดือนไป ท่านว่าคดีนั้นขาดอายุ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๘๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ในคดีจำพวกความผิดต่อส่วนตัวนั้น ถ้าได้ถอนฟ้องหรือได้ยอมความต่อกันโดยชอบด้วยกฎหมายแล้วไซ้ ท่านว่าหมดความชอบธรรมที่จะเอาคดีนั้นมารื้อร้องฟ้องต่อไป</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๘๒</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดศาลได้พิพากษาให้ลงโทษ แลยังไม่ได้ตัวมันมาลงโทษตามคำพิพากษา จนล่วงเลยพ้นเวลาที่ท่านตั้งเปนกำหนดไว้ในมาตรานี้แล้ว ท่านว่าเปนอันเวลาล่วงเลยเสียแล้ว ให้ยกเลิกอย่าลงโทษแก่มันตามคำพิพากษานั้นเลย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>แลกำหนดเวลาที่ยกเลิกการลงอาญาโดยเหตุเวลาล่วงเลยตามความในมาตรานี้นั้น ท่านกำหนดไว้ดังนี้ คือว่า</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)โทษประหารชีวิตร์หรือจำคุกจนตลอดชีวิตร์ ยี่สิบปีเปนพ้นกำหนด</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)โทษจำคุกกว่าเจ้ดปีขึ้นไปจนถึงยี่สิบปี สิบห้าปีเปนพ้นกำหนด</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๓)โทษอย่างอื่น ๆ ห้าปีเปนพ้นกำหนด</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๘๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>กำหนดเวลาล่วงเลยในการลงอาญานั้น ท่านให้นับตั้งแต่วันพิพากษาลงโทษอันเปนคำพิพากษาชั้นที่สุดของคดีเรื่องนั้น หรืออิกนัยหนึ่ง ท่านให้นับตั้งแต่วันมันผู้ต้องโทษนั้นพ้นอาญาไป</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>แต่ท่านห้ามมิให้นับเวลาที่งดการลงอาญาไว้ตามกฎหมายนั้นเข้าในเวลาล่วงเลยการลงอาญา</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๘๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>เวลาล่วงเลยในการลงอาญานั้นเปนอันหยุดมิให้นับในระหว่างเวลาที่มีเหตุการเหล่านี้ คือ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)เมื่อจับตัวมันผู้ต้องโทษได้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)เมื่อเจ้าพนักงานผู้มีตำแหน่งหน้าที่สำหรับให้ลงอาญาได้สั่งให้ทำโทษ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๘๕</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้ากำหนดอายุความก็ดี กำหนดเวลาล่วงเลยในการลงอาญาก็ดี ต้องหยุดด้วยประการใด ๆ ท่านให้ตั้งต้นนับกำหนดไปใหม่แต่วันที่หยุดนั้น</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๘๖</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>กำหนดอายุความแลกำหนดเวลาล่วงเลยในการลงอาญานี้ ถึงผู้ต้องหาจะมิได้ขอร้อง ก็ให้คงใช้ตามท่านบัญญัติไว้จงทุกประการ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%91%E0%B8%AB%E0%B8%A1%E0%B9%91%E0%B9%90">หมวดที่ ๑๐<br>ว่าด้วยการร้องขอทรัพย์สินแลขอค่าเสียหาย</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๘๗</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ลักษณที่จะฟ้องผู้กระทำผิดนั้น ท่านว่าฟ้องเปนสองคดีก็ได้ คือว่า</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)ฟ้องคดีทางอาญาขอให้ลงโทษตามลักษณกฎหมายอาญาก็ได้อย่างหนึ่ง แล</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)ฟ้องคดีทางแพ่งขอให้ใช้ค่าเสียหายอันได้เกิดขึ้นเพราะความผิดนั้นก็ได้อีกอย่างหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ลักษณฟ้องคดีทางแพ่งนั้น จะร้องได้ทั้งที่จะขอคืนทรัพย์หรือราคาทรัพย์ที่ต้องเสียไปโดยมิชอบธรรมเพราะความผิดที่เกิดขึ้นนั้น แลจะร้องขอสินไหมใช้ทดแทนความเสียหายเพราะความผิดนั้นด้วยก็ได้ การฟ้องในทางแพ่งดังว่ามานี้ ท่านให้พึงเข้าใจว่าเพื่อประโยชน์ของผู้ถูกกระทำร้ายแลได้รับความเสียหายในคดีนั้นฝ่ายเดียว</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๘๘</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>คดีเรื่องใด ถึงฟ้องในทางอาญาแล้ว ท่านว่าเหตุที่ได้ฟ้องในทางอาญานั้นไม่ขัดขวางแก่ความชอบธรรมของผู้ที่ได้รับความเสียหายจะฟ้องคดีเรื่องนั้นในทางแพ่งอิกทางหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๘๙</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>คดีที่จะฟ้องทางแพ่งนั้น ท่านว่าจะฟ้องต่อศาลอาญาที่พิจารณาคดีเรื่องเดียวกันหรือจะฟ้องต่อศาลแพ่งอันมีหน้าที่พิจารณาความแพ่งนั้นก็ได้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๙๐</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ในการที่จะพิพากษาคดีส่วนแพ่งซึ่งว่ากล่าวเปนทางอาญาอยู่อิกส่วนหนึ่งนั้น ท่านว่าผู้พิพากษาส่วนแพ่งต้องถือเอาความเท็จความจริงที่ปรากฎในคำพิพากษาส่วนอาญาเปนหลักแก่การพิพากษาส่วนแพ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๙๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ในการที่จะพิพากษาคดีที่ฟ้องทางแพ่งนั้น ท่านให้พิพากษาตามลักษณกฎหมายอันว่าด้วยความรับผิดชอบของบุคคลในทางแพ่ง แลไม่ให้ถือเอาเหตุที่คำพิพากษาในคดีทางอาญาว่าผู้ต้องหากระทำความผิดในคดีนั้นหรือไม่ผิดเปนประมาณ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>แลลักษณที่จะกำหนดราคาทุนทรัพย์ซึ่งพิพากษาให้คืนแก่โจทย์ก็ดี หรือจะกำหนดสินไหมที่พิพากษาให้ใช้ทดแทนความเสียหายแก่โจทย์ก็ดี ท่านให้ศาลกำหนดตามสมควรแก่ราคาของแลความเสียหายนั้น แต่อย่าให้เกินไปกว่าราคาหรือจำนวนที่โจทย์ได้ร้องขอ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๙๒</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>การบังคับให้คืนทรัพย์หรือให้ใช้สินไหมตามคำพิพากษานั้น ท่านให้กระทำดุจกันกับวิธีบังคับให้ใช้ค่าปรับอันบัญญัติไว้ในมาตรา ๑๘, ๑๙, แล ๒๐, นั้น</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๙๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าในคำพิพากษามิได้บังคับไว้เปนอย่างอื่นไซ้ ท่านให้ถือว่าบรรดาผู้ที่ศาลพิพากษาว่ามีความผิดอย่างเดียวกันในคดีอันเดียวกันนั้น ถ้าจะต้องใช้ค่าทุนทรัพย์หรือสินไหม ศาลจะบังคับให้มันช่วยกันเสียทุกคน หรือจะให้แต่ผู้ใดใดในคนเหล่านั้นใช้ค่าทุนทรัพย์หรือสินไหมจนเต็มก็ได้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>แต่อำนาจที่จะบังคับให้ช่วยกันเสียหรือเสียแต่บางคนเช่นนี้ ท่านให้ใช้ได้แต่เฉภาะการบังคับให้เสียค่าทุนทรัพย์แลสินไหม ท่านห้ามมิให้ใช้ถึงโทษจำคุกแทนค่าเหล่านั้น</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๙๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าต้องยึดทรัพย์ผู้ใดเพื่อใช้ค่าฤชาธรรมเนียม ใช้ค่าปรับ ใช้ค่าทุนทรัพย์แลค่าสินไหมด้วยกัน ถ้าทรัพย์ของมันไม่พอแก่ที่จะเสียได้ทั้ง ๓ อย่างไซ้ ท่านให้เอาทรัพย์นั้นใช้ในการต่าง ๆ เปนลำดับกันดังนี้ คือว่า</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)ใช้ค่าฤชาธรรมเนียมจนครบก่อน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)ใช้ค่าทุนทรัพย์แลค่าเสียหายรองมาจนครบแล้ว จึง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๓)ใช้ค่าปรับเปนพินัยหลวง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๙๕</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถึงว่าผู้ที่ถูกความเสียหายเพราะการกระทำผิดจะไม่ได้ร้องฟ้องในทางแพ่งก็ดี เมื่อศาลพิพากษาคดีในทางอาญา ศาลจะพิพากษาให้คืนทรัพย์สิ่งของหรือใช้ราคาแทนทรัพย์สิ่งของให้แก่ผู้ซึ่งกฎหมายถือว่าเปนเจ้าของนั้นก็ได้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๙๖</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>การฟ้องคดีทางแพ่งอันเกี่ยวด้วยความผิดฐานอาญานั้น ท่านให้มีเขตร์อายุความดุจกันกับการฟ้องคดีทางอาญาในความเรื่องเดียวกันตามที่บัญญัติไว้ตั้งแต่มาตรา ๗๘ ถึงมาตรา ๘๑ และในมาตรา ๘๕ แลมาตรา ๘๖ นั้น</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%92">ภาค ๒<br>ว่าด้วยลักษณความผิด</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%92%E0%B8%AA%E0%B9%91">ส่วนที่ ๑<br>ว่าด้วยความผิดประทุษฐร้ายต่อพระเจ้าอยู่หัวแลพระราชอาณาจักร์</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%92%E0%B8%AA%E0%B9%91%E0%B8%AB%E0%B8%A1%E0%B9%91">หมวดที่ ๑<br>ความผิดฐานประทุษฐร้ายต่อพระบรมราชตระกูล</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๙๗</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดทนงองอาจกระทำการประทุษฐร้ายต่อพระองค์สมเด็จพระเจ้าอยู่หัวก็ดี สมเด็จพระมเหษีก็ดี มกุฎราชกุมารก็ดี ต่อผู้สำเร็จราชการแผ่นดินในเวลารักษาราชการต่างพระองค์สมเด็จพระเจ้าอยู่หัวก็ดี ท่านว่าโทษของมันถึงต้องประหารชีวิตร์</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดพยายามจะกระทำการประทุษฐร้ายเช่นว่ามาแล้ว แม้เพียงตระเตรียมการก็ดี สมคบกันเพื่อการประทุษฐร้ายนั้นก็ดี หรือสมรู้เปนใจด้วยผู้ประทุษฐร้าย ผู้พยายามจะประทุษฐร้ายก็ดี มันรู้ว่าผู้ใดคิดประทุษฐร้ายเช่นว่ามานี้ มันช่วยปกปิดไม่เอาความนั้นไปร้องเรียนขึ้นก็ดี ท่านว่าโทษมันถึงตายดุจกัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๙๘</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดทนงองอาจแสดงความอาฆาฎมาดร้ายหรือหมิ่นประมาทต่อสมเด็จพระเจ้าอยู่หัวก็ดี สมเด็จพระมเหษีก็ดี มกุฎราชกุมารก็ดี ต่อผู้สำเร็จราชการแผ่นดินในเวลารักษาราชการต่างพระองค์สมเด็จพระเจ้าอยู่หัวก็ดี ท่านว่าโทษของมันถึงจำคุกไม่เกินกว่าเจ็ดปี แลให้ปรับไม่เกินกว่าห้าพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๙๙</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดทนงองอาจกระทำการประทุษฐร้ายต่อองค์พระราชโอรสพระราชธิดาในสมเด็จพระเจ้าอยู่หัวไม่ว่ารัชกาลหนึ่งรัชกาลใด ท่านว่ารวางโทษของมันหนักกว่าฐานประทุษฐร้ายบุคคลสามัญหนึ่งในสามส่วน แลอย่าให้โทษที่จะลงแก่มันนั้นเบากว่าอาญาจำคุกปีหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าแลการประทุษฐร้ายที่มันกระทำนั้นเปนความผิดฐานฆ่าคนตายโดยเจตนาหรือพยายามฆ่าคนโดยเจตนาไซ้ ท่านว่าโทษมันถึงต้องประหารชีวิตร์</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๐๐</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดทนงองอาจแสดงความอาฆาฎมาดร้ายหรือหมิ่นประมาทต่อพระราชโอรสพระราชธิดาในสมเด็จพระเจ้าอยู่หัวไม่ว่ารัชกาลหนึ่งรัชกาลใด ท่านว่าโทษของมันถึงจำคุกไม่เกินกว่าสามปี แลให้ปรับไม่เกินกว่าสองพันบาทด้วยอิกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%92%E0%B8%AA%E0%B9%91%E0%B8%AB%E0%B8%A1%E0%B9%92">หมวดที่ ๒<br>ความผิดฐานขบถภายในพระราชอาณาจักร์</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๐๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดทนงองอาจกระทำการประทุษฐร้ายอย่างใดใดเพื่อจะทำลายรัฐบาลเสียก็ดี เพื่อจะเปลี่ยนแปลงราชประเพณีการปกครองพระราชอาณาจักร์ก็ดี เพื่อจะแย่งชิงเอาพระราชอาณาจักร์ก็ดี แม้แต่ส่วนใดส่วนหนึ่งก็ดี ท่านว่ามันเปนขบถ ให้เอาตัวมันไปประหารชีวิตร์เสีย หรือมิฉนั้นให้จำคุกมันไว้จนตลอดชีวิตร์</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๐๒</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดพยายามจะก่อการขบถ แลมันสะสมกำลังหรือเครื่องสาตราวุธก็ดี หรือตระเตรียมการหรือสมคบกันคิดการเพื่อจะขบถประทุษฐร้ายก็ดี หรือยุยงไพร่บ้านพลเมืองจะให้เปนขบถก็ดี แลผู้ใดรู้ว่ามีคนคิดประทุษฐร้ายต่อพระราชอาณาจักร์ มันช่วยปกปิดไม่เอาความไปร้องเรียนขึ้นก็ดี ท่านให้ลงอาญาจำคุกมันตั้งแต่สามปีขึ้นไปจนถึงสิบห้าปี แลให้ปรับตั้งแต่ห้าร้อยบาทขึ้นไปจนถึงห้าพันบาทด้วยอิกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าแลได้มีการขบถเกิดขึ้นดุจมันพยายามนั้นไซ้ ท่านให้ลงอาญาแก่มันฐานโทษขบถดังบัญญัติไว้ในมาตรา ๑๐๑ นั้น</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๐๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดยุยงผู้ซึ่งรับราชการในฝ่ายทหารบกหรือทหารเรือของพระเจ้าอยู่หัวให้หลบหนีก็ดี ให้กำเริบขึ้นก็ดี ให้ละเลยไม่กระทำการตามหน้าที่ก็ดี ท่านให้เอาตัวมันผู้ยุยงเช่นนี้ลงอาญาจำคุกไม่เกินกว่าห้าปี แลให้ปรับไม่เกินกว่าพันบาทด้วยอิกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๐๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดกระทำให้ปรากฎแก่คนทั้งหลายด้วยประการใดใดโดยเจตนาต่อผลอย่างหนึ่งอย่างใดที่ว่าต่อไปในมาตรานี้ คือ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)เพื่อจะให้ขาดความจงรักภักดีหรือดูหมิ่นต่อสมเด็จพระเจ้าอยู่หัวก็ดี ต่อรัฐบาลก็ดี หรือต่อราชการแผ่นดินก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)เพื่อให้คนทั้งหลายเกิดความเดือดร้อนแลกระด้างกระเดื่องถึงสามารถอาจจะเกิดเหตุร้ายขึ้นในแผ่นดินของท่านได้ก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๓)เพื่อยุยงให้คนทั้งหลายกระทำการล่วงเลมิดต่อพระราชกำหนดกฎหมายก็ดี ท่านให้เอามันผู้กระทำการอย่างใดใดโดยเจตนาเช่นว่ามานี้ลงอาญาจำคุกไม่เกินกว่าสามปี แลให้ปรับไม่เกินกว่าพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%92%E0%B8%AA%E0%B9%91%E0%B8%AB%E0%B8%A1%E0%B9%93">หมวดที่ ๓<br>ความผิดฐานขบถภายนอกพระราชอาณาจักร์</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๐๕</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดสมคบกับรัฐบาลประเทศอื่นหรือกับคนใช้ของรัฐบาลประเทศอื่น โดยมันเจตนาจะให้พระราชอาณาจักร์ทั้งหมดหรือแต่ส่วนใดส่วนหนึ่งไปอยู่ใต้อำนาจประเทศอื่นก็ดี หรือมันใช้อุบายอย่างอื่นโดยประสงค์ต่อผลอย่างเดียวกันกับที่ว่ามานี้ก็ดี ท่านให้ลงโทษจำคุกมันจนตลอดชีวิตร์ หรือมิฉนั้นให้จำคุกมันตั้งแต่ห้าปีขึ้นไปจนถึงยี่สิบปี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าแลในเวลานั้นหรือต่อนั้นมา รัฐบาลประเทศอื่นที่มันได้เอาใจไปเผื่อแผ่นั้นได้กระทำการรบพุ่งหรือได้ประกาศจะกระทำการรบพุ่งแก่พระราชอาณาจักร์ด้วยไซ้ ท่านว่าโทษของมันผู้นั้นต้องถึงประหารชีวิตร์ หรือมิฉนั้นให้จำคุกจนตลอดชีวิตร์</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๐๖</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ข้อราชการ แลหนังสือ หรือแบบแผนอย่างใดใดอันปกปิดเปนความลับสำหรับป้องกันมิให้เกิดภยันตรายแก่พระราชอาณาจักร์นั้น ถ้าผู้ใดใช้อุบายสืบสวนเพื่อรู้เห็นข้อราชการ หนังสือ หรือแบบแผนนั้น ๆ อันตนมิได้มีตำแหน่งหน้าที่ควรรู้เห็นโดยชอบด้วยกฎหมายไซ้ ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกไม่เกินกว่าห้าปี แลให้ปรับไม่เกินกว่าพันบาทด้วยอิกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>แลโทษที่ว่ามาในมาตรานี้มีตลอดถึงผู้ลอบคัดเขียนแบบอย่างป้อม, ค่าย, เรือรบ, หรือสถานที่ทำไว้สำหรับยุทธนาการอย่างใดใด หรือล่วงเข้าไปในสถานที่เช่นนั้นอันต้องห้ามมิให้ผู้อื่นนอกจากเจ้าหน้าที่เข้าไปนั้นด้วย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๐๗</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดมิได้มีอำนาจที่จะทำได้โดยชอบด้วยกฎหมาย แลมันเอาข้อราชการ หรือหนังสือ หรือแบบแผนอย่างใดใดอันปกปิดเปนความลับสำหรับป้องกันภยันตรายแก่พระราชอาณาจักรนั้นแจ้งแก่รัฐบาลประเทศอื่นก็ดี หรือแก่ผู้หนึ่งผู้ใดก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่ปีหนึ่งขึ้นไปจนถึงเจ็ดปี แลให้ปรับตั้งแต่สองร้อยบาทขึ้นไปจนถึงสองพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าแลมันผู้แจ้งข้อราชการ หรือหนังสือ หรือแบบแผนที่ว่ามาในมาตรา ๑๐๖ นั้นเปนเจ้าพนักงานในการนั้นเอง ท่านให้จำคุกมันตั้งแต่ห้าปีขึ้นไปจนถึงสิบห้าปี แลให้ปรับตั้งแต่ห้าร้อยบาทขึ้นไปจนถึงห้าพันบาทด้วยอิกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๐๘</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดจงใจกระทำการอย่างใดใดอันสามารถอาจจะเกิดเหตุร้ายแก่พระราชอาณาจักร์จากภายนอก ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่ปีหนึ่งขึ้นไปจนถึงสิบห้าปี แลให้ปรับตั้งแต่ร้อยบาทขึ้นไปจนถึงห้าพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๐๙</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดเปนคนในบังคับสยาม แลมันกระทำการรบพุ่งต่อพระราชอาณาจักร์ก็ดี หรือมันไปเข้าเปนพวกข้าศึกศัตรูก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษประหารชีวิตร์ หรือจำคุกจนตลอดชีวิตร์ หรือมิฉนั้นจำคุกตั้งแต่สิบปีขึ้นไปจนถึงยี่สิบปี แลให้ปรับตั้งแต่สองร้อยบาทขึ้นไปจนถึงสองพันบาทด้วยอีกโสดหนึ่งตามโทษานุโทษ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๑๐</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดเอาใจเผื่อแผ่ช่วยราชศัตรูที่กระทำการรบพุ่งต่อพระราชอาณาจักร์ ท่านว่ามันมีความผิด ต้องระวางโทษจำคุกตั้งแต่ห้าปีขึ้นไปจนถึงสิบห้าปี แลให้ปรับตั้งแต่ห้าร้อยบาทขึ้นไปจนถึงห้าพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าแลการที่มันช่วยราชศัตรูนั้นมีลักษณอย่างใดอย่างหนึ่งดังว่าต่อไปในมาตรานี้ คือ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)มันทำแก่ป้อม, ค่าย, เครื่องพาหนะ ทางไปมา ทางส่งข่าว เรือรบ, เครื่องสาตราวุธยุทธภัณฑ์ เสบียงอาหาร หรือเครื่องพัสดุอื่น ๆ อันเปนของหลวงสำหรับใช้ในการสงคราม ให้เสีย ใช้ไม่ได้ หรือให้ตกไปในเงื้อมมือราชศัตรูก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)มันยุยงคนซึ่งรับราชการในทหารบก ทหารเรือ ของพระเจ้าอยู่หัว ให้หลบหนี ให้กำเริบขึ้น หรือให้ละเลยไม่ทำการตามหน้าที่ก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๓)มันช่วยสอดแนมสืบกิจการหรือนำทางให้แก่ราชศัตรู หรือกระทำอย่างใดใดเพื่อให้ราชศัตรูลอบรู้ข้อราชการ หรือหนังสือ หรือแบบแผนอย่างใดใดก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>เช่นนี้ท่านว่ามันมีความผิด ต้องระวางโทษถึงประหารชีวิตร์ หรือมิฉนั้นจำคุกจนตลอดชีวิตร์ แลให้ปรับตั้งแต่ห้าร้อยบาทขึ้นไปจนถึงห้าพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๑๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ความผิดฐานประทุษฐร้ายต่อพระราชอาณาจักร์ด้วยลักษณอย่างใดใดตามที่บัญญัติไว้ในกฎหมายหมวดนี้นั้น ถ้าผู้ใดพยายามจะกระทำ แม้เพียงแต่ได้ตระเตรียมการหรือสมคบกันเพื่อกระทำการประทุษฐร้ายนั้น ท่านว่ามันต้องรวางโทษดุจเดียวกันกับที่บัญญัติไว้สำหรับผู้กระทำความผิดอย่างนั้น</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%92%E0%B8%AA%E0%B9%91%E0%B8%AB%E0%B8%A1%E0%B9%94">หมวดที่ ๔<br>ความผิดต่อทางพระราชไมตรีกับต่างประเทศ</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๑๒</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดกระทำการประทุษฐร้ายอย่างหนึ่งอย่างใดต่อองค์พระราชาธิบดี หรือพระมเหษี พระราชสามี หรือต่อผู้ที่จะสืบราชสมบัติแห่งราชอาณาจักร์ใดใดซึ่งมีพระราชไมตรีก็ดี หรือกระทำการประทุษฐร้ายต่อตัวผู้เปนประธานาธิบดีของประเทศใดใดซึ่งมีพระราชไมตรีก็ดี ท่านว่ามันมีความผิด แลรวางโทษของมันหนักกว่าฐานประทุษฐร้ายบุคคลสามัญหนึ่งในสามส่วน แลอย่าให้อาญาที่จะลงแก่มันนั้นเบากว่าจำคุกปีหนึ่งลงมา</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าแลการประทุษฐร้ายที่มันกระทำนั้นเปนความผิดฐานฆ่าคนโดยเจตนา หรือพยายามจะฆ่าคนโดยเจตนา ท่านว่าโทษมันต้องถึงประหารชีวิตร์</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๑๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดแสดงความอาฆาฎมาดร้ายหรือหมิ่นประมาทต่อพระราชาธิบดี หรือพระมเหษี พระราชสามี หรือต่อผู้ที่จะสืบราชสมบัติแห่งราชอาณาจักร์ใดใดซึ่งมีพระราชไมตรีก็ดี หรือกระทำเช่นนั้นต่อผู้เปนประธานาธิบดีของประเทศใดใดซึ่งมีพระราชไมตรีก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกไม่เกินกว่าสามปี แลให้ปรับไม่เกินกว่าสองพันบาทด้วยอิกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๑๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดกระทำความผิดอย่างหนึ่งอย่างใดต่อผู้แทนประเทศอื่นซึ่งประเทศนั้นได้แต่งตั้งให้มาสู่พระราชสำนัก ท่านว่ามันต้องรวางโทษตามที่กฎหมายบัญญัติไว้สำหรับฐานกระทำผิดเช่นนั้นต่อเจ้าพนักงาน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๑๕</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดลด, ล้ม, หรือทำอันตรายแก่ธงหรือเครื่องหมายสำหรับประเทศที่มีพระราชไมตรี แลมันกระทำการนั้นโดยเปิดเผยเพื่อจะแสดงความหมิ่นประมาทแก่ประเทศนั้นไซ้ ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกไม่เกินกว่าหกเดือน แลให้ปรับไม่เกินกว่าห้าร้อยบาทด้วยอิกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%92%E0%B8%AA%E0%B9%92">ส่วนที่ ๒<br>ว่าด้วยความผิดอันเกี่ยวด้วยการปกครองบ้านเมือง</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%92%E0%B8%AA%E0%B9%92%E0%B8%AB%E0%B8%A1%E0%B9%91">หมวดที่ ๑<br>ความผิดฐานต่อเจ้าพนักงาน</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๑๖</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดหมิ่นประมาทต่อเจ้าพนักงานซึ่งกระทำการตามหน้าที่อันชอบด้วยกฎหมายก็ดี หรือหมิ่นประมาทต่อเจ้าพนักงานเพราะเหตุได้กระทำการตามหน้าที่นั้นก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษานุทาเปนสามสฐาน คือสฐานหนึ่งให้จำคุกไม่เกินกว่าหกเดือน สฐานหนึ่งให้ปรับไม่เกินกว่าสองร้อยบาท สฐานหนึ่งให้ลงโทษทั้งจำทั้งปรับเช่นว่ามาแล้วด้วยกัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๑๗</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดได้ทราบคำสั่งหรือการกะเกณฑ์ซึ่งเจ้าพนักงานได้บังคับโดยชอบด้วยกฎหมายให้มันช่วยราชการอย่างใดใด ถ้ามันอาจจะทำได้ แลมันบิดพลิ้วละเลยไม่ช่วยเจ้าพนักงานตามคำสั่งหรือการกะเกณฑ์นั้นไซ้ ท่านว่ามันมีความผิด ต้องรวางโทษานุทาเปนสามสฐาน คือสฐานหนึ่งให้จำคุกไม่เกินกว่าสามเดือน สฐานหนึ่งให้ปรับไม่เกินกว่าร้อยบาท สฐานหนึ่งให้ลงโทษทั้งจำทั้งปรับเช่นว่าแล้วด้วยกัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๑๘</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดเอาความอย่างใดใดที่มันรู้อยู่ว่าเปนความเท็จ แลอาจจะทำให้ผู้อื่นหรือสาธารณชนเสียหายได้นั้น มาแจ้งแก่เจ้าพนักงาน ท่านว่ามันมีความผิด ต้องรวางโทษานุโทษเปนสามสฐาน คือสฐานหนึ่งให้จำคุกไม่เกินกว่าหกเดือน สฐานหนึ่งให้ปรับไม่เกินกว่าห้าร้อยบาท สฐานหนึ่งให้ลงโทษทั้งจำทั้งปรับเช่นว่าแล้วด้วยกัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๑๙</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดต่อสู้หรือขัดขวางเจ้าพนักงานผู้กระทำการตามหน้าที่อันชอบด้วยกฎหมาย ท่านว่ามันมีความผิด ต้องรวางโทษานุโทษเปนสามสฐาน คือสฐานหนึ่งให้จำคุกไม่เกินกว่าหกเดือน สฐานหนึ่งให้ปรับไม่เกินกว่าสองร้อยบาท สฐานหนึ่งให้ลงโทษทั้งจำทั้งปรับเช่นว่าแล้วด้วยกัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๒๐</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดใช้กำลังทำร้ายหรือใช้วาจาขู่เข็ญว่าจะทำร้ายด้วยประการใด ๆ โดยประสงค์จะต่อสู้หรือขัดขวางต่อเจ้าพนักงานผู้กระทำการตามหน้าที่อันชอบด้วยกฎหมายก็ดี จะต่อสู้หรือขัดขวางผู้หนึ่งผู้ใดซึ่งต้องช่วยเจ้าพนักงานตามบังคับอันชอบด้วยกฎหมายก็ดี จะข่มขืนเจ้าพนักงานคนใดให้กระทำการหรืองดเว้นการอย่างหนึ่งอย่างใดอันเกี่ยวกับหน้าที่โดยชอบด้วยกฎหมายก็ดี ท่านว่ามันผู้กระทำร้ายหรือขู่เข็ญจะกระทำร้ายเช่นว่ามาในมาตรานี้มีความผิด ต้องรวางโทษจำคุกไม่เกินกว่าสองปี แลให้ปรับตั้งแต่ห้าสิบบาทขึ้นไปจนถึงห้าร้อยบาทด้วยอิกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าแลมันมีเครื่องสาตราวุธมากระทำผิดดังที่ว่ามานี้ก็ดี มันคุมกันเปนพรรคพวกตั้งแต่ห้าคนขึ้นไปกระทำผิดดังว่ามาก็ดี ท่านว่ามันต้องรวางโทษจำคุกตั้งแต่สามเดือนขึ้นไปจนถึงห้าปี แลให้ปรับตั้งแต่ห้าสิบบาทขึ้นไปจนถึงห้าร้อยบาทด้วยอิกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๒๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดไม่มีอำนาจที่จะทำได้โดยชอบด้วยกฎหมาย แลมันถอนทำลายตราที่เจ้าพนักงานประทับหรือหมายไว้เปนสำคัญในหนังสือหรือที่สิ่งใดใดก็ดี หรือมันกระทำให้ตรานั้นวิปลาศคลาศเสียไปด้วยอุบายอย่างหนึ่งอย่างใดก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกไม่เกินกว่าสองปี แลให้ปรับไม่เกินกว่าห้าร้อยบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๒๒</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ทรัพย์หรือหนังสือซึ่งเปนของต้องอายัตก็ดี หรือเปนของที่เจ้าพนักงานจะพึงเรียกมาพิจารณาเมื่อกระทำการตามกฎหมายนั้นก็ดี ของเหล่านี้ ถ้าผู้ใดทำให้วิปลาศเสียหายหรือซ่อนเร้นลักพาเอาไปเสีย ถ้าการที่มันกระทำนั้นไม่ถึงความผิดฐานโจร ฐานยักยอกอันต้องอาญา หรือฐานทำให้เสียทรัพย์แล้วไซ้ ท่านว่ามันต้องรวางโทษจำคุกไม่เกินกว่าปีหนึ่ง แลปรับไม่เกินกว่าห้าร้อยบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๒๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดแสดงตนว่าเปนคนสนิทชิดชอบกับเจ้าพนักงาน แลมันรับหรือยอมให้เขาสัญญาว่าจะให้ลาภสักการแก่ตัวมันเองก็ดี แก่ผู้อื่นก้ดี เพื่อที่มันจะไปวิงวอนว่ากล่าวให้เจ้าพนักงานให้คุณหรือให้โทษแก่ผู้ใดก็ดี แลจะให้มิให้เจ้าพนักงานทำการในหน้าที่อย่างใดใดก็ดี ท่านว่า มันมีความผิด ต้องรวางโทษจำคุกไม่เกินกว่าสองปี แลปรับไม่เกินกว่าพันบาทด้วยอิกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๒๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดรับหรือยอมให้เขาสัญญาว่า จะให้ลาภสักการ เพราะเหตุที่มันได้นำสินบนไปให้แก่เจ้าพนักงานก็ดี หรือเพราะเหตุที่มันได้ให้เจ้าพนักงานทำการที่ไม่ควรทำ หรือไม่ทำการที่ควรทำก็ดี ท่านว่า มันมีความผิด ต้องรวางโทษจำคุกตั้งแต่สามเดือนขึ้นไปจนถึงห้าปี แลปรับตั้งแต่ร้อยบาทขึ้นไปจนถึงสองพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๒๕</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดขอให้สินบนหรือสัญญาว่าจะให้สินบนแก่เจ้าพนักงาน โดยเจตนาจะจูงใจเจ้าพนักงานให้กระทำหรือให้ละเว้นไม่กระทำการอย่างใดใดตามหน้าที่ ท่านว่า มันมีความผิด ต้องรวางโทษจำคุกไม่เกินกว่าปีหนึ่ง แลให้ปรับไม่เกินกว่าพันบาทหรือเปนเงินสองเท่าราคาสินบนนั้นด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าแลความผิดที่ว่ามานี้เปนการขอให้สินบนแก่เจ้าพนักงานผู้มีตำแหน่งหน้าที่ฝ่ายตุลาการ โดยประสงค์จะกระทำให้ความวินิจฉัย คำสั่ง หรือคำพิพากษาของเจ้าพนักงานผู้นั้นผันแปรไปประการใดไซ้ ท่านว่า ให้ลงอาญาจำคุกมันผู้ที่ขอให้สินบนนั้นตั้งแต่หกเดือนขึ้นไปจนถึงสามปี แลให้ปรับตั้งแต่พันบาทขึ้นไปจนถึงสองพันบาทหรือเปนเงินสองเท่าราคาสินบนนั้นด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๒๖</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ความผิดฐานขอให้สินบนหรือสัญญาว่าจะให้สินบนที่ว่ามาในมาตรา ๑๒๕ นั้น ถ้าแลเจ้าพนักงานคนใดยอมจะรับสินบนก็ดี หรือรับสินบนนั้นก็ดี ท่านว่าโทษของมันผู้ให้แลผู้รับเสมอกัน ให้ลงอาญาทั้งผู้ใดแลผู้รับสินบนตามที่บัญญัติไว้ในมาตรา ๑๓๘ หรือมาตรา ๑๓๙ นั้น</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๒๗</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดปลอมตนไปกระทำการเปนเจ้าพนักงาน ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกไม่เกินกว่าปีหนึ่ง แลให้ปรับไม่เกินกว่าห้าร้อยบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>อนึ่งเจ้าพนักงานคนใดอันท่านสั่งมิให้กระทำการตามตำแหน่งหน้าที่ต่อไปแล้ว แลยังฝ่าฝืนขืนกระทำการนั้นอยู่ไซ้ ท่านว่ามันมีความผิด ต้องรวางโทษที่บัญญัติไว้ในมาตรานี้ดุจกัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๒๘</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดไม่มีอำนาจที่จะทำได้ตามกฎหมาย แลมันแต่งกายด้วยเครื่องอาภรณ์, หรือใช้เครื่องยศ, สำหรับเจ้าพนักงานก็ดี หรือใช้นามตำแหน่งยศหรือประดับเครื่องราชอิศริยาภรณ์ก็ดี ถ้ามันทำการที่ว่ามานี้ให้ปรากฎแก่คนทั้งหลายโดยประสงค์จะให้เขาเชื่อถือว่า มันเปนผู้มียศบรรดาศักดิ์ ท่านว่ามันมีความผิด ต้องรวางโทษานุโทษเปนสามสฐาน คือสฐานหนึ่งให้จำคุกไม่เกินกว่าปีหนึ่ง สฐานหนึ่งให้ปรับไม่เกินกว่าห้าร้อยบาท สฐานหนึ่งให้ลงโทษทั้งจำทั้งปรับเช่นว่ามาแล้วด้วยกัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%92%E0%B8%AA%E0%B9%92%E0%B8%AB%E0%B8%A1%E0%B9%92">หมวดที่ ๒<br>ความผิดฐานใช้อำนาจแลตำแหน่ง<br>หน้าที่ในทางทุจริต</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๒๙</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดเปนเจ้าพนักงาน ท่านใช้ให้มีหน้าที่ปกครองหรือพิทักษ์รักษาทรัพยืหรือหนังสืออย่างใดใด ถ้ามันมิได้มีอำนาจที่จะทำได้โดยชอบด้วยกฎหมาย แลมันทำลายทรัพย์หรือหนังสือนั้น ๆ หรือทำให้วิปลาศบุบฉลายไปก็ดี หรือมันยอมให้ผู้อื่นกระทำเช่นนั้นโดยมันรู้เห็นเปนใจด้วยก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่เดือนหนึ่งขึ้นไปจนถึงห้าปี แลปรับตั้งแต่ห้าสิบบาทขึ้นไปจนถึงพันบาทด้วยอิกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๓๐</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดเปนเจ้าพนักงาน ท่านใช้ให้มีหน้าที่พิทักษ์รักษาทรัพย์หรือหนังสืออย่างใดใดอันมีตราสำหรับราชการประทับหมายไว้เปนสำคัญ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้ามันมิได้มีอำนาจที่จะทำได้โดยชอบด้วยกฎหมาย แลมันถอนทำลายตรานั้นเสีย หรือมันกระทำให้ตรานั้นวิปลาศเสียไปด้วยอุบายอย่างหนึ่งอย่างใดก็ดี หรือมันยอมให้ผู้อื่นกระทำเช่นนั้น ๆ โดยมันรู้เห็นเปนใจด้วยก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่เดือนหนึ่งขึ้นไปจนถึงห้าปี แลให้ปรับตั้งแต่ห้าสิบบาทขึ้นไปจนถึงพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๓๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดเปนเจ้าพนักงาน ท่านใช้ให้มีหน้าที่จัดซื้อ หรือทำ หรือปกครองรักษาทรัพย์สิ่งใดใด ถ้ามันมิได้มีอำนาจที่จะทำได้โดยชอบด้วยกฎหมาย แลมันยักยอกเอาทรัพย์สิ่งนั้น ๆ ไปเปนของมันเสียก็ดี หรือมันยอมให้ผู้อื่นยักยอกเอาทรัพย์สิ่งนั้น ๆ ไปเสียโดยมันรู้เห็นเปนใจด้วยก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่สามเดือนขึ้นไปจนถึงเจ็ดปี แลให้ปรับตั้งแต่ร้อยบาทขึ้นไปจนถึงพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๓๒</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดเปนเจ้าพนักงาน ท่านใช้ให้มีหน้าที่จัดซื้อ หรือทำ หรือปกครองรักษาทรัพย์สิ่งใดใด ถ้าแลมันใช้อำนาจในตำแหน่งหน้าที่นั้นหาประโยชน์อันมิควรจะได้ไว้เปนอาณาประโยชน์ของตัวมันเองก็ดี หรือให้แก่ผู้อื่นก็ดี อันกระทำให้เสื่อมเสียประโยชน์ของรัฐบาล หรือเสื่อมเสียประโยชน์ของผู้เจ้าของทรัพย์นั้น ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่สามเดือนขึ้นไปจนถึงเจ็ดปี แลให้ปรับตั้งแต่ร้อยบาทขึ้นไปจนถึงสองพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๓๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดเปนเจ้าพนักงาน ท่านใช้ให้มีหน้าที่จัดการหรือดูแลกิจการใดใด ถ้าแลมันไปเกี่ยวข้องหากำไรแลผลประโยชน์ส่วนตัวในกิจการที่ท่านให้มันทำนั้น ไม่ว่าโดยตรงหรือด้วยอุบายอย่างใดใด ดังเช่นเอาส่วนลดแลกำไรในการซื้อขาย หรือเข้าหุ้นส่วนกับผู้ซื้อผู้ขายผู้รับจ้างในการนั้นเปนต้นฉนี้ ท่านว่ามันมีความผิด ต้องรวางโทษานุโทษเปนสามสฐาน คือสฐานหนึ่ง ให้จำคุกไม่เกินกว่าหกเดือน สฐานหนึ่งให้ปรับไม่เกินกว่าห้าร้อยบาท สฐานหนึ่งให้ลงโทษทั้งจำทั้งปรับเช่นว่ามาแล้วด้วยกัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๓๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดเปนเจ้าพนักงาน มีหน้าที่จับจ่ายเงินแผ่นดินก็ดี หรือเงินของสาธารณสภาใดใดก็ดี ถ้าแลมันจ่ายเงินเกินไปกว่าที่ควรจ่าย โดยมันเจตนาจะหาประโยชน์อันมิควรที่จะได้ไว้เปนอาณาประโยชน์ของตัวมันเองก็ดี หรือให้ผู้อื่นก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่สามเดือนขึ้นไปจนถึงเจ็ดปี แลให้ปรับตั้งแต่ร้อยบาทขึ้นไปจนถึงสองพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๓๕</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดเปนเจ้าพนักงาน ท่านใช้ให้มีหน้าที่ หรือมันแสดงว่า ท่านใช้ให้มีหน้าที่ เรียกเก็บส่วยภาษีอากรแลทรัพย์อันต้องส่งต่อรัฐบาลก็ดี หรือทรัพย์ที่ต้องส่งต่อสาธารณสภาใดใดก็ดี ถ้าแลมันไปเรียกเก็บเงินหรือทรัพย์ที่ไม่ควรจะเก็บ หรือมันเรียกเก็บเกินไปกว่าที่ควรจะเก็บ แลมันมิได้นำส่งต่อรัฐบาลหรือต่อสาธารณสภานั้น ๆ ไซ้ ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่สามเดือนขึ้นไปจนถึงเจ็ดปี แลให้ปรับตั้งแต่ร้อยบาทขึ้นไปจนสองพันบาทด้วยอิกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๓๖</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>เจ้าพนักงานคนใดใช้อำนาจในตำแหน่งหน้าที่โดยทางอันมิชอบ มันบังคับให้เขาให้หรือให้เขาหาทรัพย์หรือผลประโยชน์อย่างใดใดอันมิควรจะได้ตามกฎหมายมาให้แก่ตัวมันเองก็ดี หรือให้แก่ผู้อื่นก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่สามเดือนขึ้นไปจนถึงเจ็ดปี แลให้ปรับตั้งแต่ร้อยบาทขึ้นไปจนถึงสามพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๓๗</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>เจ้าพนักงานคนใดเรียก หรือรับ หรือยอมว่าจะรับทรัพย์สินหรือผลประโยชน์อย่างใดใดอันมิควรจะได้ตามกฎหมายไว้เปนของน้ำใจส่วนตัวมันเองก็ดี ให้ผู้อื่นก็ดี เพื่อเปนเครื่องอุปการะแก่การที่มันให้คุณหรือให้โทษ หรือละเว้นมิให้คุณหรือมิให้โทษ แก่ผู้หนึ่งผู้ใดในการที่มันกระทำด้วยอำนาจในหน้าที่นั้น ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกไม่เกินกว่าสองปี แลให้ปรับไม่เกินกว่าพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๓๘</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>เจ้าพนักงานคนใดเรียก หรือรับ หรือยอมว่าจะรับสินบนเปนอาณาประโยชน์แก่ตัวมันเองก็ดี ให้ผู้อื่นก็ดี เพื่อที่มันจะกระทำหรือละเว้นไม่กระทำการอย่างใดใดในหน้าที่ ถ้าหากว่าการที่กระทำหรือละเว้นไม่กระทำเพราะเห็นแก่สินบนนั้นไม่ผิดรเบียบการในหน้าที่ ท่านว่าความผิดของมันต้องรวางโทษจำคุกไม่เกินกว่าสองปี แลให้ปรับไม่เกินกว่าพันบาทหรือถึงสองเท่าราคาสินบนนั้นด้วยอิกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าแลการที่มันกระทำหรือละเว้นไม่กระทำเพราะเห็นแก่สินบนนั้นนอกเหนือเหลือเกินมิชอบด้วยอำนาจแลหน้าที่ของมันไซ้ ท่านว่ามันต้องรวางโทษจำคุกตั้งแต่สามเดือนขึ้นไปจนถึงห้าปี แลให้ปรับตั้งแต่ร้อยบาทขึ้นไปจนถึงสองพันบาทหรือถึงสองเท่าราคาสินบนนั้นด้วยอิกโสดหนึ่ง แต่ถ้าแม้มันยังมิทันได้กระทำการที่ไม่ควรทำ หรือมิทันเว้นการที่ไม่ควรเว้น ท่านให้ลดโทษตามที่ว่ามานี้เสียกึ่งหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๓๙</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>เจ้าพนักงานคนใดท่านใช้ให้มีหน้าที่ทำการฝ่ายตุลาการ ถ้าแลมันเรียก หรือรับ หรือยอมว่าจะรับสินบนเปนอาณาประโยชน์แก่ตัวมันเองก็ดี ให้ผู้อื่นก็ดี เพื่อจะให้ความวินิจฉัย คำสั่ง หรือคำพิพากษาของมันในหน้าที่นั้นผันแปรไปอย่างใดใดไซ้ ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่สองปีขึ้นไปจนถึงสิบปี แลให้ปรับตั้งแต่ร้อยบาทขึ้นไปจนถึงห้าพันบาท หรือถึงสองเท่าราคาสินบนนั้นด้วยอิกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๔๐</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดรู้ตัวว่าจะได้เปนเจ้าพนักงาน แลมันเรียก หรือรับ หรือยอมว่าจะรับสินบนไว้ก่อนแล้ว ครั้นเมื่อมันได้เปนเจ้าพนักงาน มันไปใช้อำนาจในตำแหน่งหน้าที่ในทางที่เห็นแก่สินบนนั้นไซ้ ท่านว่ามันมีความผิด ต้องรวางโทษเสมอกันกับเจ้าพนักงานที่มีความผิดฐานเรียก หรือรับ หรือยอมว่าจะรับสินบนฉนั้น</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๔๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>บรรดาสินบนที่ได้ให้แก่กันโดยการเลมิดกฎหมายนั้น ท่านให้ริบเปนของหลวงทั้งสิ้น</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๔๒</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>เจ้าพนักงานคนใดท่านใช้ให้มีหน้าที่สืบเสาะ ไต่สวน หรือฟ้องคดีที่มีความผิดต่อพระราชกำหนดกฎหมาย แลมันเพทุบายกระทำการที่ไม่ควรจะกระทำ หรือเว้นการที่ไม่ควรเว้น ด้วยเจตนาจะช่วยผู้ผิดมิให้ต้องรับอาญาตามกฎหมายไซ้ ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่สามเดือนขึ้นไปจนถึงห้าปี แลให้ปรับตั้งแต่ร้อยบาทขึ้นไปจนถึงพันบาทด้วยอิกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าเจ้าพนักงานคนใดซึ่งมีหน้าที่ดังที่ว่ามานี้เพทุบายกระทำการอันไม่ควรจะกระทำ หรือเว้นการที่ไม่ควรเว้น โดยมันเจตนาจะแกล้งให้ผู้หาความผิดมิได้ต้องรับอาญาก็ดี หรือแกล้งให้ผู้ที่มีความผิดน้อยต้องรับอาญาเกินไปกว่าที่ควรจะรับตามกฎหมายนั้นก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่หกเดือนขึ้นไปจนถึงเจ็ดปี แลให้ปรับตั้งแต่ร้อยบาทขึ้นไปจนถึงสองพันบาทด้วยอิกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๔๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดเปนเจ้าพนักงานรับราชการอยู่ในกรมไปรสนีย์โทรเลข ถ้าแลมันกระทำความผิดอย่างหนึ่งอย่างใดที่ว่าต่อไปในมาตรานี้ คือ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)แกล้งเปิดผนึก หรือแกล้งทำลายหนังสือ แกล้งทำลายโทรเลขหรือสิ่งของที่ส่งทางไปรสนีย์ก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)แกล้งให้หนังสือ หรือโทรเลข หรือสิ่งใดใดที่ส่งทรงไปรสนีย์สูญหายไปเสียก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๓)แกล้งส่งหนังสือ หรือโทรเลข หรือสิ่งใดใดที่ฝากทางไปรสนีย์ให้แก่บุคคลที่มันรู้อยู่ว่า มิได้เปนผู้ที่ควรรับนั้นก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๔)แกล้งเปิดเผยข้อความในหนังสือ หรือโทรเลข หรือสิ่งใดใดที่ฝากกันทางไปรสนีย์นั้นออกให้คนรู้ก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่เดือนหนึ่งขึ้นไปจนถึงหกเดือน แลให้ปรับตั้งแต่สิบบาทขึ้นไปจนถึงพันบาทด้วยอิกโสดหนึ่ง แลถ้าความผิดที่มันกระทำดังที่ว่ามานั้นเปนเหตุให้เกิดความเสียหายขึ้นแก่ผู้หนึ่งผู้ใดด้วยไซ้ ท่านว่ามันต้องรวางโทษจำคุกตั้งแต่สามเดือนขึ้นไปจนถึงห้าปี แลให้ปรับตั้งแต่ห้าสิบบาทขึ้นไปจนถึงพันบาทด้วยอิกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๔๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดเปนเจ้าพนักงาน มีตำแหน่งหน้าที่อันสามารถจะล่วงรู้ความลับอย่างใดใดในราชการแผ่นดิน ถ้ามันมิได้มีอำนาจที่จะเปิดความลับนั้นได้โดยชอบด้วยกฎหมาย แลมันเอาความลับนั้นไปแพร่งพรายให้ผิดแก่หน้าที่ของมันไซ้ ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกไม่เกินกว่าปีหนึ่ง แลให้ปรับไม่เกินกว่าพันบาทด้วยอิกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๔๕</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>เจ้าพนักงานคนใดคิดร้ายต่อผู้อื่น แลมันกระทำการอันมิควรกระทำ หรือละเว้นการอันมิควรเว้น ในตำแหน่งหน้าที่ของมัน โดยเจตนาจะให้เกิดความเสียหายแก่เขาไซ้ ท่านว่ามันมีความผิด ถ้าแลความผิดของมันที่กระทำนั้นไม่ต้องด้วยกฎหมายบทอื่น ท่านให้ลงโทษจำคุกมันไม่เกินกว่าสองปี แลให้ปรับไม่เกินกว่าพันบาทด้วยอิกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๔๖</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดเปนเจ้าพนักงาน มีตำแหน่งหน้าที่จัดการให้เปนไปตามกฎหมาย แลข้อบังคับ หรือคำพิพากษา แลคำสั่งของผู้ใหญ่ ถ้าแลมันกลับไปป้องกันหรือขักขวางมิให้การเปนไปตามกฎหมาย ข้อบังคับ คำพิพากษา หรือคำสั่งนั้นไซ้ ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกไม่เกินกว่าหกเดือน แลให้ปรับไม่เกินกว่าห้าร้อยบาทด้วยอิกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%92%E0%B8%AA%E0%B9%93">ส่วนที่ ๓<br>ว่าด้วยความผิดที่กระทำให้เสื่อมเสียความยุติธรรม</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%92%E0%B8%AA%E0%B9%93%E0%B8%AB%E0%B8%A1%E0%B9%91">หมวดที่ ๑<br>ความผิดฐานกระทำให้เสื่อมเสียอำนาจศาล</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๔๗</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดถูกบังคับตามกฎหมายให้มาเบิกความเปนพยานในการพิจารณาคดีก็ดี ให้มาเบิกความฐานเปนผู้มีความรู้ความชำนาญเพื่อประโยชน์ในการพิจารณาคดีก็ดี ถ้าแลมันบิดพลิ้วหลีกเลี่ยงไม่มาเบิกความ ท่านว่ามันมีความผิด ต้องรวางโทษานุโทษเปนสามสฐาน คือสฐานหนึ่งให้จำคุกไม่เกินกว่าหกเดือน สฐานหนึ่งให้ปรับไม่เกินกว่าร้อยบาท สฐานหนึ่งให้ลงโทษทั้งจำทั้งปรับเช่นว่ามาแล้วด้วยกัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๔๘</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ในการพิจารณาคดีเรื่องใดใด เมื่อศาลบังคับตามกฎหมายให้ผู้ใดปฏิญาณสาบาลตัวก็ดี ให้เบิกความก็ดี ให้มันลงชื่อในถ้อยคำของมันก็ดี ถ้าแลมันขัดขืนมิทำตามศาลบังคับไซ้ ท่านว่ามันมีความผิด ต้องรวางโทษานุโทษเปนสามสฐาน คือสฐานหนึ่ง ให้จำคุกไม่เกินกว่าหกเดือน สฐานหนึ่งให้ปรับไม่เกินกว่าร้อยบาท สฐานหนึ่ง ให้ลงโทษทั้งจำทั้งปรับเช่นว่ามาแล้วด้วยกัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๔๙</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ในการพิจารณาคดีเรื่องใดใด เมื่อศาลบังคับตามกฎหมายให้ผู้ใดเอาหนังสือหรือทรัพย์อย่างใดใดมาแสดงให้ปรากฎก็ดี หรือให้ไปจัดการเอาของเหล่านั้นมาแสดงให้ปรากฎก็ดี ถ้าแลมันขัดขืนมิทำตามศาลบังคับไซ้ ท่านว่ามันมีความผิด ต้องรวางโทษานุโทษเปนสามสฐาน คือสฐานหนึ่ง ให้จำคุกไม่เกินกว่าหกเดือน สฐานหนึ่งให้ปรับไม่เกินกว่าร้อยบาท สฐานหนึ่งให้ลงโทษทั้งจำทั้งปรับเช่นว่าแล้วด้วยกัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๕๐</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ในการพิจารณาคดีเรื่องใดใด เมื่อผู้ใดได้แสดงหนังสือหรือทรัพย์อย่างใดใดให้ปรากฎ แล้วมันกระทำให้หนังสือหรือทรัพย์นั้นวิปลาศบุบฉลายไปก็ดี หรือมันทำลาย มันซ่อนเร้น หนังสือหรือทรัพย์นั้นเสียก็ดี หรือมันเอาหนังสือหรือทรัพย์นั้นไปเสียให้พ้นก็ดี ท่านว่ามันมีความผิดสามสฐาน คือสฐานหนึ่ง ให้จำคุกไม่เกินกว่าหกเดือน สฐานหนึ่งให้ปรับไม่เกินกว่าห้าร้อยบาท สฐานหนึ่งให้ลงโทษทั้งจำทั้งปรับเช่นว่ามาแล้วด้วยกัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๕๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดบังอาจหมิ่นประมาทต่อศาลในเวลาพิจารณาคดีก็ดี หรือมันกระทำการขัดขวางต่อการศาลในเวลาพิจาณณาคดี ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกไม่เกินกว่าสองปี แลให้ปรับไม่เกินกว่าพันบาทด้วยอิกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๕๒</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าผู้ใดขัดขวงกีดกันการทอดตลาดขายทรัพย์ตามคำสั่งของศาลด้วยประการใดใด เปนต้นว่าใช้กำลังกระทำร้ายก็ดี ใช้วาจาขู่เข็ญว่าจะกระทำร้ายก็ดี ใช้อุบายให้ลากสักการหรือสัญญาว่าจะให้ลาภสักการก็ดี เพื่อจะเกียดกันขัดขวางแก่การขายทอดตลาดนั้น ท่านว่ามันมีความผิด ต้องรวางโทษานุโทษเปนสามสฐาน คือสฐานหนึ่งให้จำคุกไม่เกินกว่าสามเดือน สฐานหนึ่งให้ปรับไม่เกินกว่าร้อยบาท สฐานหนึ่งให้ลงโทษทั้งจำทั้งปรับเช่นว่ามาแล้วด้วยกัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าแลผู้ที่จัดการขายทอดตลาดนั้นเปนเจ้าพนักงานกระทำการตามหน้าที่ไซ้ ท่านให้ลงอาญาแก่มันผู้ขัดขวางกีดกันดังว่ามาแล้วนั้นตามลักษณโทษที่บัญญัติไว้ในมาตรา ๑๒๐ นั้น</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๕๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดใช้ชื่อปลอมร้องฟ้องต่อโรงศาลก็ดี หรือเอาชื่อของผู้อื่นมาฟ้องร้องโดยเขามิได้อนุญาตก็ดี ถ้าแลมันกระทำโดยเจตนาอันมิชอบด้วยกฎหมาย ท่านว่ามันมีความผิด ต้องรวางโทษานุโทษเปนสามสฐาน คือ สฐานหนึ่งให้จำคุกไม่เกินกว่าหกเดือน สฐานหนึ่งให้ปรับไม่เกินกว่าห้าร้อยบาท สฐานหนึ่งให้ลงโทษทั้งจำทั้งปรับเช่นว่ามาแล้วด้วยกัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๕๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดเจตนาจะช่วยผู้อื่นให้พ้นอาญาอันควรรับตามกฎหมาย แลมันกระทำการอย่างหนึ่งอย่างใดดังกล่าวต่อไปในมาตรานี้ คือว่า</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)มันกระทำข้อความหรือสิ่งซึ่งเปนสักขีพยานในการกระทำผิดให้สูญหายไปเสียก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)มันเพทุบายเอาเนื้อความที่มันรู้อยู่ว่าเปนเท็จมาบอกเล่าในเรื่องความผิดใดใด เพื่อจะให้หลงเชื่อไปในทางที่เปนเท็จก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๓)มันให้สำนักหรือซ่อนเร้นผู้กระทำผิดหรือผู้ต้องหาในความผิดไว้ก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๔)มันช่วยด้วยประการใดใดให้ผู้ที่กระทำผิดหรือผู้ต้องหาว่าได้กระทำผิดนั้นหลบหลีกไม่ให้ถูกจับกุมก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ท่านว่ามันผู้กระทำการเช่นว่ามานี้มีความผิด ต้องรวางโทษจำคุกตั้งแต่เดือนหนึ่งขึ้นไปจนถึงสามปี แลให้ปรับตั้งแต่ยี่สิบบาทขึ้นไปจนถึงสองร้อยบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าแลผู้กระทำผิดหรือผู้ต้องหาที่มันช่วยนั้นเปนผู้กระทำผิดหรือผู้ต้องหาในความผิดอุกฤษฐโทษถึงประหารชีวิตร์หรือเปนมหันตโทษ คือจำคุกตั้งแต่สิบห้าปีขึ้นไป ท่านว่ามันผู้ช่วยนั้นต้องรวางโทษจำคุกตั้งแต่สามเดือนขึ้นไปจนถึงห้าปี แลให้ปรับตั้งแต่ห้าสิบบาทขึ้นไปจนถึงห้าร้อยบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>แต่ถ้าการที่ช่วยผู้กระทำผิดดังที่ว่ามาในข้อ ๓ แลข้อ ๔ ในมาตรานี้นั้นเปนการที่สามีช่วยภรรยา หรือภรรยาช่วยสามีไซ้ ท่านว่าอย่าให้ลงอาญาแก่มันที่ช่วยนั้นเลย เพราะมันเปนผัวเมีย เสียกันมิได้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%92%E0%B8%AA%E0%B9%93%E0%B8%AB%E0%B8%A1%E0%B9%92">หมวดที่ ๒<br>ความผิดฐานฟ้องเท็จ<br>แลเบิกความเท็จ</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๕๕</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดได้สาบาลหรือปฏิญาณตัวที่จะให้ถ้อยคำในการพิจารณาคดีใดใดแล้ว ถ้าแลมันเอาความที่มันรู้อยู่ว่าเปนความเท็จมาเบิกในข้อสำคัญแต่อย่างหนึ่งอย่างใดในคดีนั้น ท่านว่ามันมีความผิดฐานเบิกความเท็จ ต้องรวางโทษจำคุกตั้งแต่สามเดือนขึ้นไปจนถึงสามปี แลให้ปรับตั้งแต่ห้าสิบบาทขึ้นไปจนถึงห้าร้อยบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๕๖</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าผู้ใดเบิกความเท็จในคดีซึ่งพิจารณาทางอาญา ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่สามเดือนขึ้นไปจนถึงห้าปี แลให้ปรับตั้งแต่ร้อยบาทขึ้นไปจนถึงพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๕๗</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดก่อเหตุให้เกิดให้มีขึ้นด้วยประการใดใดก็ดี หรือทำบาญชี หรือจดลงในจดหมายแลหนังสือเอกสารใดใดก็ดี ที่อาจจะพึงใช้เปนสักขีพยานในข้อสำคัญแห่งการพิจารณาคดีอันใด โดยมันรู้อยู่ว่าเหตุการที่มันก่อให้เกิดขึ้น แลบาญชีหรือหนังสือที่มันทำนั้น จะให้ความสัจจริงในคดีอันนั้นไซ้ ท่านว่ามันกระทำพยานเท็จ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดนำเหตุการพยานเท็จเช่นว่านี้มาอ้างในคดีที่พิจารณา ท่านว่ามันมีความผิดต้องรวางโทษที่ได้บัญญัติไว้ในมาตรา ๑๕๕ หรือมาตรา ๑๕๖ ตามฐานความผิดของมัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๕๘</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดแกล้งเอาความที่มันรู้อยู่ว่าเปนความเท็จไปร้องเรียนหรือฟ้องกล่าวโทษผู้อื่นไซ้ ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่เดือนหนึ่งขึ้นไปจนถึงสองปี แลให้ปรับตั้งแต่ยี่สิบบาทขึ้นไปจนถึงห้าร้อยบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าแลมันแกล้งกล่าวโทษเขาว่า ได้กระทำผิดเปนอุกฤษฐโทษถึงประหารชีวิตก็ดี หรือเปนมหันตโทษถึงจำคุกตั้งแต่สิบห้าปีขึ้นไปก็ดี ท่านว่ามันต้องรวางโทษจำคุกตั้งแต่สามเดือนขึ้นไปจนถึงสามปี แลให้ปรับตั้งแต่ห้าสิบบาทขึ้นไปจนถึงพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๕๙</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดรู้อยู่ว่ามิได้มีการกระทำผิดเกิดขึ้น แลมันใส่ความฟ้องร้องว่าเกิดการกระทำผิดขึ้นก็ดี หรือว่ามันใส่เท็จทำพยานเพื่อจะให้เห็นว่าความผิดได้เกิดขึ้นก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกไม่เกินกว่าปีหนึ่ง แลให้ปรับไม่เกินกว่าห้าร้อยบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๖๐</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดเบิกความเท็จ หรือกระทำพยานเท็จ หรือแกล้งกล่าวหาด้วยความเท็จ ดังว่ามาในมาตรา ๑๕๖, ๑๕๗, ๑๕๘, ๑๕๙ จนเปนเหตุให้ผู้ที่หาความผิดมิได้ต้องโทษฐานลหุโทษก็ดี หรือต้องจำคุกไม่เกินสามเดือนก็ดี หรือเพียงแต่ต้องปรับอย่างเดียวก็ดี ท่านว่ามันผู้เบิกความเท็จ กระทำพยานเท็จ หรือแกล้งกล่าวหาด้วยความเท็จนั้นมีความผิด ต้องรวางโทษจำคุกตั้งแต่ปีหนึ่งขึ้นไปจนถึงห้าปี แลให้ปรับตั้งแต่ร้อยบาทขึ้นไปจนถึงพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าแลผู้ที่หาความผิดมิได้นั้นต้องถูกรับอาญาอย่างอื่นนอกจากที่ว่ามานี้ ท่านว่าโทษของมันผู้เบิกความเท็จ หรือกระทำพยานเท็จ หรือแกล้งกล่าวหาด้วยความเท็จนั้นถึงจำคุกตั้งแต่สองปีขึ้นไปจนถึงสิบปี แลให้ปรับตั้งแต่ร้อยบาทขึ้นไปจนถึงพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าแลผู้ที่มิได้มีความผิดต้องถูกรับอาญาถึงประหารชีวิตร์ ท่านว่ามันผู้เบิกความเท็จ กระทำพยานเท็จ หรือแกล้งกล่าวหาด้วยความเท็จนั้นต้องรวางโทษจำคุกตั้งแต่สิบปีขึ้นไปจนถึงยี่สิบปี แลให้ปรับตั้งแต่ร้อยบาทขึ้นไปจนถึงสองพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๖๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าผู้ใดแกล้งเอาความเท็จมาร้องฟ้องกล่าวหาเขาแล้ว แลมันรู้สึกตัวกลัวผิด มันรีบถอนฟ้องเสียแต่เวลายังมิทันที่เจ้าพนักงานจะสั่งคดีนั้นประการใดไซ้ ท่านว่าควรลงโทษแก่มันเพียงให้จำคุกไม่เกินกว่าสามเดือน แลให้ปรับไม่เกินกว่าร้อยบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๖๒</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าผู้ใดเบิกความเท็จแล้ว แลมันรู้สึกตัวกลัวผิดรีบคืนคำเท็จนั้นเสีย แลกลับให้ความที่สัจที่จริงในทันใดก่อนจบคำให้การของมันนั้นไซ้ ท่านว่าอย่าให้เอาโทษแก่มันเลย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้ามันไปรู้สึกตัวกลัวความผิดเมื่อภายหลัง แลมันไปสารภาพต่อเจ้าพนักงานผู้ที่ได้รับถ้อยคำของมัน ขอถอนคำเท็จ กลับให้ความตามที่สัจที่จริง ทันเวลาก่อนศาลพิพากษาคดีนั้น แลก่อนที่เจ้าพนักงานได้ฟ้องมันฐานเบิกความเท็จด้วยแล้ว ท่านว่ามันควรได้รับความปรานี ให้ลดอาญาที่จะลงแก่มันฐานเบิกความเท็จนั้นกึ่งหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%92%E0%B8%AA%E0%B9%93%E0%B8%AB%E0%B8%A1%E0%B9%93">หมวดที่ ๓<br>ความผิดฐานหลบหนีจากที่คุมขัง</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๖๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดอยู่ในรวางคุมขังโดยชอบด้วยกฎหมาย ถ้าแลหนีไปไซ้ ท่านว่ามันต้องรวางโทษานุโทษเปนสามสฐาน คือสฐานหนึ่งให้จำคุกไม่เกินกว่าหกเดือน สฐานหนึ่งให้ปรับไม่เกินกว่าร้อยบาท สฐานหนึ่งให้ลงโทษทั้งจำทั้งปรับเช่นว่ามาแล้วด้วยกัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๖๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดอยู่ในระหว่างคุมขังโดยชอบด้วยกฎหมาย ถ้าแลหักแหกที่คุมขังหนีไปก็ดี หรือหนีไปโดยกระทำร้ายหรือขู่เข็ญว่าจะกระทำร้ายก็ดี ท่านว่ามันต้องรวางโทษจำคุกตั้งแต่สามเดือนขึ้นไปจนถึงสามปี แลให้ปรับตั้งแต่ห้าสิบบาทขึ้นไปจนถึงห้าร้อยบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๖๕</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดบังอาจเข้าแก้ไขคนที่อยู่ในระหว่างคุมขังโดยชอบด้วยกฎหมายให้หนีไปก็ดี หรือมันช่วยอุปการะให้หนีได้ก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่เดือนหนึ่งขึ้นไปจนถึงสองปี แลให้ปรับตั้งแต่ยี่สิบบาทขึ้นไปจนถึงสองร้อยบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าแลผู้ที่หนีนั้นเปนนักโทษต้อรวางโทษถึงประหารชีวิตร์ก็ดี หรือจำคุกตั้งแต่สิบห้าปีขึ้นไปก็ดี ท่านว่ามันผู้แก้ไขหรือช่วยอุปการะให้หนีนั้นต้องรวางโทษจำคุกตั้งแต่หกเดือนขึ้นไปจนถึงห้าปี แลให้ปรับตั้งแต่ห้าสิบบาทขึ้นไปจนถึงห้าร้อยบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๖๖</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดแก้ไขหรือช่วยอุปการะให้คนที่อยู่ในระหว่างคุมขังโดยชอบด้วยกฎหมายหนีไป ด้วยมันใช้กำลังกระทำร้ายหรือขู่เข็ญด้วยวาจาว่าจะกระทำร้าย ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่หกเดือนขึ้นไปจนถึงห้าปี แลให้ปรับตั้งแต่ห้าสิบบาทขึ้นไปจนถึงห้าร้อยบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าแลคนที่หนีนั้นเปนนักโทษต้องรวางโทษถึงประหารชีวิตร์ก็ดี หรือจำคุกตั้งแต่สิบห้าปีขึ้นไปก็ดี ท่านว่ามันผู้ที่แก้ไขหรือช่วยอุปการะให้หนีนั้นต้องรวางโทษจำคุกตั้งแต่ปีหนึ่งขึ้นไปจนถึงเจ็ดปี แลให้ปรับตั้งแต่ร้อยบาทขึ้นไปจนถึงพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๖๗</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าผู้ที่กระทำผิดอย่างใดใดที่ว่าไว้ในมาตรา ๑๖๕ แลมาตรา ๑๖๖ นั้นเปนภรรยา, สามี, พี่, น้อง, หรือเปนญาติที่สืบสายโลหิตโดยตรงลงมาหรือโดยตรงขึ้นไปของนักโทษที่มันช่วยให้หนีนั้นไซ้ ท่านว่ามันกระทำเพราะมันเปนภรรยา สามี แลญาติสายโลหิต เสียกันมิได้โดยธรรมดา ควรปรานีลดโทษตามที่บัญญัติไว้สำหรับความผิดที่มันกระทำนั้นลงเสียกึ่งหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๖๘</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดเปนเจ้าพนักงาน ท่านใช้ให้มีหน้าที่ดูแลควบคุมคนที่ต้องคุมขังโดยชอบด้วยกฎหมาย แลมันเปนใจช่วยหรือปล่อยให้ผู้ต้องคุมขังหนีไปไซ้ ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่ปีหนึ่งขึ้นไปจนถึงเจ็ดปี แลให้ปรับตั้งแต่ร้อยบาทขึ้นไปจนถึงพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าแลคนที่หนีนั้นเปนนักโทษต้องรวางโทษถึงประหารชีวิตร์ก็ดี หรือจำคุกตั้งแต่สิบห้าปีขึ้นไปก็ดี ท่านว่ามันผู้เปนเจ้าพนักงานที่ช่วยหรือปล่อยให้คนหนีนั้นต้องรวางโทษจำคุกตั้งแต่สองปีขึ้นไปจนถึงสิบปี แลให้ปรับตั้งแต่สองร้อยบาทขึ้นไปจนถึงสองพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๖๙</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดเปนเจ้าพนักงาน มีตำแหน่งหน้าที่สำหรับดูแลควบคุมคนที่ต้องคุมขังโดยชอบด้วยกฎหมาย ถ้าแลมันมีความประมาทละเลยให้ผู้ต้องคุมขังนั้นหนีไปไซ้ ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่เดือนหนึ่งขึ้นไปจนถึงสองปี แลให้ปรับตั้งแต่ยี่สิบบาทขึ้นไปจนถึงสองร้อยบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าแลคนที่หนีนั้นเปนนักโทษต้องรวางโทษถึงประหารชีวิตร์ก็ดี หรือจำคุกตั้งแต่สิบห้าปีขึ้นไปก็ดี ท่านว่ามันผู้เปนเจ้าพนักงานที่ประมาทละเลยนั้นต้องรวางโทษจำคุกตั้งแต่สามเดือนขึ้นไปจนถึงสามปี แลให้ปรับตั้งแต่ห้าสิบบาทขึ้นไปจนถึงห้าร้อยบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>แต่ถ้าจับตัวนักโทษที่หนีนั้นคืนมาได้ภายในสี่เดือน ท่านว่าโทษที่มันผู้เปนเจ้าพนักงานอันมีความประมาทนั้นได้รับมาแล้วเพียงใด ให้เปนอันยุติแต่เพียงนั้น ไม่ต้องลงอาญาแก่มันต่อไป</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๗๐</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดต้องโทษถูกบังคับให้อยู่ภายในเขตร์ที่อันมีกำหนดก็ดี มิให้เข้าไปในเขตร์ที่ใดก็ดี ถ้าแลมันออกไปจากเขตร์ที่ ๆ ท่านกำหนดให้อยู่ก็ดี หรือเข้าไปในที่ซึ่งท่านห้ามไว้มิให้ไปก็ดี ท่านว่ามันต้องรวางโทษจำคุกไม่เกินกว่าปีหนึ่ง แลให้ปรับไม่เกินกว่าห้าร้อยบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๗๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ในการที่จะพิพากษากำหนดโทษผู้มีความผิดที่กล่าวในหมวดนี้นั้น ท่านให้ศาลพิเคราะห์ดูกำหนดโทษเดิมของมันก่อน คือว่า ตามกำหนดโทษเดิมนั้น มันยังจะต้องติดคุกหรือยังจะต้องอยู่ในที่มีเขตร์บังคับอีกช้านานเท่าใด แลฐานโทษเดิมของมันหนักเบาเพียงใด ให้ศาลกำหนดโทษใหม่ตามควรแก่กำหนดเวลาแลลักษณของโทษเดิม</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%92%E0%B8%AA%E0%B9%94">ส่วนที่ ๔<br>ว่าด้วยความผิดต่อสาสนา</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๗๒</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดทำลายวัดถุหรือสถานอันเปนที่เคารพในทางสาสนาของบุคคลจำพวกใดใดก็ดี ทำให้วัดถุหรือสถานเช่นว่ามานั้นชำรุดทรุดโทรมเสียหายก็ดี ถ้ามันทำโดยอาการที่พึงเห็นได้ว่า เปนข้อหมิ่นประมาทแก่สาสนาของบุคคลผู้หนึ่งผู้ใดไซ้ ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกไม่เกินกว่าสามปี แลให้ปรับไม่เกินกว่าพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๗๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ในเวลาสาสนิกชนประชุมกันนมัสการหรือกระทำพิธีกรรมตามลัทธิสาสนาใดใดโดยชอบด้วยกฎหมาย ถ้าแลผู้ใดก่อให้เกิดวุ่นวายขึ้นในที่ประชุมนั้นไซ้ ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกไม่เกินกว่าปีหนึ่ง แลให้ปรับไม่เกินกว่าสองร้อยบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%92%E0%B8%AA%E0%B9%95">ส่วนที่ ๕<br>ว่าด้วยความผิดที่กระทำให้เกิดภยันตราย<br>แก่บุคคลแลทรัพย์</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%92%E0%B8%AA%E0%B9%95%E0%B8%AB%E0%B8%A1%E0%B9%91">หมวดที่ ๑<br>ความผิดฐานใช้ให้ผู้อื่นกระทำความผิด</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๗๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดใช้ผู้อื่นด้วยอุบายเสี้ยมสอนอย่างใดใด เพื่อให้กระทำความผิดอันต้องด้วยลักษณโทษจำคุกไม่ต่ำกว่าปีหนึ่งลงมา ท่านว่ามันมีความผิด โทษที่ท่านบัญญัติไว้สำหรับความผิดนั้นเท่าใด ให้แบ่งเปนสี่ส่วน ให้ลงอาญาแก่มันผู้ใช้ส่วนหนึ่ง แต่อย่าให้ยิ่งกว่าจำคุกสามปีเปนอย่างหนัก</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าแลความผิดที่มันใช้ให้กระทำนั้นได้มีผู้กระทำขึ้นตามมันใช้ก็ดี หรือเพียงแต่พยายามจะกระทำก็ดี ท่านให้ถือว่ามันผู้ใช้นั้นเปนตัวการด้วยดุจดังบัญญัติไว้ในมาตรา ๖๔ นั้น</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๗๕</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดประกาศแก่สาธารณชนเปนเชิงยุยงหรือสัญญาบนบาล เพื่อจะให้ผู้หนึ่งผู้ใดกระทำความผิดอันต้องด้วยลักษณโทษจำคุกไม่ต่ำกว่าหกเดือนลงมา ท่านว่ามันมีความผิด โทษที่ท่านบัญญัติไว้สำหรับความผิดนั้นเท่าใด ให้แบ่งออกเปนสามส่วน ให้ลงอาญาแก่มันส่วนหนึ่ง แต่อย่าให้ยิ่งกว่าจำคุกห้าปีเปนอย่างหนัก</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าแลความผิดที่มันยุยงหรือสัญญาบนบาลให้ทำนั้นได้มีผู้กระทำขึ้นก็ดี หรือเพียงแต่พยายามจะกระทำก็ดี ท่านให้ถือว่ามันผู้ยุยงบนบาลนั้นเปนตัวการด้วยดุจดังบัญญัติไว้ในมาตรา ๖๔ นั้น</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๗๖</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดรับอาษาจะกระทำความผิดอย่างหนึ่งอย่างใดโดยมันเห็นแก่ค่าจ้างรางวัลที่จะพึงได้นั้นไซ้ ท่านว่ามันมีความผิด ต้องรวางโทษตามที่บัญญัติไว้สำหรับผู้ใช้ในมาตรา ๑๗๔ นั้น</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%92%E0%B8%AA%E0%B9%95%E0%B8%AB%E0%B8%A1%E0%B9%92">หมวดที่ ๒<br>ความผิดฐานสมคบกันเปนอั้งยี่<br>แลเปนส้องโจรผู้ร้าย</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๗๗</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดเปนสมาชิกในสมาคมอันใดที่ปกปิดวิธีการของสมาคม แลเปนสมาคมที่ตั้งขึ้นเพื่อการอันมิชอบด้วยกฎหมาย ท่านว่ามันคือพวกอั้งยี่</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>แลถ้าผู้ใดเปนพวกอั้งยี่ ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกไม่เกินกว่าสามปี แลให้ปรับตั้งแต่ห้าสิบบาทขึ้นไปจนถึงพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าผู้ใดเปนหัวหน้าอั้งยี่ก็ดี เปนผู้จัดการของอั้งยี่ก็ดี หรือเปนผู้มีตำแหน่งพนักงานอย่างใดในพวกอั้งยี่ก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกไม่เกินกว่าห้าปี แลให้ปรับตั้งแต่ร้อยบาทขึ้นไปจนถึงห้าพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๗๘</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าบุคคลตั้งแต่ห้าคนขึ้นไปสมคบกันเพื่อจะกระทำความผิดอย่างใดใดที่ว่าไว้ตั้งแต่ส่วนที่ ๒ จนถึงส่วนที่ ๙ ในภาคที่ ๒ แห่งกฎหมายนี้ แลเปนความผิดอันต้องด้วยลักษณโทษจำคุกเกินกว่าปีหนึ่งขึ้นไปด้วยไซ้ ท่านว่ามันสมคบกันเปนส้องโจรผู้ร้าย มีความผิด ต้องรวางโทษจำคุกตั้งแต่หกเดือนขึ้นไปจนถึงห้าปี แลปรับตั้งแต่ห้าสิบบาทขึ้นไปจนถึงห้าร้อยบาทอีกโสดหนึ่งด้วยกันทุกคน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าแลมันผู้สมคบกันเช่นว่านี้ได้ตระเตรียมเพื่อจะทำการปล้นด้วยไซ้ ท่านว่ามันต้องรวางโทษจำคุกตั้งแต่สองปีขึ้นไปจนถึงสิบปี แลปรับตั้งแต่ร้อยบาทขึ้นไปจนถึงพันบาทอีกโสดหนึ่งด้วยกันทุกคน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๗๙</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าผู้ใดไปประชุมกับพวกอั้งยี่ก็ดี หรือไปประชุมกับพวกที่สมคบกันเปนส้องโจรผู้ร้ายก็ดี ท่านให้ถือว่ามันเปนอั้งยี่แลพวกส้องโจรผู้ร้ายด้วย เว้นไว้แต่มันจะสามารถพิสูทธ์ตัวให้เห็นจริงได้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ว่าเมื่อไปนั้นมันมิได้รู้ว่าเปนการประชุมพวกอั้งยี่หรือส้องโจรผู้ร้าย แลมิได้รู้ว่าประชุมในการอั้งยี่หรือการโจรผู้ร้าย พิสูทธ์ได้เช่นนั้น ท่านจึงมิให้เอาโทษแก่มัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๘๐</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดกระทำการอุดหนุนแก่พวกอั้งยี่ก็ดี แก่พวกที่สมคบกันเปนส้องโจรผู้ร้ายก็ดี ด้วยประการหนึ่งประการใดดังกล่าวต่อไปในมาตรานี้ คือว่า</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)ช่วยหาที่สำนักแลที่ประชุมให้ก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)ช่วยชักชวนคนให้เปนสมาชิกหรือเปนพรรคพวกก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๓)ให้เงินหรือช่วยอุปการะด้วยประการอย่างอื่นก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๔)ช่วยจำหน่ายทรัพย์ที่พวกส้องโจรผู้ร้ายได้มาโดยได้กระทำความผิดก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ท่านว่ามันผู้กระทำการดังกล่าวมานี้มีความผิด ต้องรวางโทษฐานเปนอั้งยี่หรือเปนพวกส้องที่สมคบกันเปนโจรผู้ร้ายนั้น</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๘๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าหากว่าอั้งยี่พวกใดแม้แต่คนเดียวไปกระทำความผิดที่เปนความมุ่งหมายของอั้งยี่จำพวกนั้นก็ดี บุคคลที่ได้สมคบเข้าส้องโจรผู้ร้ายแม้แต่คนเดียวไปกระทำความผิดที่เปนความประสงค์ของส้องโจรผู้ร้ายจำพวกนั้นก็ดี ท่านว่ามันผู้พรรคพวกที่ไปด้วยก็ตาม หรือที่ได้ประชุมลงเนื้อเห็นด้วยในการที่จะไปกระทำนั้นก็ตาม ตลอดจนบรรดาหัวหน้า ผู้จัดการ แลผู้มีตำแหน่งในอั้งยี่แลในส้องโจรผู้ร้ายจำพวกนั้น ต้องรวางโทษตามที่บัญญัติไว้สำหรับความผิดอันนั้นด้วยกันทุกคน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๘๒</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดประพฤติปรกติตนเปนคนสำหรับหาที่พัก ที่ซ่อนเร้น หรือที่ประชุมให้บุคคลที่มันรู้อยู่ว่าเปนผู้กระทำความผิดที่บัญญัติไว้ตั้งแต่ส่วนที่ ๑ จนถึงส่วนที่ ๙ ในภาคที่ ๒ แห่งกฎหมายนี้ ท่านว่ามันมีความผิด ต้องรวางโทษฐานผู้สมรู้ในความผิดนั้น ๆ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%92%E0%B8%AA%E0%B9%95%E0%B8%AB%E0%B8%A1%E0%B9%93">หมวดที่ ๓<br>ความผิดฐานก่อการจลาจล</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๘๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าบุคคลมั่วสุมกันณที่ใดใดตั้งแต่สิบคนขึ้นไปใช้กำลังกระทำร้ายหรือขู่เข็ญว่าจะทำร้ายก็ดี หรือมันกระทำการอย่างใดใดขึ้นให้วุ่นวายในบ้านเมืองของท่านก็ดี ท่านว่ามันมีความผิดฐานก่อการจลาจล ต้องรวางโทษจำคุกไม่เกินกว่าหกเดือน แลให้ปรับไม่เกินกว่าร้อยบาทอีกโสดหนึ่งด้วยกัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าในพวกที่ก่อการจลาจลนั้นมีสาตราวุธไปด้วยตั้งแต่คนหนึ่งขึ้นไป ท่านว่าพวกนั้นต้องรวางโทษจำคุกไม่เกินกว่าสองปี แลให้ปรับไม่เกินกว่าสองร้อยบาทอีกโสดหนึ่งด้วยกันทุกคน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๘๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>เมื่อเจ้าพนักงานผู้มีตำแหน่งหน้าที่ได้บังคับคนที่ก่อการจลาจลในที่ใดใดให้เลิกไปเสีย ถ้าแลพวกก่อการจลาจลนั้นคนใดที่มิได้มีสาตราวุธ&nbsp;แลมิได้ใช้กำลังทำร้ายอย่างใดแล้วเลิกไปตามบังคับนั้นโดยดี ท่านว่าอย่าให้เอาโทษแก่มันตามที่บัญญัติไว้ในมาตรา ๑๘๓ นั้นเลย ถ้าผู้ขัดขืนคำสั่งเจ้าพนักงาน ท่านว่ามันต้องรวางโทษจำคุกตั้งแต่เดือนหนึ่งขึ้นไปจนถึงสามปี แลให้ปรับตั้งแต่ห้าสิบบาทขึ้นไปจนถึงห้าร้อยบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%92%E0%B8%AA%E0%B9%95%E0%B8%AB%E0%B8%A1%E0%B9%94">หมวดที่ ๔<br>ความผิดฐานกระทำให้เกิดภยันตรายแก่สาธารณชน<br>ฐานกระทำให้สาธารณชนปราศจากความสดวกในการไปมา<br>แลการส่งข่าวแลของถึงกัน แลฐานกระทำให้สาธารณชน<br>ปราศจากความศุขสบาย</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๘๕</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าผู้ใดวางเพลิงเผาทรัพย์ของผู้อื่น ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่หกเดือนขึ้นไปจนถึงเจ็ดปีด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๘๖</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าผู้ใดวางเพลิงจุดเผาของอย่างใดอย่างหนึ่งเหล่านี้ คือ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)เผาป่าไม้ หรือพืชผล หรือหญ้าฟางที่เขารวมไว้เปนอาหารสัตว์ก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)เผาเคหะสถานบ้านเรือนซึ่งเปนที่สำหรับอาไศรยก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๓)เผาสถานที่แลเรือแพอย่างใดใดอันเปนที่เก็บหรือเปนที่ทำสิ่งของแลสินค้าก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๔)เผาสาธารณสถานหรือสถานอันเปนที่เคารพในทางสาสนาก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่สองปีขึ้นไปจนถึงสิบปี แลให้ปรับตั้งแต่ร้อยบาทขึ้นไปจนถึงห้าพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๘๗</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าผู้ใดเอาเพลิงจุดเผาทรัพย์ของมันเองแลมิได้ระมัดระวังปล่อยให้เกิดเปนภยันตรายแก่ผู้คนหรือทรัพย์สมบัติของผู้อื่นก็ดี หรือจนแทบจะเปนอันตรายแก่ผู้คนหรือทรัพย์สมบัติของผู้อื่นก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษตามที่บัญญัติไว้ในมาตรา ๑๘๕ แลมาตรา ๑๘๖ นั้น</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๘๘</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าผู้ใดทำให้เกิดระเบิดขึ้นจนสามารถอาจจะเปนอันตรายแก่บุคคลก็ดี แก่ทรัพย์ก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษที่บัญญัติไว้ในมาตรา ๑๘๕, ๑๘๖ หรือ ๑๘๗ นั้นตามสมควรแก่เหตุผล</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๘๙</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าแลความผิดอย่างใดใดที่ว่ามาในมาตรา ๑๘๕, ๑๘๖ และ ๑๘๘ นั้นเปนการกระทำแก่ทรัพย์อันมีราคาน้อย แลไม่เปนเหตุใกล้ต่อภยันตรายแก่ผู้หนึ่งผู้ใด แลไฟที่เกิดขึ้นนั้นไม่น่ากลัวจะลุกลามไปถึงทรัพย์แห่งอื่นด้วย ฉนี้ท่านว่าผู้ที่กระทำผิดนั้นโทษเบา ควรลงโทษมันโดยลักษณฐานที่มันทำให้เสียทรัพย์ดังบัญญัติไว้ในมาตรา ๓๒๔, ๓๒๕ แล ๓๒๖ นั้น</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๙๐</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดทำให้ของที่ก่อสร้างไว้ก็ดี เครื่องจักร์ก็ดี ของที่ใช้เปนทางไฟฟ้าก็ดี เครื่องแลของอย่างใดใดที่ทำไว้เพื่อใช้ป้องกันอันตรายแห่งบุคคลแลทรัพย์ก็ดี ชำรุดจนสามารถอาจจะเกิดภยันตรายแก่ผู้หนึ่งผู้ใดขึ้นได้ ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่สามเดือนขึ้นไปจนถึงห้าปี แลให้ปรับตั้งแต่ห้าสิบบาทขึ้นไปจนถึงพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๙๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดทำให้ถนนหลวง, สพาน, คลอง, แลทางอย่างใดใดสำหรับสาธารณชนใช้ในการไปมา แลเขื่อน, ทำนบ, ประตูน้ำ, อู่เรือ, แลทางอย่างอื่น ๆ ที่เกี่ยวในการทางน้ำนั้น เครื่องจักร์, เครื่องยาน, แลของอย่างอื่น ๆ ที่ใช้ในการรถไฟหรือรถรางนั้น ชำรุดจนสามารถอาจจะเกิดอันตรายแก่การไปมาก็ดี หรือสามารถอาจจะเปนอันตรายแก่บุคคลหรือทรัพย์ก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่สามเดือนขึ้นไปจนถึงห้าปี แลให้ปรับตั้งแต่ห้าสิบบาทขึ้นไปจนถึงพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๙๒</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดเอาสิ่งใดใดวางกีดขวางไว้ในทางรถไฟหรือทางรถรางก็ดี หรือทำให้รางรถไฟหรือรางรถรางหลุดลหลวมหรือเคลื่อนจากที่ก็ดี มันทำสิ่งที่ใช้เปนเครื่องบอกสัญญาให้วิปลาศ หรือกระทำอย่างใดใดอันสามารถอาจจะให้เกิดอันตรายในการเดิรรถไฟรถรางขึ้นได้ก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่หกเดือนขึ้นไปจนถึงเจ็ดปี แลให้ปรับตั้งแต่ห้าสิบบาทขึ้นไปจนถึงพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าแลได้มีอันตรายเกิดขึ้นเพราะมันได้กระทำผิดนั้นไซ้ ท่านว่าโทษมันหนัก ต้องรวางโทษจำคุกตั้งแต่สองปีขึ้นไปจนถึงสิบปี แลให้ปรับตั้งแต่ร้อยบาทขึ้นไปจนถึงสองพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๙๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดกระทำแก่เรือที่ใช้เดิรทเลก็ดี แก่ประภาคาร, ทุ่น, แลเครื่องหมายอย่างใดใดซึ่งท่านสฐาปนาไว้ณะที่ต่าง ๆ เพื่อเปนการสดวกแลปราศจากภยันตรายแก่การเดิรเรือก็ดี ให้ของนั้น ๆ ชำรุดเสียไป หรือมันกระทำการอย่างใดใดอันสามารถอาจจะให้เรือเดิรทเลเกยติดตื้นหรือเปนอันตรายล่มจมลงก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่หกเดือนขึ้นไปจนถึงเจ็ดปี แลให้ปรับตั้งแต่ห้าสิบบาทขึ้นไปจนถึงพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าแลได้มีเหตุร้ายเกิดขึ้นจนเรือเดิรทเลลำใดเกยติดตื้นหรือล่มจมลงไปเพราะเหตุที่มันกระทำผิดใช้ ท่านว่ามันต้องรวางโทษจำคุกตั้งแต่สองปีขึ้นไปจนถึงสิบปี แลให้ปรับตั้งแต่ร้อยบาทขึ้นไปจนถึงสองพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๙๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าแลการกระทำผิดอย่างใดใดแก่ทางไปมาแลทางส่งข่าวแลของของสาธารณชนที่ว่ามาในมาตรา ๑๙๓, ๑๙๒, ๑๙๓, นั้นเปนแต่การเล็กน้อยไม่สำคัญแลไม่สามารถอาจจะเปนเหตุอันตรายแก่ผู้ใดด้วยไซ้ ท่านว่ามันผู้กระทำผิดนั้นโทษเบา ควรลงโทษมันตามลักษณฐานที่มันทำให้เสียทรัพย์ดังบัญญัติไว้ในมาตรา ๓๒๔, ๓๒๕, แล ๓๒๖ นั้น</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๙๕</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าผู้ใดเอาเรือที่มันรู้ว่าเปนเรือเพียบเกินขนาดอยู่แล้วก็ดี หรือเปนเรือชำรุดไม่ควรไว้ใจก็ดี มาใช้รับคนโดยสาน ท่านว่ามันมีความผิด ต้องรวางโทษานุโทษเปนสามสฐาน คือสฐานหนึ่งให้จำคุกไม่เกินกว่าปีหนึ่ง สฐานหนึ่งให้ปรับไม่เกินกว่าสองพันบาท สฐานหนึ่งให้ลงโทษทั้งจำทั้งปรับเช่นว่ามาแล้วด้วยกัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๙๖</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าผู้ใดกระทำแก่เครื่องกลก็ดี สายลวดก็ดี เครื่องยานพาหนะหรือสิ่งของอย่างใดใดอันเปนของสำหรับใช้ในการไปรสนีย์โทรเลขโทรศัพท์ของกรมไปรสนีย์โทรเลขแลกรมรถไฟให้ของนั้นชำรุดเสียไป หรือมันกระทำอย่างใดใดให้เปนเหตุขัดข้องขึ้นแก่การส่งการรับข่าวสารแลของโดยทางไปรสนีย์โทรเลขโทรศัพท์นั้นก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่เดือนหนึ่งขึ้นไปจนถึงสามปี แลให้ปรับตั้งแต่ยี่สิบบาทขึ้นไปจนถึงสองร้อยบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๙๗</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าผู้ใดเจตนาจะซ่อนเร้นความเกิดความตาย แลมันลอบเอาศพไปซ่อน ไปฝัง หรือไปทำลายเสีย ท่านว่ามันมีความผิด ต้องรวางโทษานุทาเปนสามสฐาน คือสฐานหนึ่ง ให้จำคุกไม่เกินกว่าปีหนึ่ง สฐานหนึ่งให้ปรับไม่เกินกว่าห้าร้อยบาท สฐานหนึ่งให้ลงโทษทั้งจำทั้งปรับเช่นว่ามาแล้วด้วยกัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๙๘</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดปลอมปนเครื่องอาหารหรือเครื่องโอสถสำหรับบุคคลบริโภคให้สามารถอาจจะเกิดโรคไภยแก่ผู้บริโภคก็ดี หรือมันรู้อยู่แล้วว่าอาหารแลโอสถนั้นเปนของปลอมปน แลมันยังขืนขายหรือทอดตลาดก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกไม่เกินกว่าสองปี แลให้ปรับไม่เกินกว่าห้าพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๑๙๙</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดเอาของที่มีพิศม์เจือลงในน้ำหรือในที่ขังน้ำสำหรับสาธารณชนบริโภค ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่หกเดือนขึ้นไปจนถึงเจ็ดปี แลให้ปรับตั้งแต่ร้อยบาทขึ้นไปจนถึงสองพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๐๐</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดกระทำผิดอย่างใดใดที่ว่าไว้ในหมวดนี้ ถ้าแลการที่กระทำนั้นเปนเหตุให้ผู้หนึ่งผู้ใดมีบาดเจ็บหรือถึงทุพพลภาพอย่างสาหัสก็ดี หรือถึงแก่ความตายก็ดี ท่านว่ามันผู้ที่กระทำผิดนั้นต้องรวางโทษตามสมควรแก่เหตุดังว่าต่อไปนี้ คือ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)ถ้าเปนเหตุเพียงแต่บาดเจ็บหรือถึงทุพพลภาพอย่างสาหัส ให้ลงอาญาจำคุกมันตั้งแต่สองปีขึ้นไปจนถึงสิบปี แลให้ปรับตั้งแต่สองร้อยบาทขึ้นไปจนถึงห้าพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)ถ้าเปนเหตุถึงแก่ความตาย ให้ลงอาญาจำคุกมันตั้งแต่ห้าปีขึ้นไปจนถึงยี่สิบปี แลให้ปรับตั้งแต่สองร้อยบาทขึ้นไปจนถึงห้าพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๐๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดกระทำความผิดอย่างใดใดที่ว่าไว้ในหมวดนี้โดยฐานประมาท ท่านว่ามันต้องรวางโทษตามสมควรแก่เหตุดังว่าต่อไปนี้ คือ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)ถ้าเปนเหตุให้เกิดความเสียหายแก่ทรัพย์ก็ดี หรือเปนเหตุที่ใกล้ต่ออันตรายแก่ชีวิตร์ของผู้หนึ่งผู้ใดก็ดี ท่านให้ลงโทษแก่มันตามโทษานุโทษเปนสามสฐาน คือสฐานหนึ่งให้จำคุกไม่เกินกว่าหกเดือน สฐานหนึ่งให้ปรับไม่เกินกว่าพันบาท สฐานหนึ่งให้ลงโทษทั้งจำทั้งปรับเช่นว่ามาแล้วด้วยกัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)ถ้าเปนเหตุให้ผู้หนึ่งผู้ใดถึงบาดเจ็บหรือถึงทุพพลภาพอย่างสาหัสก็ดี หรือถึงตายก็ดี ท่านให้ลงโทษมันฐานทำให้บุคคลตายแลบาดเจ็บอย่างสาหัสโดยประมาทดังบัญญัติไว้ในมาตรา ๒๕๒ แล ๒๕๙ นั้น</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%92%E0%B8%AA%E0%B9%95%E0%B8%AB%E0%B8%A1%E0%B9%95">หมวดที่ ๕<br>ความผิดฐานปลอมแปลงเงินตรา</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>(แลให้ใช้ได้ตลอดถึงการปลอมธนบัตร์ แลการปลอมใบสำคัญสัญญาในการกู้ยืมเงินตราแลในการให้ดอกเบี้ยด้วย)</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๐๒</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดปลอมเงิตราหรือสิ่งของอย่างใดใดซึ่งใช้อย่างเงินตราซึ่งรัฐบาลของพระเจ้าอยู่หัวหรือรัฐบาลประเทศอื่นทำขึ้นเพื่อให้สาธารณชนใช้นั้น ท่านว่ามันปลอมเงินตรา</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดแปลงแก้ไขเงินตราพระราชอาณาจักร์หรือเงินตราประเทศใดใดให้ผิดไปจากปรกติ โดยความเจตนาจะให้คนทั้งหลายหลงเชื่อว่าเปนเงินตราอันราคาสูงยิ่งกว่าจริงก็ดี หรือมันกระทำอย่างใดใดโดยทุจริตให้น้ำหนักเงินตราอย่างใดใดน้อยลงไปกว่าปรกติก็ดี ผู้กระทำเช่นว่ามานี้ ท่านว่ามันแปลงเงินตรา</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๐๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าผู้ใดกระทำความผิดอย่างหนึ่งอย่างใดดังว่าต่อไปในมาตรานี้ คือ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)ปลอมเงินตราหรือแปลงเงินตราก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)เอาเงินตราซึ่งมันรู้อยู่ว่าเปนของปลอมหรือของแปลงนั้น เข้ามาในพระราชอาณาจักร์ก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๓)จำหน่ายเงินตราซึ่งมันรู้อยู่ว่าเปนของปลอมหรือของแปลง หรือมันมีของเช่นนั้นไว้เพื่อจะจำหน่ายก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ท่านว่ามันต้องรวางโทษจำคุกตั้งแต่สามปีขึ้นไปจนถึงสิบห้าปี แลให้ปรับตั้งแต่ร้อยบาทขึ้นไปจนถึงห้าพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๐๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดได้เงินตราอันเปนของปลอมหรือของแปลงมาไว้ โดยมันมิรู้ว่าเปนของเช่นนั้น ถ้าเมื่อความจริงปรากฎขึ้นแก่มันแล้วว่าเปนของปลอมหรือของแปลง มันยังขืนเอาเงินนั้นออกจำหน่ายไซ้ ท่านว่ามันมีความผิด ต้องรวางโทษานุโทษเปนสามสฐาน คือสฐานหนึ่งให้จำคุกไม่เกินกว่าปีหนึ่ง สฐานหนึ่งให้ปรับไม่เกินกว่าสิบเท่าราคาเงินปลอมหรือเงินแปลงนั้น สฐานหนึ่งให้ลงโทษทั้งจำทั้งปรับเช่นว่ามาแล้วด้วยกัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๐๕</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดทำเครื่องมือหรือวัดถุอย่างใดใดขึ้นไว้ด้วยเจตนาจะปลอมเงินตราหรือแปลงเงินตราก็ดี หรือปรากฎว่ามันมีเครื่องมือหรือวัดถุเช่นนั้นไว้ก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่สองปีขึ้นไปจนถึงสิบปี แลให้ปรับตั้งแต่ร้อยบาทขึ้นไปจนถึงสามพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๐๖</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าได้ความสัจว่าผู้ใดปลอมเงินตราก็ดี หรือแปลงเงินตราก็ดี ถึงความผิดของมันจะต้องโทษในมาตราอื่นที่บัญญัติไว้ในหมวดนี้ด้วยในเรื่องเงินตราที่มันปลอมหรือแปลงนั้นก็ตาม ท่านว่าโทษปลอมเงินตราแลแปลงเงินตราเปนโทษหนักกว่าอย่างอื่น ให้ลงโทษแก่มันฐานปลอมเงินตราหรือแปลงเงินตรานั้นแต่กทงเดียว</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๐๗</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>บรรดาเงินตราอันเปนของปลอมหรือของแปลงนั้นก็ดี เครื่องมือแลวัดถุสำหรับปลอมหรือแปลงเงินตราก็ดี ถ้าปรากฎว่ามีขึ้นเมื่อใด ท่านให้ริบเสียทั้งสิ้น ไม่ว่าเปนของของผู้ใด แลไม่ให้ถือเอาเหตุที่มีคำพิพากษาว่าผู้ใดมีความผิดหรือไม่ผิดเปนประมาณในการที่จะริบของนั้น ๆ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๐๘</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดกระทำความผิดอย่างใดใดที่ว่ามาในหมวดนี้ ถ้าแลเปนความผิดที่เกี่ยวด้วยวัดถุที่ใช้แทนเงินตราอันทำด้วยโลหธาตุที่เลวกว่าเงิน ท่านว่ามันควรรับอาญาที่บัญญัติไว้สำหรับความผิดเช่นนั้นแต่เพียงกึ่งหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๐๙</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>คำว่าเงินตราที่ท่านใช้ในหมวดนี้นั้น ท่านให้หมายความตลอดถึงของเหล่านี้ด้วย คือ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)ธนบัตร์ซึ่งรัฐบาลของพระเจ้าอยู่หัว หรือรัฐบาลต่างประเทศ หรือธนาคารของรัฐบาลพระเจ้าอยู่หัวหรือของรัฐบาลต่างประเทศออกให้ใช้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)ใบสำคัญสัญญาในการกู้เงินแลในการให้ดอกเบี้ยเงินกู้อันเปนเอกสารซึ่งรัฐบาลของพระเจ้าอยู่หัวหรือรัฐบาลต่างประเทศทำให้ไว้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๑๐</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดกระทำบัตรหรือโลหธาตุอย่างใด ๆ ให้เปนรูปแลสีสัณฐานคล้ายคลึงกับธนบัตร์หรือเงินตราก็ดี หรือมันจำหน่ายของเช่นนั้นก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษานุทาเปนสามสฐาน คือสฐานหนึ่งให้จำคุกไม่เกินกว่าหกเดือน สฐานหนึ่งให้ปรับไม่เกินกว่าห้าร้อยบาท สฐานหนึ่งให้ลงโทษทั้งจำทั้งปรับเช่นว่ามาแล้วด้วยกัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%92%E0%B8%AA%E0%B9%95%E0%B8%AB%E0%B8%A1%E0%B9%96">หมวดที่ ๖<br>ความผิดฐานปลอมดวงตรา<br>ปลอมบัตรตรา แลปลอมตั๋ว</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๑๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดปลอมดวงตราหรือตราซึ่งประทับไว้ที่สิ่งใด ๆ อันเปนตราแผ่นดินก็ดี หรือเปนตราเจ้าพนักงานใด ๆ ก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษตามสมควรแก่เหตุดังจะว่าต่อไปนี้ คือ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)ถ้าปลอมพระราชลัญจกร ท่านว่ามันต้องรวางโทษจำคุกตั้งแต่ห้าปีขึ้นไปจนถึงยี่สิบปี แลให้ปรับตั้งแต่ร้อยบาทขึ้นไปจนถึงห้าพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)ถ้าปลอมดวงตราของกระทรวงแลกรมในราชการก็ดี ปลอมดวงตราของสาธารณสถานก็ดี หรือปลอมดวงตราเจ้าพนักงานใด ๆ ก็ดี ท่านว่ามันต้องรวางโทษจำคุกตั้งแต่ปีหนึ่งขึ้นไปจนถึงเจ็ดปี แลให้ปรับตั้งแต่ร้อยบาทขึ้นไปจนถึงสองพันบาทด้วยอิกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๑๒</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดได้ดวงตราที่แท้จริงอย่างใด ๆ ที่ว่ามาในมาตรา ๒๑๑ นั้นไว้ในมือ ถ้าแลมันใช้ดวงตรานั้นผิดด้วยกฎหมาย โดยลักษณอันสามารถอาจจะเกิดความเสียหายขึ้นแก่สาธารณชนก็ดี หรือแก่บุคคลผู้หนึ่งผู้ใดก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษฐานปลอมดวงตรานั้น แบ่งเปนสามส่วน ให้ลงอาญาแก่มันแต่สองส่วน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๑๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดเจตนาจะหลอกลวงผู้อื่น แลมันใช้ตราปลอมอย่างใดใดดังว่ามาในมาตรา ๒๑๑ นั้นก็ดี หรือมันลอบเอาดวงตราที่แท้จริงอย่างใดใดดังว่ามาในมาตรา ๒๑๒ นั้นไปใช้ก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษฐานปลอมดวงตราแลใช้ดวงตราโดยผิดด้วยกฎหมายโดยลำดับกัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๑๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดปลอมบัตร์ตราอย่างใดใดซึ่งรัฐบาลให้ทำไว้ใช้ในการไปรสนีย์ การฤชากร แลการสรรพากรก็ดี หรือมันแปลงบัตร์ตราเช่นว่านั้นอย่างใดโดยเจตนาจะให้ใช้เปนบัตร์ตราที่ราคาสูงกว่าที่แท้ก็ดี ท่านว่า มันมีความผิด ต้องรวางโทษจำคุกตั้งแต่ปีหนึ่งขึ้นไปจนถึงเจ็ดปี แลให้ปรับตั้งแต่ร้อยบาทขึ้นไปจนถึงสองพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๑๕</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>บัตร์ตราซึ่งใช้ในการไปรสนีย์ การฤชากร การสรรพากรอย่างใดใด อันมีเครื่องหมายทำให้บุบฉลายไว้เปนสำคัญว่าเปนบัตร์ตราที่ใช้ไม่ได้แล้วนั้น ถ้าแลผู้ใดบังอาจลบถอนเครื่องหมายนั้นเสีย โดยเจตนาจะให้บัตร์ตรานั้นเปนของใช้ได้อีกไซ้ ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่สามเดือนขึ้นไปจนถึงสามปี แลให้ปรับตั้งแต่ห้าสิบบาทขึ้นไปจนถึงห้าร้อยบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๑๖</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดบังอาจใช้บัตร์ตราอย่างใดใดที่ว่ามาในมาตรา ๒๑๔ มาตรา ๒๑๕ ที่มันรู้อยู่แล้วว่าเปนบัตร์ตราปลอมแปลงนั้นก็ดี หรือปรากฎว่ามันมีบัตร์ตราที่มันรู้อยู่ว่าเปนของปลอมแปลงไว้โดยเจตนาจะใช้ก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่สามเดือนขึ้นไปจนถึงสามปี แลให้ปรับตั้งแต่ห้าสิบบาทขึ้นไปจนถึงห้าร้อยบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๑๗</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดปลอมตั๋วรถไฟ ตั๋วรถราง หรือตั๋วซึ่งใช้สำหรับสาธารณชนโดยสานพาหนะอย่างใดใดก็ดี หรือมันแปลงตั๋วอย่างหนึ่งอย่างใดที่ว่ามานั้น โดยเจตนาจะให้ใช้เปนตั๋วราคาสูงกว่าที่แท้ก็ดี หรือมันลบถอนเครื่องหมายที่ทำให้ตั๋วเช่นว่านั้นบุบฉลายไว้เปนสำคัญว่าเปนของใช้ไม่ได้แล้ว โดยมันเจตนาจะให้ตั๋วนั้นใช้ได้อีกก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่สามเดือนขึ้นไปจนถึงสามปี แลให้ปรับตั้งแต่ห้าสิบบาทขึ้นไปจนถึงห้าร้อยบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๑๘</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดบังอาจใช้ตั๋วอย่างใดใดเช่นว่าในมาตรา ๒๑๗ ที่มันรู้อยู่ว่าเปนตั๋วปลอมแปลงก็ดี หรือปรากฎว่ามันมีตั๋วปลอมแปลงเช่นนั้นไว้โดยเจตนาที่จะใช้ก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่สามเดือนขึ้นไปจนถึงสามปี แลให้ปรับตั้งแต่ห้าสิบบาทขึ้นไปจนถึงห้าร้อยบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๑๙</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดทำเครื่องมือหรือวัดถุอย่างใดใดเพื่อปลอมแปลงดวงตรา บัตร์ตรา แลตั๋วอย่างใดใดก็ดี หรือปรากฎว่ามันมีเครื่องมือหรือวัดถุเพื่อกระทำการปลอมแปลงเช่นว่านั้นก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษฐานปลอมแปลงดวงตรา บัตร์ตรา แลตั๋วตรานั้น แบ่งเปนสามส่วน ให้ลงอาญาแก่มันแต่สองส่วน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๒๐</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าผู้ปลอมแปลงดวงตรา บัตร์ตรา หรือตั๋วอย่างใดใดนั้นมีข้อผิดอย่างอื่นอย่างหนึ่งอย่างใดที่บัญญัติไว้ในหมวดนี้ อันเปนความผิดที่เกี่ยวแก่ดวงตรา บัตร์ตรา หรือตั๋วที่มันปลอมหรือแปลงนั้นด้วยไซ้ ท่านว่าควรลงโทษมันแต่ฐานปลอมหรือแปลงดวงตรา บัตร์ตรา หรือปลอมแปลงตั๋วนั้นกทงเดียว เพราะเหตุที่เปนโทษหนักกว่ากทงอื่นอยู่แล้ว</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๒๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ดวงตรา บัตร์ตรา หรือตั๋วอย่างใดใดอันเปนของปลอมแปลงนั้นก็ดี เครื่องมือแลวัดถุสำหรับปลอมแปลงดวงตรา บัตร์ตรา หรือตั๋วนั้นก็ดี ถ้าปรากฎขึ้นเมื่อใด ท่านให้ริบเสียจงสิ้น ไม่ว่าเปนของของผู้หนึ่งผู้ใด แลไม่ให้ถือเอาเหตุที่มีคำพิพากษาว่าผู้ใดมีความผิดหรือไม่ผิดเปนประมาณในการที่จะริบของนั้น ๆ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%92%E0%B8%AA%E0%B9%95%E0%B8%AB%E0%B8%A1%E0%B9%97">หมวดที่ ๗<br>ความผิดฐานปลอมหนังสือ</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๒๒</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดกระทำการอย่างหนึ่งอย่างใดดังจะว่าต่อไปนี้ โดยลักษณที่สามารถอาจจะเกิดความเสียหายขึ้นแก่สาธารณชนหรือแก่บุคคลผู้หนึ่งผู้ใด คือว่า</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)มันทำหนังสือปลอมขึ้นทั้งฉบับหรือแต่ส่วนใดส่วนหนึ่งก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)มันเติมข้อความ, ตัดทอนข้อความ, หรือแก้ไขด้วยประการอย่างอื่นในหนังสือที่แท้จริงก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๓)มันประทับตราปลอมหรือลงลายมือปลอมในหนังสือก็ดี ท่านว่ามันปลอมหนังสือ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๒๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดปลอมหนังสือ แม้ไม่ตั้งใจถึงจะให้เปนหนังสือสำคัญหรือถึงเปนหนังสือราชการก็ดี ถ้าแลหนังสือนั้นได้ปลอมใช้เปนหนังสือที่แท้จริง ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่สามเดือนขึ้นไปจนถึงสามปี แลให้ปรับตั้งแต่ห้าสิบบาทขึ้นไปจนถึงพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๒๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดปลอมหนังสือโดยตั้งใจจะให้เปนหนังสือสำคัญก็ดี หรือเปนหนังสือราชการก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่หกเดือนขึ้นไปจนถึงห้าปี แลให้ปรับตั้งแต่ร้อยบาทขึ้นไปจนถึงสองพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๒๕</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดปลอมหนังสือสำคัญโดยมันตั้งใจจะให้เปนหนังสือชนิดเหล่านี้อย่างใดอย่างหนึ่ง คือ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)เปนหนังสือสำคัญในราชการก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)เปนหนังสือพินัยกรรม์ก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๓)เปนใบสำคัญสัญญาอย่างใดใดอันบริษัทออกให้ไว้เปนคู่มือแห่งการที่มีหุ้นส่วน หรือเปนเจ้าหนี้ หรือมีกรรมสิทธิ์ที่จะได้ดอกเบี้ยหรือได้ส่วนแบ่งในบริษัทนั้นก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๔)เปนธนบัตร์ของธนาคารที่บุคคลตั้ง หรือเปนใบสำคัญในการแลกเงิน ใบสั่งให้จ่ายเงิน ใบผัดส่งเงิน หรือเปนเอกสารอย่างใดใดที่ใช้ต่อกันแลกันต่างเงินตราได้นั้นก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ท่านว่ามันผู้ปลอมหนังสือสำคัญอย่างใดใดเช่นว่ามานี้มีความผิด ต้องรวางโทษจำคุกตั้งแต่สามปีขึ้นไปจนถึงสิบปี แลให้ปรับตั้งแต่ร้อยบาทขึ้นไปจนถึงสองพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๒๖</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดบอกให้เจ้าพนักงานผู้มีตำแหน่งทำการตามหน้าที่จดข้อความซึ่งมันรู้อยู่ว่าเปนเนื้อความเท็จลงในหนังสืออย่างใดใดอันสามารถจะใช้เปนพยานได้ แลถ้าการที่มันกระทำนั้นอาจจะเกิดความเสียหายแก่สาธารณชนหรือแก่ผู้หนึ่งผู้ใดได้ไซ้ ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่สามเดือนขึ้นไปจนถึงสามปี แลให้ปรับตั้งแต่ห้าสิบบาทขึ้นไปจนถึงพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๒๗</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดกระทำการอันอาจจะให้เกิดความเสียหายแก่สาธารณชนหรือแก่บุคคลผู้หนึ่งผู้ใด โดยเหตุที่มันเอาหนังสือซึ่งมันรู้อยู่เองว่าเปนของผู้อื่นเขาปลอมอย่างว่ามาในมาตรา ๒๒๓ มาตรา ๒๒๔ แลมาตรา ๒๒๕ นั้นมาใช้ว่าเปนของแท้ก็ดี หรือมันอ้างถ้อยคำที่มันรู้อยู่ว่าเปนเนื้อความเท็จที่มีผู้บอกให้เจ้าพนักงานจดอย่างว่ามาในมาตรา ๒๒๖ นั้นว่าเปนความจริงก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษฐานปลอมหนังสือหรือเบิกความเท็จฉนั้น</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๒๘</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดซ่อนเร้นหรือทำลายหนังสือพินัยกรรม์ของผู้อื่นก็ดี หนังสือสำคัญของผู้อื่นก็ดี โดยลักษณอันสามารถอาจจะเกิดเสียหายแก่สาธารณชนหรือแก่ผู้หนึ่งผู้ใดได้ไซ้ ท่านว่ามันต้องรวางโทษฐานปลอมหนังสือชนิดนั้น แบ่งโทษเปนสามส่วน ให้ลงอาญาแก่มันแต่สองส่วน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๒๙</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดเปนเจ้าพนักงาน แลมันปลอมหนังสือซึ่งอยู่ในหน้าที่ของมันเปนผู้ทำตามตำแหน่ง ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่ห้าปีขึ้นไปจนถึงสิบปี แลให้ปรับตั้งแต่สองร้อยบาทขึ้นไปจนถึงห้าพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๓๐</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดเปนเจ้าพนักงาน มีตำแหน่งหน้าที่ที่จะทำหนังสือราชการ หรือจดทะเบียนบาญชีแลข้อความที่เปนหลักถานอย่างใดใด แลมันบังอาจเอาเนื้อความซึ่งมันรู้อยู่ว่าเปนความเท็จมาจดลงว่าเปนความจริงก็ดี ถ้าแลการที่มันกระทำนี้สามารถอาจจะเกิดความเสียหายแก่สาธารณชนหรือแก่บุคคลผู้หนึ่งผู้ใดได้ไซ้ ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่ห้าปีขึ้นไปจนถึงสิบปี แลให้ปรับตั้งแต่สองร้อยบาทขึ้นไปจนถึงห้าพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๓๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดเปนแพทย์ แลมันแกล้งจดหมายข้อความเท็จอย่างหนึ่งอย่างใดลงไว้ในหนังสือแสดงความเกิดความตายหรือใบบอกอาการของบุคคลผู้ใด โดยมันรู้อยู่ว่าจะมีคนเอาหนังสือนั้นไปใช้หลอกลวงเจ้าพนักงานในหน้าที่หรือหลอกลวงบริษัทรับประกันให้หลงเชื่อ ท่านว่ามันมีความผิด ต้องรวางโทษานุโทษเปนสามสฐาน คือสฐานหนึ่งให้จำคุกไม่เกินกว่าสองปี สฐานหนึ่งให้ปรับไม่เกินกว่าพันบาท สฐานหนึ่งให้ลงโทษทั้งจำทั้งปรับเช่นว่ามาแล้วด้วยกัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>อนึ่งถ้าผู้ใดเอาหนังสือที่แพทย์ทำให้ด้วยความเท็จเช่นว่ามาในมาตรานี้ไปใช้โดยเจตนาจะหลอกลวงเจ้าพนักงานในหน้าที่หรือบริษัทรับประกันให้หลงเชื่อข้อความในหนังสือนั้น ท่านว่ามันผู้ที่ใช้หนังสือนั้นมีความผิด ต้องรวางโทษดุจกันกับผู้ทำจดหมายเท็จให้ดังว่าไว้ในมาตรานี้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%92%E0%B8%AA%E0%B9%95%E0%B8%AB%E0%B8%A1%E0%B9%98">หมวดที่ ๘<br>ความผิดฐานกระทำทุจริตในทางค้าขาย</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๓๒</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดมีความประสงค์จะกดราคาค่าจ้างก็ตาม หรือจะขึ้นค่าจ้างให้แรงก็ตาม ถ้ามันใช้กำลังกระทำร้าย หรือขู่เข็ญว่าจะกระทำร้ายอย่างหนึ่งอย่างใด เพื่อจะให้ลูกจ้างละทิ้งการงานเสียก็ดี หรือให้ลูกจ้างยอมทำการงานแต่ในเขตรข้อกำหนดอย่างใดอย่างหนึ่งก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกไม่เกินกว่าหกเดือน แลให้ปรับไม่เกินกว่าสองพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๓๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดทำเครื่องวัด, เครื่องชั่ง, เครื่องตวงอย่างใดใดให้ผิดพิกัดอัตรา โดยเจตนาจะฉ้อโกงเขา ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่เดือนหนึ่งขึ้นไปจนถึงสามปี แลให้ปรับตั้งแต่ห้าสิบบาทขึ้นไปจนถึงพันบาทด้วยอิกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๓๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดเจตนาจะฉ้อโกงเขา แลมันใช้เครื่องวัด, เครื่องชั่ง, เครื่องตวง, อย่างใดใดที่เปนของทำสำหรับฉ้อโกงก็ดี หรือมันมีเครื่องวัด, เครื่องชั่ง, เครื่องตวง, เช่นนั้นไว้เพื่อจะขายหรือจะใช้ก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่เดือนหนึ่งขึ้นไปจนถึงสามปี แลให้ปรับตั้งแต่ห้าสิบบาทขึ้นไปจนถึงพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้ามันผู้ใช้ของสำหรับฉ้อโกงเช่นว่ามานี้เปนผู้ที่ได้ทำของนั้นด้วยไซ้ ท่านว่าให้ลงอาญามันแต่ด้วยโทษที่บัญญัติไว้ในมาตรานี้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๓๕</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดเอาชื่อของผู้อื่นหรือชื่อของห้างอื่นบริษัทอื่นซึ่งมันรู้อยู่ว่ามันไม่มีความชอบธรรมที่จะใช้มาใช้ให้ปรากฎที่สิ่งสินค้า หรือที่ห่อสินค้า หรือที่ใบบอกขายใบบอกราคาสินค้าของมัน แลการที่ว่ามานี้มันจะกระทำเองก็ตาม หรือให้ผู้อื่นกระทำก็ตาม ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่เดือนหนึ่งขึ้นไปจนถึงปีหนึ่ง แลให้ปรับตั้งแต่ห้าสิบบาทขึ้นไปจนถึงสองพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๓๖</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดปลอมเครื่องหมายในการค้าขายของบุคคลหรือบริษัทใดก็ดี หรือมันปลอมชื่อที่บุคคลหรือบริษัทใดเขาใช้ในการค้าขายก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่สามเดือนขึ้นไปจนถึงสามปี แลให้ปรับตั้งแต่ร้อยบาทขึ้นไปจนถึงห้าพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๓๗</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดเลียนแบบอย่างเครื่องหมายในการค้าขายของผู้อื่นหรือบริษัทอื่นมาใช้โดยเจตนาจะลวงให้ผู้ซื้อหลงว่าเปนของของบุคคลหรือบริษัทอื่นนั้น ถึงวิธีที่เลียนเครื่องหมายนี้ทำให้ผิดเพี้ยนเสียบ้างเล็กน้อยเพื่อจะมิให้ตรงต่อการปลอมก็ดี ท่านก็ว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่เดือนหนึ่งขึ้นไปจนถึงปีหนึ่ง แลให้ปรับตั้งแต่ห้าสิบบาทขึ้นไปจนถึงสองพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๓๘</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดเอาของที่มันรู้อยู่ว่าเปนของใช้ชื่อหรือเครื่องหมายในทางทุจริตหรือเปนของที่เลียนเครื่องหมายของผู้อื่นหรือบริษัทอื่นในทางทุจริตดังว่ามาในมาตรา ๒๓๕, ๒๓๖, แล ๒๓๗ นั้นเข้ามาในพระราชอาณาจักร์ก็ดี มันขายหรือทอดตลาดสิ่งสินค้าเหล่านั้นก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษตามสมควรแก่เหตุดังที่บัญญัติไว้ในมาตรา ๒๓๕, ๒๓๖, แล ๒๓๗ นั้น</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๓๙</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>เครื่องวัด, เครื่องชั่ง, เครื่องตวง, อันเปนของปลอมดังว่ามาในมาตรา ๒๓๓ แล ๒๓๔ นั้นก็ดี แลสิ่งของที่ใช้ชื่อหรือเครื่องหมายสินค้าในทางทุจริตก็ดี สิ่งของที่ใช้เครื่องหมายเทียมในทางทุจริตก็ดี บรรดาที่ว่ามาในมาตรา ๒๓๕, ๒๓๖, ๒๓๗ นั้น ถ้าปรากฎขึ้นเมื่อใด ท่านให้ริบเสียจงสิ้น ไม่ว่าเปนของของผู้ใด แลไม่ให้ถือเอาคำพิพากษาว่าผู้ใดมีความผิดหรือไม่ผิดเปนประมาณในการที่จะให้ริบของเหล่านั้น</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%92%E0%B8%AA%E0%B9%96">ส่วนที่ ๖<br>ว่าด้วยความผิดที่กระทำอนาจาร</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%92%E0%B8%AA%E0%B9%96%E0%B8%AB%E0%B8%A1%E0%B9%91">หมวดที่ ๑<br>ความผิดฐานกระทำอนาจารอันเกี่ยวแก่สาธารณชน</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๔๐</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดเอารูปภาพ หรือสมุด หรือสิ่งใดใดอันมีลักษณเปนของลามกอนาจารออกขายหรือทอดตลาดก็ดี หรือเอาของลามกอนาจารที่ว่ามานั้นแสดงโดยเปิดเผยแก่สาธารณชนก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษานุโทษเปนสามสฐาน คือสฐานหนึ่งให้จำคุกไม่เกินกว่าหกเดือน สฐานหนึ่งให้ปรับไม่เกินกว่าห้าร้อยบาท สฐานหนึ่งให้ลงโทษทั้งจำทั้งปรับเช่นว่ามาแล้วด้วยกัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๔๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดยุยงเสี้ยมสอนเด็กอายุต่ำกว่าสิบสองขวบให้ทำชำเราก็ดี หรือให้ทำอนาจารด้วยผู้อื่นก็ดี หรือมันเปนธุระหาเด็กอายุต่ำกว่าสิบสองขวบให้ผู้อื่นทำชำเราหรือทำอนาจารก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกไม่เกินกว่าสองปี แลให้ปรับไม่เกินกว่าพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๔๒</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดทำชำเราผิดธรรมดามนุษย์ด้วยชายก็ดี หญิงก็ดี หรือทำชำเราด้วยสัตว์เดียรฉานก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่สามเดือนขึ้นไปจนถึงสามปี แลให้ปรับตั้งแต่ห้าสิบบาทขึ้นไปจนถึงห้าร้อยบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%92%E0%B8%AA%E0%B9%96%E0%B8%AB%E0%B8%A1%E0%B9%92">หมวดที่ ๒<br>ความผิดฐานข่มขืนทำชำเรา</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๔๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดบังอาจใช้อำนาจด้วยกำลังกายหรือด้วยวาจาขู่เข็ญกระทำชำเราขืนใจหญิงซึ่งมิใช่ภรรยาของมันเอง ท่านว่าผู้นั้นข่มขืนทำชำเรา ต้องรวางโทษจำคุกตั้งแต่ปีหนึ่งขึ้นไปจนถึงสิบปี แลให้ปรับตั้งแต่ห้าสิบบาทขึ้นไปจนถึงห้าร้อยบาทด้วยอิกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดใช้อุบายหลอกลวงทำชำเราขืนใจหญิงซึ่งมิใช่ภรรยาของมันเอง ท่านว่ามันข่มขืนทำชำเรา มีความผิด ต้องรวางโทษดุจกันกับที่ว่ามานั้น</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าแลในการกระทำผิดเช่นว่ามาในมาตรานี้ หญิงที่ถูกข่มขืนชำเรานั้นมีบาดเจ็บถึงสาหัส ท่านว่ามันผู้กระทำผิดนั้นต้องรวางโทษจำคุกตั้งแต่สองปีขึ้นไปจนถึงสิบปี แลให้ปรับตั้งแต่ห้าสิบบาทขึ้นไปจนถึงพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าแลหญิงนั้นถึงตาย ท่านว่ามันผู้ข่มขืนนั้นต้องรวางโทษจำคุกตั้งแต่สิบสองปีขึ้นไปจนถึงยี่สิบปี แลให้ปรับตั้งแต่ร้อยบาทขึ้นไปจนถึงสองพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๔๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดกระทำชำเราด้วยเด็กหญิงอายุต่ำกว่าสิบสองกว่า ถึงหญิงนั้นยินยอมก็ตาม หรือมิได้ยินยอมก็ตาม ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่สองปีขึ้นไปจนถึงสิบปี แลให้ปรับตั้งแต่ห้าสิบบาทขึ้นไปจนถึงห้าร้อยบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าแลในการกระทำผิดเช่นว่ามาในมาตรานี้ เด็กหญิงที่ถูกชำเรานั้นมีบาดเจ็บอย่างสาหัส ท่านว่ามันผู้กระทำผิดนั้นต้องรวางโทษจำคุกตั้งแต่สามปีขึ้นไปจนถึงสิบห้าปี แลให้ปรับตั้งแต่ห้าสิบบาทขึ้นไปจนถึงพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าแลเด็กหญิงนั้นถึงตาย ท่านวามันผู้กระทำผิดนั้นต้องรวางโทษจำคุกตั้งแต่สิบห้าปีขึ้นไปจนถึงยี่สิบปี แลให้ปรับตั้งแต่ร้อยบาทขึ้นไปจนถึงสองพันบาทด้วยอิกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๔๕</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดบังอาจกระทำการอนาจารแก่เด็กอายุต่ำกว่าสิบสองขวบ ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่เดือนหนึ่งขึ้นไปจนถึงสามปี แลให้ปรับตั้งแต่ห้าสิบบาทขึ้นไปจนถึงห้าร้อยบาทด้วยอิกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าแลมันใช้อำนาจด้วยกำลังกายหรือด้วยวาจาขู่เข็ญกระทำความผิดเช่นว่ามานี้ ท่านว่ามันผู้กระทำผิดนั้นต้องรวางโทษจำคุกตั้งแต่สามเดือนขึ้นไปจนถึงห้าปี แลให้ปรับตั้งแต่ห้าสิบบาทขึ้นไปจนถึงพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๔๖</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดกระทำอนาจารแก่บุคคลอายุเกินกว่าสิบสองขวบขึ้นไป โดยมันใช้อำนาจด้วยกำลังหรือด้วยวาจาขู่เข็ญ หรือมันใช้อุบายหลอกลวงด้วยประการใดใดก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่เดือนหนึ่งขึ้นไปจนถึงสามปี แลให้ปรับตั้งแต่ห้าสิบบาทขึ้นไปจนห้าร้อยบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๔๗</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ความผิดอย่างใดใดที่ว่ามาในมาตรา ๒๔๓, ๒๔๔, ๒๔๕ แล ๒๔๖ นั้น ถ้าผู้กระทำเปนบิดา มารดา หรือปู่ย่าตายายก็ดี ครูบาอาจารย์ที่รับเลี้ยงผู้ถูกกระทำร้ายไว้ก็ดี เจ้าพนักงานผู้มีตำแหน่งหน้าที่ปกครองรักษาผู้ถูกกระทำร้ายก็ดี ท่านว่ารวางโทษของมันผู้กระทำผิดหนักกว่าที่บัญญัติไว้ใน ๔ มาตราที่ว่ามานั้นหนึ่งในสามส่วน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๔๘</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>การฟ้องเอาโทษแก่ผู้กระทำผิดกฎหมายหมวดนี้นั้น ถ้าคดีเปนข้อหาว่าใช้อำนาจด้วยกำลังหรือขู่เข็ญทำชำเราขืนใจหญิงดังว่าไว้ในตอนต้นแห่งมาตรา ๒๔๓ ก็ดี หรือว่าคดีมีข้อหาว่าใช้อุบายหลอกลวงทำชำเราขืนใจหญิงดังว่าไว้ในตอน ๒ แห่งมาตรา ๒๔๓ นั้นก็ดี หรือว่าคดีเปนข้อหาว่า บังอาจทำอนาจารแก่บุคคลอายุเกินสิบสองขวบขึ้นไปดังว่าไว้ในมาตรา ๒๔๖ นั้นก็ดี ท่านว่าให้พิจารณาดูฐานที่เกิดเหตุก่อน ถ้าเหตุมิได้เกิดต่อหน้าธารคำนัลไซ้ ท่านให้ถือว่าต่อผู้ที่ถูกกระทำร้ายมาร้องทุกข์ จึงให้เจ้าพนักงานเอาคดีนั้นขึ้นว่ากล่าวตามกระบิลเมือง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%92%E0%B8%AA%E0%B9%97">ส่วนที่ ๗<br>ว่าด้วยความผิดที่ประทุษฐร้ายแก่ชีวิตแลร่างกาย</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%92%E0%B8%AA%E0%B9%97%E0%B8%AB%E0%B8%A1%E0%B9%91">หมวดที่ ๑<br>ความผิดฐานประทุษฐร้ายแก่ชีวิตร์</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๔๙</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดกระทำโดยเจตนาให้ผู้หนึ่งผู้ใดถึงแก่ความตาย ท่านว่ามันฆ่าคนโดยเจตนา มีความผิด ให้ลงอาญาแก่มันตามโทษานุโทษเปนสามสฐาน คือสฐานหนึ่งให้ประหารชีวิตร์ให้มันตายตกไปตามกัน สฐานหนึ่งให้จำคุกไว้จนตลอดชีวิตร์ สฐานหนึ่งให้จำคุกตั้งแต่สิบห้าปีขึ้นไปจนถึงยี่สิบปี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๕๐</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดฆ่าคนโดยเจตนาต้องตามลักษณอย่างใดที่ว่าต่อไปในมาตรานี้ คือ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)ฆ่าบิดามารดา หรือฆ่าญาติที่สืบสายโลหิตโดยตรงขึ้นไปก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)ฆ่าเจ้าพนักงานผู้ประจำหน้าที่ หรือฆ่าเพราะเหตุที่กระทำการตามหน้าที่ก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๓)ฆ่าคนโดยพยายามด้วยความพยาบาทมาดหมายก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๔)ฆ่าคนด้วยกระทำทรมานหรือการแสดงความดุร้ายทำแก่ผู้ตายให้ได้ความลำบากอย่างสาหัสก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๕)ฆ่าคนเพื่อประโยชน์ที่จะตระเตรียมการหรือให้เปนความสดวกในการที่มันจะกระทำผิดอย่างอื่นก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๖)ฆ่าคนเพื่อที่จะเอาผลประโยชน์อันเกิดแต่การกระทำผิดอย่างอื่นมาเปนของมัน หรือเพื่อจะปกปิดการกระทำผิดอย่างอื่น หรือเพื่อจะหลีกเลี่ยงให้พ้นอาญาในความผิดอย่างอื่นก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ท่านว่ามันผู้ฆ่าคนตายโดยเจตนาในลักษณอย่างหนึ่งอย่างใดดังว่ามานี้เปนคนทารุณร้ายกาจ ให้ลงอาญาฆ่ามันให้ตายตกไปตามกัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๕๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดมิได้เจตนาจะฆ่าให้ตาย แต่มันกระทำร้ายแก่ร่างกายเขาจนถึงแก่ความตายไซ้ ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่สามปีขึ้นไปจนถึงสิบห้าปี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าแลความผิดเช่นว่านี้มีลักษณฉกรรจ์อย่างหนึ่งอย่างใดดังทำนองที่ว่ามาแล้วในมาตรา ๒๕๐ นั้นด้วยไซ้ ท่านว่ามันผู้กระทำผิดต้องรวางโทษจำคุกตั้งแต่สามปีขึ้นไปจนถึงยี่สิบปี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๕๒</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดทำให้ผู้อื่นถึงแก่ความตายโดยฐานประมาท ท่านว่ามันมีความผิด ต้องรวางโทษานุโทษเปนสามสฐาน คือสฐานหนึ่งให้จำคุกไม่เกินกว่าสามปี สฐานหนึ่งให้ปรับไม่เกินกว่าพันบาท สฐานหนึ่งให้ลงโทษทั้งจำทั้งปรับเช่นว่ามาแล้วด้วยกัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๕๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้ามีผู้ถูกบาดเจ็บถึงแก่ความตายในที่วิวาทต่อสู้กันระหว่างคนตั้งแต่สามคนขึ้นไป ท่านว่านอกจากคนที่ปรากฎว่าได้ต่อสู้เพราะจำเป็นต้องป้องกันภยันตรายแก่ตัวมันเองแล้ว บรรดาคนที่วิวาทกันในที่นั้นมีความผิด ต้องรวางโทษจำคุกไม่เกินกว่าสองปี แลให้ปรับไม่เกินกว่าห้าร้อยบาทอีกโสดหนึ่งด้วยกันทุกคน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>แต่โทษที่ว่าในมาตรานี้ท่านมิให้เอาไปใช้ลบล้างโทษฐานฆ่าคนตายหรือกระทำร้ายแก่ร่างกายในการวิวาทนั้น</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%92%E0%B8%AA%E0%B9%97%E0%B8%AB%E0%B8%A1%E0%B9%92">หมวดที่ ๒<br>ความผิดฐานประทุษฐร้ายแก่ร่างกาย</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๕๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดมิได้มีเจตนาจะฆ่าให้ตาย แต่มันทำแก่เขาถึงบาดเจ็บทุพพลภาพก็ดี หรือทำให้เขาถึงวิกลจริตก็ดี ท่านว่ามันมีความผิดฐานประทุษฐร้ายแก่ร่างกาย ต้องรวางโทษจำคุกไม่เกินสองปี แลให้ปรับไม่เกินกว่าห้าร้อยบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๕๕</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดกระทำความผิดฐานประทุษฐร้ายแก่ร่างกายบุคคลบางจำพวก คือบิดามารดาของมันเองเป็นต้นก็ดี หรือว่าทำด้วยความทารุณร้ายกาจ เช่นใช้การทรมานคนที่มันประทุษฐร้ายเป็นต้นก็ดี ดังได้จำแนกไว้ในมาตรา ๒๕๐ นั้นข้อใดข้อหนึ่งไซ้ ท่านว่ามันต้องรวางโทษจำคุกไม่เกินกว่าสามปี แลให้ปรับไม่เกินกว่าห้าร้อยบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๕๖</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดกระทำประทุษฐร้ายแก่ร่างกายจนมีผลถึงสาหัสแก่ผู้ถูกกระทำร้าย คือว่า</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)ถึงเสียแขนขาใช้ไม่ได้ก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)ถึงตาบอดทั้งสองข้างหรือแต่ข้างเดียวก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๓)ถึงหูหนวกทั้งสองข้างหรือแต่ข้างเดียวก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๔)ถึงลิ้นขาดก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๕)ถึงเสียสิ่งซึ่งสำหรับเกิดพืชพรรณ์ก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๖)ถึงรูปหน้าเสียโฉมติดตัวก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๗)ถึงความทุพพลภาพหรือพยาธิที่ทำให้เป็นคนพิการไปจนตลอดชีวิตร์ หรือแม้อาจจะเห็นได้ว่าจะเป็นคนพิการไปจนตลอดชีวิตร์ก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๘)ถึงความทุพพลภาพหรือพยาธิมีอาการประกอบด้วยทุกขเวทนากล้าเกินกว่ายี่สิบวันก็ดี หรือแม้ถึงไม่สามารถจะประกอบการหาเลี้ยงชีพได้โดยปรกติเพราะความทุพพลภาพหรือพยาธินั้นเกินกว่ายี่สิบวันก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ท่านว่าความผิดของมันเป็นฐานประทุษฐร้ายแก่ร่างกายอย่างสาหัส มันต้องรวางโทษจำคุกตั้งแต่สองปีขึ้นไปจนถึงเจ็ดปี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๕๗</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดประทุษฐร้ายร่างกายอย่างสาหัสแก่บุคคลบางจำพวก คือบิดามารดาของมันเองเป็นต้น หรือกระทำโดยลักษณทารุณร้ายกาจ ดังจำแนกไว้ในมาตรา ๒๕๐ นั้นข้อใดข้อหนึ่งไซ้ ท่านว่ามันต้องรวางโทษจำคุกตั้งแต่สามปีขึ้นไปจนถึงสิบปี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๕๘</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้ามีการประทุษฐร้ายแก่ร่างกายอย่างสาหัสเกิดขึ้นในที่วิวาทต่อสู้กันระหว่างคนตั้งแต่สามคนขึ้นไป ท่านว่าบรรดาคนที่ไม่ปรากฎว่าจำเป็นต้องต่อสู้เพื่อป้องกันภยันตรายแก่ตัวมันเองแล้วมีความผิด ต้องรวางโทษจำคุกไม่เกินกว่าปีหนึ่ง แลปรับไม่เกินกว่าสองร้อยบาทอีกโสดหนึ่งด้วยกันทุกคน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>แต่ความที่ว่าในมาตรานี้ท่านมิให้เอาไปใช้ลบล้างในคดีที่ปรากฎว่าผู้หนึ่งผู้ใดได้กระทำประทุษฐร้ายแก่ร่างกายผู้อื่น</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๕๙</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดกระทำให้เกิดบาดเจ็บสาหัสแก่ร่างกายของบุคคลผู้ใดโดยฐานประมาท ท่านว่ามันมีความผิด ต้องรวางโทษานุโทษเป็นสามสฐาน คือสฐานหนึ่งให้จำคุกไม่เกินกว่าปีหนึ่ง สฐานหนึ่งให้ปรับไม่เกินกว่าพันบาท สฐานหนึ่งให้ลงโทษทั้งจำทั้งปรับเช่นว่ามาแล้วด้วยกัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%92%E0%B8%AA%E0%B9%97%E0%B8%AB%E0%B8%A1%E0%B9%93">หมวดที่ ๓<br>ความผิดฐานรีดลูก</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๖๐</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>หญิงใดรีดลูกให้แท้งก็ดี มันยอมให้คนอื่นรีดลูกให้แท้งก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษานุโทษเป็นสามสฐาน คือสฐานหนึ่งให้จำคุกไม่เกินกว่าสามปี สฐานหนึ่งให้ปรับไม่เกินกว่าร้อยบาท สฐานหนึ่งให้ลงโทษทั้งจำทั้งปรับเช่นว่ามาแล้วด้วยกัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๖๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดรีดลูกเขาให้แท้ง แม้ว่าหญิงยอมให้มันรีดก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่เดือนหนึ่งขึ้นไปจนถึงสามปี แลให้ปรับตั้งแต่ยี่สิบบาทขึ้นไปจนถึงห้าร้อยบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๖๒</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าผู้กระทำผิดเช่นว่ามาในมาตรา ๒๖๑ นั้นเป็นแพทย์หรือเป็นแพทย์ผดุงครรภ์ก็ดี หรือเป็นคนทำโดยเห็นแก่สินจ้างรางวัลก็ดี ท่านให้ลงโทษมันตามที่บัญญัติไว้สำหรับความผิดเช่นนั้นทวีขึ้นอีกหนึ่งในสามส่วน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๖๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดรู้อยู่ว่าหญิงมีครรภ์ แลหญิงมิได้อนุญาตให้มันรีดลูก ถ้าแลมันกระทำร้ายด้วยกำลังกายหรือด้วยประการหนึ่งประการใดให้หญิงนั้นแท้งลูกไซ้ ท่านว่ามันมีความผิด ต้องรวางโทษฐานประทุษฐร้ายแก่ร่างกายถึงสาหัสดังที่บัญญัติไว้ในมาตรา ๒๕๖ แลมาตรา ๒๕๗ นั้น</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๖๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดพยายามจะกระทำความผิดอย่างใดใดที่ท่านบัญญัติไว้ในมาตรา ๒๖๐ แลมาตรา ๒๖๑ นั้น ท่านว่าเปนการไม่สำคัญ อย่าให้เอาโทษแก่มันเลย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%92%E0%B8%AA%E0%B9%97%E0%B8%AB%E0%B8%A1%E0%B9%94">หมวดที่ ๔<br>ความผิดฐานละทิ้งเด็กแลละทิ้งคนเจ็บ<br>คนชรา</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๖๕</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดทอดทิ้งเด็กอายุต่ำกว่าเก้าขวบไว้ณที่ใดใด โดยมันเจตนาจะละทิ้งเด็กนั้นให้พ้นไปเสียจากมันไซ้ ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่สามเดือนขึ้นไปจนถึงสามปี แลให้ปรับตั้งแต่ยี่สิบบาทขึ้นไปจนถึงร้อยบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๖๖</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดมีหน้าที่ตามกฎหมายก็ดี หรือมีข้อสัญญาก็ดี ที่มันจะต้องดูแลพิทักษ์รักษาผู้ซึ่งพึ่งตัวเองมิได้เพราะเหตุว่าเปนเด็กหรือเปนผู้ชราภาพก็ดี หรือเปนคนทุพพลภาพพยาธิพิการก็ดี ถ้าแลมันละทิ้งผู้ที่ต้องพึงมันนั้นเสีย โดยลักษณอันสามารถอาจจะเกิดอันตรายแก่ชีวิตร์ของผู้นั้นได้ไซ้ ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่สามเดือนขึ้นไปจนถึงสามปี แลให้ปรับตั้งแต่ยี่สิบบาทขึ้นไปจนถึงร้อยบาทด้วยอิกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๖๗</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าเด็กก็ดี ผู้ใหญ่ก็ดี ที่ถูกละทิ้งเช่นว่ามานั้น ตายลงหรือมีเหตุบาดเจ็บทุพพลภาพอย่างสาหัสขึ้นแก่ร่างกายเพราะเหตุที่ถูกละทิ้งนั้นไซ้ ท่านว่ามันผู้ละทิ้งนั้นมีความผิด ต้องรวางโทษานุโทษดังที่บัญญัติไว้ในมาตรา ๒๕๑, ๒๕๖, แล ๒๕๗ นั้น</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%92%E0%B8%AA%E0%B9%98">ส่วนที่ ๘<br>ว่าด้วยความผิดที่กระทำให้เสื่อมเสีย<br>อิศรภาพแลชื่อเสียง</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%92%E0%B8%AA%E0%B9%98%E0%B8%AB%E0%B8%A1%E0%B9%91">หมวดที่ ๑<br>ความผิดฐานกระทำให้เสื่อมเสียอิศรภาพ</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๖๘</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดมิได้มีอำนาจที่จะทำได้โดยชอบด้วยกฎหมาย แลมันบังอาจใช้อำนาจกระทำร้ายด้วยกำลังกาย หรือใช้วาจาขู่เข็ญว่าจะกระทำร้าย ข่มขืนใจให้ผู้อื่นกระทำหรือมิให้กระทำการใดใดก็ดี หรือข่มขืนใจให้เขาจำยอมให้กระทำการใดใดก็ดี ท่านว่ามันผู้ข่มขืนใจเขานั้นมีความผิด ต้องรวางโทษจำคุกไม่เกินปีหนึ่ง แลให้ปรับไม่เกินห้าร้อยบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าแลการที่ข่มขืนใจเขา มันใช้อุบาย เช่นใช้หนังสือส่งไปก็ดี มันขู่ว่าจะเปิดความลับส่วนตัวของเขาก็ดี มันขู่ว่าจะกระทำประการใดใดให้เขาเสียชื่อเสียงก็ดี มันขู่ว่าจะกระทำร้ายแก่เขาหรือให้เขาถูกกระทำร้ายอย่างใดใดซึ่งกฎหมายบัญญัติว่ากระทำร้ายอย่างนั้น ๆ มีความผิดต้องรวางโทษถึงประหารชีวิตร์หรือจำคุกแต่ห้าปีขึ้นไปก็ดี ท่านว่ามันผู้ใช้อุบายข่มขืนใจเขาอย่างหนึ่งอย่างใดดังว่ามานั้น ต้องรวางโทษจำคุกไม่เกินกว่าสองปี แลปรับไม่เกินกว่าห้าร้อยบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าหากว่ามันข่มขืนใจเขาด้วยมันมีเครื่องสาตราวุธก็ดี หรือรุมกันข่มขืนใจเขาด้วยกำลังแต่ห้าคนขึ้นไปก็ดี ท่านว่ามันต้องรวางโทษจำคุกแต่เดือนหนึ่งจนสามปี แลปรับแต่ห้าสิบบาทจนห้าร้อยบาทอีกโสดหนึ่งด้วย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าหากว่ามันใช้อุบายข่มขืนใจเขาด้วยเอาอำนาจพวกอั้งยี่มาขู่ก็ดีหรือเอาอำนาจส้องโจรผู้ร้ายมาขู่ก็ดี ท่านว่ามันต้องรวางโทษจำคุกตั้งแต่ปีหนึ่งขึ้นไปจนถึงเจ็ดปี แลปรับแต่ห้าสิบบาทจนพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๖๙</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดจะเอาคนลงเปนทาษ แลมันใช้อุบายอย่างหนึ่งอย่างใด คือว่ามันหาคนเข้ามาในพระราชอาณาจักร์หรือพาเอาไปจากที่แห่งใดใดเพื่อจะให้เปนทาษก็ดี มันซื้อ หรือขาย หรือจำหน่ายคนไปเปนทาษก็ดี มันรับคนไว้หรือหน่วงเหนี่ยวขืนใจเขาไว้เปนทาษก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่ปีหนึ่งขึ้นไปจนถึงเจ็ดปี แลให้ปรับตั้งแต่ร้อยบาทขึ้นไปจนถึงพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>แต่ความที่ว่ามาในมาตรานี้ท่านมิให้ใช้ฟ้องร้องเอาโทษแก่บุคคลที่มีทาษหรือจำหน่ายทาษต้องตามความที่ท่านได้ผ่อนผันไว้ในพระราชบัญญัติทาษ รัตนโกสินทร์ศก ๑๒๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๗๐</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดมิได้มีอำนาจโดยชอบด้วยกฎหมาย แลมันบังอาจหน่วงเหนี่ยวหรือกักขังผู้หนึ่งผู้ใดไว้ก็ดี หรือกระทำด้วยประการใดใดให้บุคคลผู้ใดปราศจากความเปนอิศรแก่ตนก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกไม่เกินกว่าสามปี แลให้ปรับไม่เกินกว่าห้าร้อยบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๗๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าผู้ใดกระทำการโดยฐานประมาทเปนเหตุให้ผู้อื่นถูกหน่วงเหนี่ยวกักขังหรือต้องปราศจากความเปนอิศรแก่ตนโดยมิบังควรไซ้ ท่านว่ามันมีความผิด ต้องรวางโทษานุโทษเปนสามสฐาน คือสฐานหนึ่งให้จำคุกไม่เกินกว่าปีหนึ่ง สฐานหนึ่งให้ปรับไม่เกินกว่าห้าร้อยบาท สฐานหนึ่งให้ลงโทษทั้งจำทั้งปรับเช่นว่ามาแล้วด้วยกัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๗๒</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าแลผู้ใดที่ถูกกระทำให้ปราศจากความเปนอิศรแก่ตนด้วยประการใดใดเช่นว่ามาในมาตรา ๒๗๐ แล ๒๗๑ นั้นถึงแก่ความตายหรือต้องบาดเจ็บแก่ร่างกายถึงสาหัสเพราะเหตุนั้นไซ้ ท่านให้ใช้ข้อความตามที่บัญญัติไว้ในมาตรา ๒๕๑, ๒๕๒, ๒๕๖, ๒๕๗ แล ๒๕๙ นั้นพิพากษาลงโทษมันตามควรแก่ความผิด</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๗๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดบังอาจพาเอาเด็กอายุต่ำกว่าสิบขวบไปเสียจากบิดามารดาหรือจากผู้ที่มีอำนาจโดยชอบด้วยกฎหมายที่จะคุ้มครองเด็กนั้นก็ดี แลผู้ใดที่รู้แล้วว่าเด็กคนใดถูกคนพาไปโดยทุจริตเช่นนั้น มันบังอาจซื้อหรือขายเด็กนั้นหรือรับเอาเด็กนั้นไว้โดยเจตนาทุจริตก็ดี ท่านว่ามันผู้กระทำผิดอย่างใดใดเช่นว่ามาในมาตรานี้ต้องรวางโทษจำคุกตั้งแต่หกเดือนขึ้นไปจนถึงเจ็ดปี แลให้ปรับตั้งแต่ห้าสิบบาทขึ้นไปจนถึงพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๗๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดบังอาจพาเอาเด็กอายุตั้งแต่สิบขวบขึ้นไปจนถึงสิบสี่ขวบไปเสียจากบิดามารดาหรือจากผู้ที่มีอำนาจคุ้มครองเด็กนั้นโดยชอบด้วยกฎหมาย โดยเด็กมิได้เต็มใจไปด้วยมันก็ดี แลผู้ใดรู้แล้วว่าเด็กคนใดมีผู้พาไปโดยทุจริตเช่นนั้น มันบังอาจซื้อหรือขายเด็กนั้นหรือรับเอาเด็กนั้นไว้โดยเจตนาทุจริตก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่เดือนหนึ่งขึ้นไปจนถึงสามปี แลให้ปรับตั้งแต่ห้าสิบบาทขึ้นไปจนถึงห้าร้อยบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าแลความผิดที่ว่ามาในมาตรานี้เปนการที่กระทำเพื่อหากำไรหรือเพื่อการอนาจารอย่างหนึ่งอย่างใด ท่านว่ามันผู้กระทำผิดนั้นต้องรวางโทษจำคุกตั้งแต่หกเดือนขึ้นไปจนถึงเจ็ดปี แลให้ปรับตั้งแต่ร้อยบาทขึ้นไปจนถึงสองพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๗๕</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดเกลี้ยกล่อมพาเด็กอายุตั้งแต่สิบขวบขึ้นไปจนถึงสิบสี่ขวบไปเสียจากบิดามารดาหรือจากผู้ที่มีอำนาจคุ้มครองเด็กนั้นโดยชอบด้วยกฎหมาย โดยมันเจตนาจะหากำไรหรือเพื่อการอนาจารไซ้ ถึงเด็กนั้นจะเต็มใจไปด้วยกับมัน ท่านก็ว่ามันมีความผิด อนึ่งผู้ใดรู้อยู่แล้วว่าเด็กคนใดมีผู้พาไปโดยทุจริตเช่นนั้น มันบังอาจซื้อหรือขายเด็กนั้นหรือรับเอาเด็กนั้นไว้โดยเจตนาทุจริตไซ้ ท่านว่ามันมีความผิดเสมอกับผู้พาเด็กไป แลท่านให้ลงโทษผู้กระทำผิดในมาตรานี้ด้วยรวางโทษจำคุกตั้งแต่เดือนหนึ่งขึ้นไปจนถึงสามปี แลให้ปรับตั้งแต่ห้าสิบบาทขึ้นไปจนถึงห้าร้อยบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๗๖</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดบังอาจพาเอาหญิงคนใดไปเพื่อการอนาจาร โดยมันฉุดคร่าพาไปด้วยกำลังก็ดี หรือมันขู่เข็ญให้ไปด้วยความกลัวก็ดี หรือพาไปด้วยใช้อุบายทุจริตล่อลวงประการใดใดก็ดี แลผู้ใดที่รู้แล้วว่าหญิงคนใดมีผู้พาไปโดยทุจริตเช่นนั้น มันบังอาจซ่อนเร้นหญิงนั้นไว้ก็ดี ท่านว่ามันผู้กระทำการอย่างใดใดเช่นว่ามาในมาตรานี้มีความผิด ต้องรวางโทษจำคุกตั้งแต่หกเดือนขึ้นไปจนถึงเจ็ดปี แลให้ปรับตั้งแต่ร้อยบาทขึ้นไปจนถึงพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๗๗</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดใช้อำนาจด้วยกำลังก็ดี ด้วยวาจาขู่เข็ญก็ดี หรือใช้กลอุบายล่อลวงด้วยประการใดใดก็ดี พาคนออกไปพ้นพระราชอาณาจักร์ เพื่อจะให้คนนั้นตกไปอยู่ในอำนาจของผู้อื่นโดยทางทุจริตก็ดี หรือมันพาคนนั้นไปละทิ้งให้เปนคนอนาถาหาที่พึ่งมิได้ก็ดี ท่านว่ามันผู้กระทำอย่างใดใดเช่นว่ามานี้มีความผิด ต้องรวางโทษจำคุกตั้งแต่หกเดือนขึ้นไปจนถึงเจ็ดปี แลให้ปรับตั้งแต่ร้อยบาทขึ้นไปจนถึงสองพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๗๘</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>การฟ้องเอาโทษแก่ผู้กระทำผิดกฎหมายที่บัญญัติไว้ในตอนต้นแลตอนที่ ๒ แห่งมาตรา ๒๖๘ ก็ดี ในมาตรา ๒๗๑ นั้นก็ดี ท่านให้ถือว่าต่อผู้ที่ถูกความเสียหายมาร้องทุกข์ จึงให้เจ้าพนักงานเอาคดีนั้นขึ้นว่ากล่าวตามกระบิลเมือง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%92%E0%B8%AA%E0%B9%98%E0%B8%AB%E0%B8%A1%E0%B9%92">หมวดที่ ๒<br>ความผิดฐานเปิดเผยความลับสำหรับตัวของผู้อื่น</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๗๙</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดมิได้มีอำนาจจะทำได้โดยชอบด้วยกฎหมาย แลมันบังอาจเปิดผนึกหรือเอาหนังสือหรือโทรเลขของผู้อื่นไปโดยเจตนาเพื่อจะล่วงรู้เนื้อความก็ดี หรือจะเอาเนื้อความในหนังสือหรือโทรเลขนั้น ๆ ออกเปิดเผยก็ดี ถ้าแลการที่มันกระทำนั้นสามารถอาจจะให้เกิดความเสียหายขึ้นแก่ผู้หนึ่งผู้ใดได้ไซ้ ท่านว่ามันมีความผิด ต้องรวางโทษานุโทษเปนสามสฐาน คือสฐานหนึ่งให้จำคุกไม่เกินกว่าสามเดือน สฐานหนึ่งให้ปรับไม่เกินกว่าห้าร้อยบาท สฐานหนึ่งให้ลงโทษทั้งจำทั้งปรับเช่นว่ามาแล้วด้วยกัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๘๐</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดได้ล่วงรู้ความลับสำหรับตัวของผู้อื่น เพราะมันเปนเจ้าพนักงาน จึงรู้ได้โดยตำแหน่งหน้าที่ของมันก็ดี หรือเพราะมันเปนผู้ประกอบการให้แก่เขาโดยทางศิลปสาสตร์ จึงรู้ความลับนั้นได้ก็ดี ถ้าแลมันมิได้มีอำนาจจะทำได้โดยชอบด้วยกฎหมาย แลมันบังอาจเอาความลับสำหรับตัวของเขาไปเปิดเผยโดยลักษณอันสามารถอาจจะให้เกิดความเสียหายแก่ผู้หนึ่งผู้ใดไซ้ ท่านว่ามันมีความผิด ต้องรวางโทษานุโทษเปนสามสฐาน คือสฐานหนึ่งให้จำคุกไม่เกินกว่า ๖ เดือน สฐานหนึ่งให้ปรับไม่เกินกว่าพันบาท สฐานหนึ่งให้ลงโทษทั้งจำทั้งปรับเช่นว่ามาแล้วด้วยกัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๘๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>การฟ้องเอาโทษแก่ผู้กระทำผิดกฎหมายหมวดนี้นั้น ท่านให้ถือว่าต่อผู้ที่ได้รับความเสียหายมาร้องทุกข์ จึงให้เจ้าพนักงานเอาคดีนั้นขึ้นว่ากล่าว</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%92%E0%B8%AA%E0%B9%98%E0%B8%AB%E0%B8%A1%E0%B9%93">หมวดที่ ๓<br>ความผิดฐานหมิ่นประมาท</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๘๒</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดใส่ความเอาผู้อื่นซึ่งอาจจะให้เขาเสียชื่อเสียงหรืออาจจะให้คนทั้งหลายดูหมิ่นหรือเกลียดชังเขานั้น ถ้ามันกล่าวต่อหน้าคนแต่สองคนขึ้นไปก็ดี หรือกล่าวแก่บุคคลนับแต่สองขึ้นไปก็ดี ท่านว่ามันมีความผิดฐานหมิ่นประมาทเขา มันต้องรวางโทษานุโทษเปนสามสฐาน คือสฐานหนึ่งให้จำคุกไม่เกินหกเดือน หรือสฐานหนึ่งให้ปรับไม่เกินพันบาท หรือสฐานหนึ่งทั้งปรับทั้งจำด้วยโดยกำหนดที่ว่ามาแล้ว</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าแลมันใส่ความเขาด้วยมันโฆษนาในสมุด หรือในหนังสือที่มีกำหนดคราวโฆษนา หรือในหนังสือพิมพ์บอกข่าว หรือโฆษนาในแบบอย่างแลในจดหมายอย่างใด ๆ โทษของมันผู้กระทำผิดหนักขึ้นทั้งสามสฐาน คือสฐานหนึ่งให้จำคุกไม่เกินปีหนึ่ง หรือสฐานหนึ่งให้ปรับไม่เกินสองพันบาท หรือสฐานหนึ่งทั้งจำคุกแลปรับด้วยโดยกำหนดที่ว่ามานี้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๘๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดแสดงความคิดเห็นของตนซึ่งคิดเห็นโดยสุจริตในลักษณการที่กล่าวต่อไปในมาตรานี้ คือว่า</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)ในการที่จะแสดงความชอบธรรมของตน หรือในการที่จะต้องต่อสู้ป้องกันตน หรือในการป้องกันประโยชน์อันชอบด้วยกฎหมายก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)เจ้าพนักงานกล่าวความในรายงานตามตำแหน่งหน้าที่ของตนก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๓)การที่กล่าวสรรเสริญแลติเตียนบุคคลหรือสิ่งใดใดโดยสุภาพอันเปนวิไสยธรรมดาสาธารณชนย่อมกล่าวกันก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๔)การที่โฆษนาหรือกล่าวถึงการที่ดำเนิรอยู่ในโรงศาลใดใดหรือในที่ประชุมชนใดใดแลกล่าวแต่โดยสุภาพก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ลักษณที่แสดงความคิดความเห็นใน ๔ ประการนี้ ท่านว่าไม่มีโทษฐานหมิ่นประมาท</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๘๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ท่านห้ามมิให้ศาลยอมให้ผู้ต้องหาว่าหมิ่นประมาทสืบพยานในข้อว่าความจริงดังมันกล่าวหรือไม่ เว้นไว้แต่ในคดีมีรูปความดังว่าต่อไปนี้ คือ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)เมื่อศาลพิจารณาเห็นว่าที่มันกล่าวนั้นมันมีเจตนาจะให้เปนสาธารณประโยชน์ ประการหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)ข้อความที่มันกล่าวนั้นมันกล่าวโทษเจ้าพนักงานว่ากระทำความผิดในตำแหน่งหน้าที่ราชการ ประการหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๓)เมื่อโจทย์ร้องขอให้ศาลพิจารณาข้อที่ใส่ความ แลขอให้ศาลพิพากษาว่าความที่ใส่นั้นเปนความจริงหรือไม่ ประการหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าศาลบังคับผู้ต้องหาในคดีหมิ่นประมาทให้พิสูทธ์ให้เห็นความจริงดังมันกล่าว แลมันพิสูทธ์ให้เห็นจริงมิได้ไซ้ ท่านว่ามันต้องรวางโทษจำคุกไม่เกินกว่าสองปี แลปรับไม่เกินกว่าห้าพันบาทด้วยอีกโสดหนึ่ง หรือทั้งจำคุกทั้งปรับเช่นว่าแล้วด้วยกัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๘๕</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>คำให้การแลคำชี้แจงซึ่งคู่ความหรือทนายความของคู่ความกล่าวด้วยวาจาก็ดี ด้วยจดหมายก็ดี ในเวลาพิจารณาคดีในโรงศาลนั้น ท่านว่าไม่มีโทษฐานหมิ่นประมาท แต่ศาลมีอำนาจที่จะไม่รับข้อความเช่นนั้นไว้ในสำนวน หรือจะบังคับให้ถอนหรือให้แก้ไขข้อความเปนประการหนึ่งประการใดได้ตามที่ศาลจะพิเคราะห์เห็นเปนการสมควร</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๘๖</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ในคดีฐานหมิ่นประมาทนั้น ถ้าโจทย์ร้องต่อศาลขอให้สั่งริบหรือทำลายบรรดาหนังสือซึ่งมีข้อความเปนฐานหมิ่นประมาทในคดีนั้นเสียก็ดี หรือจะขอให้ศาลประกาศคำพิพากษาในคดีนั้น ตลอดคำพิพากษาหรือแต่ส่วนใดส่วนหนึ่ง ในหนังสือพิมพ์จดหมายเหตุต่าง ๆ แลคิดเอาค่าประกาศแก่จำเลยผู้ต้องโทษก็ดี เปนโสดหนึ่งต่างหากจากโทษที่ลงแก่จำเลยตามที่บัญญัติไว้ในกฎหมายหมวดนี้ ท่านว่าให้ศาลพิเคราะห์ดู ถ้าเห็นสมควร ก็ให้สั่งให้ทำดุจโจทย์ร้องขอนั้นได้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๘๗</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>การฟ้องเอาโทษแก่ผู้กระทำผิดกฎหมายหมวดนี้นั้น ท่านให้ถือว่าต่อผู้ที่ได้รับความเสียหายมาร้องทุกข์ จึงให้เจ้าพนักงานเอาคดีนั้นขึ้นว่ากล่าว</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>อนึ่งถ้าผู้ที่ได้รับความเสียหายนั้นตายเสียก่อนได้ร้องทุกข์ก็ดี หรือว่าเปนคดีหมิ่นประมาทต่อชื่อเสียงของผู้ที่ตายไปแล้วก็ดี ท่านว่าผู้ที่จะมาร้องทุกข์ต่อเจ้าพนักงานให้เอาคดีขึ้นว่ากล่าวนั้น ถ้าเปนสามีหรือภรรยา หรือเปนญาติที่สืบสายโลหิตเพียงสองชั้น คือพ่อ, แม่, ปู่, ย่า, ตา, ยาย, พี่, น้อง หรือลูกหลานของผู้ตายนั้น ก็ร้องได้โดยชอบด้วยกฎหมาย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%92%E0%B8%AA%E0%B9%99">ส่วนที่ ๙<br>ว่าด้วยความผิดที่ประทุษฐร้ายแก่ทรัพย์</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%92%E0%B8%AA%E0%B9%99%E0%B8%AB%E0%B8%A1%E0%B9%91">หมวดที่ ๑<br>ความผิดฐานลักทรัพย์</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๘๘</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดบังอาจเอาทรัพย์ของผู้อื่นไปโดยการทุจริต ทรัพย์นั้นจะเปนของ ๆ ผู้หนึ่งผู้ใดทั้งนั้นก็ตาม หรือผู้หนึ่งผู้ใดเปนเจ้าของทรัพย์นั้นแต่ส่วนหนึ่งก็ตาม ถ้าแลมันบังอาจเอาไปโดยเจ้าของเขามิได้อนุญาตไซ้ ท่านว่ามันคือโจรลักทรัพย์ มีความผิด ต้องรวางโทษจำคุกไม่เกินกว่าสามปี แลให้ปรับไม่เกินกว่าห้าร้อยบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๘๙</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ลักษณโทษฐานลักทรัพย์ที่ว่ามาในมาตรา ๒๘๘ นั้น ท่านให้ใช้ได้ตลอดถึงเหตุเหล่านี้ คือ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)ผู้ที่มีหุ้นส่วนด้วยกันบังอาจเอาทรัพย์อย่างใดใดอันเปนสมบัติของการเข้าหุ้นส่วนนั้นไปเสียจากผู้ที่มีหุ้นส่วนด้วยกัน หรือไปจากผู้อื่น โดยมันเจตนาทุจริต ประการหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)ผู้ที่เปนเจ้าของทรัพย์อย่างใดใดด้วยกันกับคนอื่นบังอาจเอาทรัพย์นั้นไปเสียจากผู้ที่เปนเจ้าของทรัพย์ร่วมกับมัน หรือเอาไปเสียจากผู้อื่นที่รักษาทรัพย์นั้น โดยมันเจตนาทุจริต ประการหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๙๐</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ทรัพย์อย่างใดใดอันต้องยึดหรือต้องอายัดไว้ตามกฎหมาย ถ้าแลผู้ใดจะเปนเจ้าของทรัพย์นั้นก็ตาม หรือมิใช่เจ้าของก็ตาม บังอาจเอาทรัพย์นั้นไปเสียโดยเจตนาทุจริตไซ้ ท่านว่ามันมีความผิดฐานลักทรัพย์</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๙๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ทรัพย์อย่างใดใดที่มอบไว้เปนจำนำอยู่ในมือผู้อื่น แลผู้รับจำนำมิได้อนุญาตให้เอาไป ถ้าแลผู้ใดจะเปนเจ้าของทรัพย์นั้นก็ตาม หรือมิใช่เจ้าของก็ตาม บังอาจเอาทรัพย์นั้นไปเสียโดยเจตนาทุจริตไซ้ ท่านว่ามันมีความผิดฐานลักทรัพย์</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๙๒</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดบังอาจลักเก็บผลไม้หรือพรรณไม้ที่มีประโยชน์อย่างใดใดที่เขาปลูกไว้ในเรือกสวนไร่นา ท่านว่ามันมีความผิด ต้องรวางโทษานุโทษเปนสามสฐาน คือสฐานหนึ่งให้จำคุกไม่เกินกว่าสามเดือน สฐานหนึ่งให้ปรับไม่เกินกว่าสองร้อยบาท สฐานหนึ่งให้ลงโทษทั้งจำทั้งปรับเช่นว่ามาแล้วด้วยกัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๙๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าหากว่าการลักทรัพย์ได้กระทำประกอบด้วยเหตุอย่างใดอย่างหนึ่งดังว่าต่อไปในมาตรานี้ คือ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)ลักทรัพย์เขาในเวลาค่ำคืนก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)ลักทรัพย์เขาโดยปีนป่ายหรือตัดช่องเข้าไปลักภายในบริเวณที่เขาทำไว้สำหรับป้องกันภยันตรายแก่คนหรือแก่ทรัพย์ก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๓)ลักทรัพย์เขาโดยมันย่องเบาเข้าทางทางช่องทางอันมิใช่สำหรับให้คนไปมา หรือใช้ช่องทางที่พรรคพวกหรือผู้สมรู้เปนใจด้วยมันผู้ร้ายลอบเปิดไว้ให้ก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๔)ลักทรัพย์เขาโดยลอบไขกุญแจด้วยลูกกุญแจที่มันมีอยู่โดยผิดกฎหมาย หรือไขด้วยเครื่องมืออย่างอื่นก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๕)ลักทรัพย์เขาโดยมันงัด ผ่า หรือพาเอาสิ่งที่เขาใช้บรรจุทรัพย์ไปก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๖)ลักทรัพย์เขาโดยอาไศรยโอกาศที่เกิดเหตุภยันตราย เช่นว่าในเวลาเกิดเพลิงไหม้ ดินระเบิด รถไฟชำรุด เรือเสีย หรือเวลามหาชนตื่นเหตุกลัวอันตราย เปนต้นก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๗)ลักทรัพย์เขาโดยมันมีสาตราวุธติดตัวไปด้วยก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๘)ลักทรัพย์เขาโดยมันแปลงตัวหรือมอมหน้าเข้าไปลักทรัพย์ก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๙)ลักทรัพย์เขาโดยปลอมตัวเปนผู้อื่นก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑๐)ลักทรัพย์เขาโดยมันปลอมว่ามันทำการตามอำนาจอันชอบด้วยกฎหมายก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑๑)ลักทรัพย์เขาโดยมีพรรคพวกนับทั้งตัวมันตั้งแต่สองคนขึ้นไปก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าผู้ใดลักทรัพย์ประกอบด้วยเหตุดังว่ามาในมาตรานี้ไซ้ ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่หกเดือนขึ้นไปจนถึงห้าปี แลให้ปรับตั้งแต่ห้าสิบบาทขึ้นไปจนถึงพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๙๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าหากว่าการลักทรัพย์ได้กระทำประกอบด้วยเหตุอย่างหนึ่งอย่างใดดังว่าต่อไปในมาตรานี้ คือ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)เข้าไปลักทรัพย์ถึงในเคหะสถานที่เจ้าทรัพย์มิได้อนุญาตให้มันเข้าไปก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)ลักทรัพย์ในสถานที่บูชาในทางสาสนาก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๓)ลักทรัพย์ในที่จอดรถไฟ ที่ท่าเรือ แลที่รับส่งสินค้าก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๔)ลักทรัพย์ที่จะใช้สำหรับราชการหรือที่จะใช้เพื่อสาธารณประโยชน์ก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๕)ลักทรัพย์ของนายหรือของผู้ที่เขาจ้างมันก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๖)ลักปสุสัตว์หรือสัตว์พาหนะก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าผู้ใดลักทรัพย์กระทำประกอบด้วยเหตุอย่างหนึ่งอย่างใดดังว่ามาในมาตรานี้ ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่หกเดือนขึ้นไปจนถึงห้าปี แลให้ปรับตั้งแต่ร้อยบาทขึ้นไปจนถึงพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าแลมันผู้กระทำผิดนั้นได้กระทำโดยอาการหรือโดยอุบายอย่างหนึ่งอย่างใดเช่นว่ามาในมาตรา ๒๙๓ นั้นด้วยไซ้ ท่านว่ามันต้องรวางโทษจำคุกตั้งแต่ปีหนึ่งขึ้นไปจนถึงห้าปี แลให้ปรับตั้งแต่ร้อยบาทขึ้นไปจนถึงพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๙๕</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าผู้ใดลักทรัพย์ในเคหะสถานในเวลาค่ำคืน แลมันได้กระทำความผิดนั้นประกอบด้วยเหตุอย่างหนึ่งอย่างใดดังว่ามาในมาตรา ๒๙๓ นั้นด้วยไซ้ ท่านว่ามันต้องรวางโทษจำคุกตั้งแต่สองปีขึ้นไปจนถึงเจ็ดปี แลให้ปรับตั้งแต่ร้อยบาทขึ้นไปจนถึงพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๙๖</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าผู้ใดลักช้างแม้แต่เชือกเดียวก็ดี หรือลักปสุสัตว์หรือสัตว์พาหนะตั้งแต่สามตัวขึ้นไปก็ดี ท่านว่ามันต้องรวางโทษจำคุกตั้งแต่สามปีขึ้นไปจนถึงเจ็ดปี แลให้ปรับตั้งแต่ร้อยบาทขึ้นไปจนถึงพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%92%E0%B8%AA%E0%B9%99%E0%B8%AB%E0%B8%A1%E0%B9%92">หมวดที่ ๒<br>ความผิดฐานวิ่งราว ฐานชิงทรัพย์<br>ฐานปล้นทรัพย์ แลฐานสลัด</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๙๗</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดลักทรัพย์โดยใช้กิริยาฉกฉวยเอาทรัพย์พาหนีไปต่อหน้า ท่านว่ามันมีความผิดฐานเปนโจรวิ่งราวทรัพย์ ถ้าแลมันมิได้ทำให้ผู้ใดมีบาดเจ็บด้วย ท่านว่ามันต้องรวางโทษจำคุกตั้งแต่หกเดือนขึ้นไปจนถึงห้าปี แลให้ปรับตั้งแต่ยี่สิบบาทขึ้นไปจนถึงห้าร้อยบาทด้วยอิกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าแลมันได้ทำให้เขามีบาดเจ็บด้วยไซ้ ท่านว่ามันควรรับอาญาตามที่บัญญัติไว้ในมาตรา ๓๐๐ นั้น</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๙๘</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดลักทรัพย์ด้วยใช้กำลังทำร้ายผู้อื่นหรือขู่เข็ญว่าจะทำร้ายเขาเพื่อเหตุอย่างใดอย่างหนึ่งนี้ คือ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)เพื่อประโยชน์ที่จะตระเตรียมการหรือให้เปนความสดวกในการที่มันจะลักทรัพย์ก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)เพื่อที่จะเอาทรัพย์หรือให้ผู้ใดส่งทรัพย์ให้แก่มันก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๓)เพื่อที่จะเอาผลประโยชน์อันเกิดแต่การที่มันลักทรัพย์นั้นก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๔)เพื่อจะปกปิดการกระทำผิดของมันก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๕)เพื่อจะหลีกเลี่ยงให้พ้นอาญาสำหรับความผิดนั้นก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ท่านว่ามันมีความผิดฐานเปนโจรชิงทรัพย์ ต้องรวางโทษจำคุกตั้งแต่สองปีขึ้นไปจนถึงเจ็ดปี แลให้ปรับตั้งแต่ร้อยบาทขึ้นไปจนถึงพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๒๙๙</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าการชิงทรัพย์นั้นประกอบด้วยความฉกรรจ์อย่างหนึ่งอย่างใดเช่นว่าไว้ในมาตรา ๒๙๓ แลมาตรา ๒๙๔ ท่านว่ามันผู้กระทำผิดต้องรวางโทษจำคุกตั้งแต่สามปีขึ้นไปจนถึงสิบปี แลให้ปรับตั้งแต่ร้อยบาทขึ้นไปจนถึงสองพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๐๐</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าในการชิงทรัพย์นั้นเปนเหตุให้ผู้ใดต้องบาดเจ็บ ท่านว่ามันผู้กระทำผิดนั้นต้องรวางโทษจำคุกตั้งแต่ห้าปีขึ้นไปจนถึงสิบห้าปี แลให้ปรับตั้งแต่ร้อยบาทขึ้นไปจนถึงสองพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าแลเปนเหตุให้เขาต้องบาดเจ็บถึงสาหัส ท่านว่ามันผู้กระทำผิดต้องรวางโทษจำคุกตั้งแต่เจ็ดปีขึ้นไปจนถึงสิบห้าปี แลให้ปรับตั้งแต่พันสองร้อยบาทขึ้นไปจนถึงสองพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าแลเปนเหตุให้เขาถึงตาย ท่านว่ามันผู้กระทำผิดต้องรวางโทษจำคุกตั้งแต่สิบปีขึ้นไปจนถึงยี่สิบปี แลให้ปรับตั้งแต่ห้าร้อยบาทขึ้นไปจนถึงสองพันด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>แต่ความที่ว่าในตอนหลังนี้ท่านไม่ประสงค์จะให้ใช้ลบล้างอาญาที่ท่านบัญญัติไว้สำหรับโทษที่กระทำให้คนตาย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๐๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าคนตั้งแต่สามคนด้วยกันขึ้นไป แลมันมีสาตราวุธแม้แต่คนเดียวก็ดี กระทำการชิงทรัพย์ ท่านว่ามันมีความผิดฐานเปนโจรปล้นทรัพย์ ต้องรวางโทษจำคุกตั้งแต่สิบปีขึ้นไปจนถึงสิบห้าปีด้วยกันทุกคน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าในการปล้นนั้นทำให้เขามีบาดเจ็บถึงสาหัส ท่านว่ามันผู้เปนโจรนั้นต้องรวางโทษจำคุกจนตาย หรือให้จำตั้งแต่สิบห้าปีขึ้นไปจนถึงยี่สิบปีด้วยกันทุกคน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าแลในการปล้นนั้นทำให้เขาถึงตาย ท่านว่ามันผู้เปนโจรนั้นต้องรวางโทษถึงประหารชีวิตร์ หรือจำคุกจนตลอดชีวิตร์</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>แต่ความที่ว่าในตอนหลังนี้ท่านไม่ประสงค์จะให้เอาไปใช้ลบล้างอาญาที่ท่านบัญญัติไว้สำหรับความผิดฐานฆ่าคนตายโดยฉกรรจ์อย่างหนึ่งอย่างใดที่ท่านกล่าวไว้ในมาตรา ๒๕๐ นั้น</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๐๒</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดเปนโจรสลัด ท่านให้ลงโทษมันตามลักษณโทษที่บัญญัติไว้ในมาตรา ๒๙๘, ๒๙๙, แล ๓๐๑ นั้น</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%92%E0%B8%AA%E0%B9%99%E0%B8%AB%E0%B8%A1%E0%B9%93">หมวดที่ ๓<br>ความผิดฐานกันโชก</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๐๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดไม่มีอำนาจที่จะบังคับได้โดยชอบด้วยกฎหมาย ถ้าแลมันบังอาจบังคับผู้อื่น โดยมันใช้กำลังข่มขืนหรือขู่เข็ญขืนใจให้เขาสัญญาว่าจะส่งทรัพย์อย่างใดใดให้แก่ผู้ใดก็ดี ให้เขาทำ หรือถอน หรือทำลายหนังสือสำคัญอย่างหนึ่งอย่างใดก็ดี ท่านว่ามันผู้ใช้อุบายบังคับเขาเช่นว่ามานี้มีความผิดฐานกันโชก ต้องรวางโทษจำคุกตั้งแต่หกเดือนขึ้นไปจนถึงห้าปี แลให้ปรับตั้งแต่ห้าสิบบาทขึ้นไปจนถึงสองพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าหากว่ามันกันโชกเขาด้วยลักษณอย่างหนึ่งอย่างใดดังว่าต่อไปนี้ คือ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)ด้วยอุบายขู่ว่าจะเปิดเผยความลับสำหรับตัวของเขา หรือขู่ว่าจะกระทำให้เขาเสื่อมเสียชื่อเสียงด้วยประการใดก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)ขู่ว่าจะฆ่า หรือจะกระทำร้ายแก่ร่างกายเขาให้ถึงสาหัส หรือจะเอาไฟเผาทรัพย์ของเขาเสียก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๓)มันมีสาตราวุธมาขู่เขาก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ท่านว่ารวางโทษของมันถึงจำคุกตั้งแต่สองปีขึ้นไปจนถึงเจ็ดปี แลให้ปรับตั้งแต่ร้อยบาทขึ้นไปจนถึงห้าพันบาทอีกโสดหนึ่งด้วย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%92%E0%B8%AA%E0%B9%99%E0%B8%AB%E0%B8%A1%E0%B9%94">หมวดที่ ๔<br>ความผิดฐานฉ้อโกง</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๐๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดใช้อุบายหลอกลวงด้วยประการใดใดอันต้องประกอบด้วยเอาความเท็จมากล่าว หรือแกล้งปกปิดเหตุการอย่างใดใดที่มันควรต้องบอกให้แจ้งนั้น โดยมันมีเจตนาทุจริตคิดหลอกลวงให้ผู้หนึ่งผู้ใดส่งทรัพย์อย่างหนึ่งอย่างใดให้แก่ตัวมันเองหรือแก่ผู้อื่นก็ดี หรือให้เขาทำหนังสือสำคัญ หรือให้เขาถอนหรือทำลายหนังสือสำคัญอย่างใดใดก็ดี ท่านว่ามันผู้หลอกลวงเช่นว่ามานี้กระทำการฉ้อโกง มีความผิด ต้องรวางโทษจำคุกไม่เกินกว่าสามปี แลให้ปรับไม่เกินกว่าสองพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๐๕</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดซื้อเชื่อสิ่งของเขาโดยเจตนาจะไม่ใช้ค่าสิ่งของนั้น ท่านว่ามันฉ้อโกง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๐๖</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าผู้ใดกระทำการฉ้อโกงโดยอุบายอย่างหนึ่งอย่างใดเช่นว่าต่อไปในมาตรานี้ คือ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)ปลอมตัวเปนคนอื่นก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)แกล้งแสดงตนว่าเปนคนใช้วิทยาคมได้ก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๓)แกล้งปกปิดความที่ได้เอาทรัพย์อย่างใดใดของตนไปขาย หรือวางเปนประกัน หรือจำนำเสียแล้ว แลเพทุบายเอาทรัพย์นั้นมาขาย หรือวางเปนประกัน หรือจำนำอีกหนหนึ่งก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๔)เอาทรัพย์อย่างใดใดซึ่งมันไม่มีอำนาจที่จะจับจ่ายได้นั้นไปขาย หรือวางเปนประกัน หรือจำนำจำหน่ายเสียก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๕)เอาเปรียบแก่คนอายุน้อยซึ่งยังอ่อนแก่ความรู้ หรือเอาเปรียบแก่คนที่วิกลจริตก็ดี ท่านว่ามันผู้มีความผิดที่ว่ามาในมาตรานี้ต้องรวางโทษจำคุกตั้งแต่หกเดือนขึ้นไปจนถึงห้าปี แลให้ปรับตั้งแต่ร้อยบาทขึ้นไปจนถึงห้าพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๐๗</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดเอาเปรียบแก่คนอ่อนอายุซึ่งมีความขัดสนหรือเปนคนวิกลจริตหรือลุ่มหลงอยู่ด้วยการใดใด แลมันเพทุบายให้ผู้อ่อนอายุนั้นลงชื่อในหนังสือสำคัญอย่างใดใดให้เปนที่เสื่อมเสียประโยชน์ของผู้นั้นเองหรือเสื่อมเสียประโยชน์ของผู้อื่น โดยมิได้รับความทดแทนตามสมควรไซ้ ท่านว่าผู้เพทุบายกระทำการฉ้อโกงเอาเปรียบเช่นนี้มีความผิด ต้องรวางโทษจำคุกไม่เกินกว่าสามปี แลให้ปรับไม่เกินกว่าสองพันบาทด้วยอิกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๐๘</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดมีเจตนาที่จะป้องกันมิให้ทรัพย์อย่างใดใดถูกริบ ถูกอายัด ถูกยึดตามคำพิพากษาหรือตามคำบังคับคำสั่งของศาลอันได้ประกาศแล้วก็ตาม หรือที่มันรู่ว่าน่าจะประกาศก็ตาม ถ้าแลมันเพทุบายบังอาจเอาทรัพย์นั้นไปเสียก็ดี ซ่อนเร้นเสียก็ดี โอนหรือนำส่งทรัพย์นั้นให้แก่ผู้อื่นเสียก็ดี หรือแกล้งเพทุบายร้องเรียนว่าทรัพย์นั้นเปนของของมันเอง หรือแกล้งว่ามันมีส่วนกรรมสิทธิ์ในทรัพย์นั้นก็ดี หรือมันแกล้งให้มันเองต้องคำพิพากษาว่าเปนหนี้สินซึ่งมันมิไดเปนหนี้จริงก็ดี ผู้ที่กระทำฉ้อโกงอย่างใดใดเช่นว่ามาในมาตรานี้ ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกไม่เกินกว่าสองปี แลให้ปรับไม่เกินกว่าห้าพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๐๙</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดเจตนาจะป้องกันขัดขวางมิให้แบ่งปันทรัพย์อย่างใดใดตามกฎหมายให้แก่พวกเจ้าหนี้ของมันเองหรือแก่เจ้าหนี้ของผู้อื่น แลมันใช้อุบายเอาทรัพย์นั้นไปเสียก็ดี ซ่อนเร้นหรือนำส่งทรัพย์นั้นให้แก่ผู้อื่นเสียก็ดี มันโอนหรือทำให้เขาโอนทรัพย์นั้นไปให้แก่ผู้อื่น โดยผู้นั้นมิได้ตอบแทนด้วยอย่างใดโดยสมควรก็ดี ผู้ใดใช้อุบายฉ้อโกงกระทำอย่างหนึ่งอย่างใดเช่นว่ามาในมาตรานี้ ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกไม่เกินกว่าสองปี แลให้ปรับไม่เกินกว่าห้าพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๑๐</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดขายทรัพย์สิ่งของอย่างใดใด แลมันใช้อุบายลวงให้ผู้ซื้อหลงเชื่อในธรรมชาต ในชนิด หรือในจำนวนอันเปนเท็จไซ้ ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกไม่เกินกว่าหกเดือน แลให้ปรับไม่เกินกว่าห้าร้อยบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๑๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดหาผลประโยชน์โดยอุบายหลอกลวงในการเล่นต่าง ๆ ซึ่งเล่นกันได้โดยไม่ผิดต่อกฎหมาย ถ้าหากความเพทุบายของมันไม่ร้ายถึงฐานฉ้อโกงหรือฐานยักยอกอันต้องอาญาแล้ว ท่านว่ามันมีความผิดเพียงรวางโทษจำคุกไม่เกินกว่าสามเดือน แลปรับไม่เกินสองร้อยบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๑๒</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ทรัพย์อย่างใดใดอันเขารับประกันสัญญาไว้ว่าถ้าเปนภยันตรายสูญหรือเสียหายลง เขาจะใช้ค่าทรัพย์ให้นั้น ถ้าแลผู้ใดแกล้งกระทำแก่ทรัพย์นั้นให้เปนอันตรายหรือเสียไปด้วยประการใดใด โดยมันเจตนาจะเอาเงินค่าประกันทรัพย์นั้นแก่เขามาเปนนอาณาประโยชน์ของมันเองก็ตาม หรือเปนอาณาประโยชน์ของคนผู้อื่นก็ตาม ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่หกเดือนขึ้นไปจนถึงห้าปี แลให้ปรับตั้งแต่ห้าสิบบาทขึ้นไปจนถึงห้าพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๑๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>การฟ้องเอาโทษแก่ผู้กระทำผิดกฎหมายหมวดนี้นั้น ท่านให้ถือว่าต่อผู้ที่ได้รับความเสียหายมาร้องทุกข์ จึงให้เจ้าพนักงานเอาคดีนั้นขึ้นว่ากล่าว</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%92%E0%B8%AA%E0%B9%99%E0%B8%AB%E0%B8%A1%E0%B9%95">หมวดที่ ๕<br>ความผิดฐานยักยอกทรัพย์อันต้องอาญา</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๑๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดได้รับมอบหมายให้เปนผู้ดูแลรักษาหรือเก็บทรัพย์หรือจัดการทรัพย์อย่างใดใดของผู้อื่น หรือเปนทรัพย์ที่ผู้อื่นมีส่วนเปนเจ้าทรัพย์อยู่ด้วยก็ดี หรือได้รับมอบหมายทรัพย์ไว้เพื่อให้มันใช้โดยเฉภาะในการอย่างหนึ่งอย่างใดซึ่งชอบด้วยกฎหมาย หรือในการที่ผู้มอบทรัพย์นั้นได้กำหนดไว้ให้ใช้ก็ดี ถ้าแลมันคิดทุจริตเบียดบังเอาทรัพย์นั้นไว้ใช้เอง หรือไว้เปนอาณาประโยชน์ของมันเสียเอง หรือมันเอาไปใช้ให้เปนอาณาประโยชน์ของบุคคลผู้อื่น ท่านว่ามันกระทำการยักยอกอันต้องอาญา มีความผิด ต้องรวางโทษจำคุกไม่เกินกว่าสามปี แลให้ปรับไม่เกินกว่าสองพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๑๕</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดได้รับมอบลายมือชื่อของผู้อื่นไว้เพื่อกิจอย่างใดที่กฎหมายบังคับก็ดี หรือกิจอย่างใดที่ผู้มอบเขาสั่งให้ทำก็ดี ถ้าแลมันบังอาจเอาลายมือชื่อเขาไปใช้ในกิจอย่างอื่นที่อาจจะเกิดเสียหายแก่ผู้หนึ่งผู้ใดได้นั้นไซ้ ท่านว่ามันมีความผิดฐานยักยอกอันต้องอาญา</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าหากว่าเขามิได้ลงลายมือมอบไว้แก่มัน แลมันไปกระทำผิดเช่นว่ามานั้น ท่านให้ลงโทษมันฐานปลอมหนังสือ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๑๖</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดได้รับความมอบหมายให้เปนผู้พิทักษ์รักษาทรัพย์อย่างใดใดของมันเองซึ่งต้องอายัดตามกฎหมาย ถ้าแลมันคิดทุจริตปิดบังซ่อนเร้นหรือจำหน่ายหรือเอาทรัพย์นั้นไปเสียให้พ้นก็ดี ท่านว่ามันมีความผิดฐานยักยอกอันต้องอาญา</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๑๗</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดมีเจตนาทุจริต แลยักยอกทรัพย์ซึ่งเขาเอามาส่งไว้แก่มันโดยเขาพลั้งเผลอผิดไปประการใด ท่านว่ามันมีความผิดฐานยักยอกอันต้องอาญา แต่ให้ลงโทษแก่มันตามที่บัญญัติไว้สำหรับความผิดเช่นนั้นแต่เพียงกึ่งหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๑๘</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดเก็บของตกของหายได้ก็ดี หรือมันได้ทรัพย์แผ่นดินก็ดี ถ้าแลมันยักยอกเอาทรัพย์นั้นไว้ ไม่กระทำตามกฎหมายที่บังคับไว้สำหรับการนั้นไซ้ ท่านว่ามันต้องรวางโทษกึ่งอัตราฐานยักยอกอันต้องอาญา</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๑๙</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดได้รับมอบหมายทรัพย์ไว้ในเหตุเหล่านี้ คือ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)โดยฐานมันเปนเสมียนหรือเปนคนใช้ของผู้ที่มอบทรัพย์นั้นก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)โดยฐานมันเปนผู้จัดการทรัพย์สมบัติของผู้อื่นตามคำสั่งของศาลหรือตามพลการของมันเองก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๓)โดยฐานที่มันมีหน้าที่ หรือด้วยศิลปสาตรของมัน หรือในการค้าขายของมัน หรือด้วยกิจธุระของมันก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าแลมันบังอาจยักยอกทรัพย์ที่เขามอบหมายไว้กับมันนั้นด้วยประการใดใดอันเปนฐานยักยอกอันต้องอาญาไซ้ ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่หกเดือนขึ้นไปจนถึงห้าปี แลให้ปรับตั้งแต่ร้อยบาทขึ้นไปจนถึงห้าพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๒๐</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>การฟ้องเอาโทษแก่ผู้กระทำผิดกฎหมายหมวดนี้นั้น ถ้าเปนฐานกระทำผิดนอกจากที่ว่าไว้ในข้อ ๒ แลข้อ ๓ แห่งมาตรา ๓๑๙ นั้นแล้ว ท่านให้ถือว่าต่อผู้ที่ได้รับความเสียหายมาร้องทุกข์ จึงให้เจ้าพนักงานเอาคดีนั้นขึ้นว่ากล่าว</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%92%E0%B8%AA%E0%B9%99%E0%B8%AB%E0%B8%A1%E0%B9%96">หมวดที่ ๖<br>ความผิดฐานรับของโจร</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๒๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดรู้อยู่ว่าทรัพย์อย่างใดใดเปนของได้มาโดยการกระทำความผิดต่อกฎหมาย ถ้าแลมันกระทำอย่างหนึ่งอย่างใดดังว่าต่อไปในมาตรานี้ คือ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)มันซื้อ หรือรับแลกเปลี่ยน หรือรับจำนำทรัพย์นั้นไว้ก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)มันรับทรัพย์นั้นไว้เปนของกำนันหรือเปนของมอบฝาก หรือรับไว้ด้วยประการใดใดก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๓)มันซ่อนเร้น หรือช่วยจำหน่าย หรือช่วยพาเอาทรัพย์นั้นไปเสียให้พ้นก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ท่านว่ามันมีความผิดฐานรับของโจร ถ้าแลมันมิได้กระทำความผิดในการที่ได้ทรัพย์นั้นมา หรือว่าไม่ได้มีความผิดต้องด้วยลักษณในมาตรา ๑๘๒ ด้วยแล้ว ท่านให้ลงอาญาจำคุกมันไว้ไม่เกินกว่าห้าปี แลให้ปรับไม่เกินกว่าสองพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๒๒</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดรับของโจรโดยมันรู้อยู่แล้วว่าเปนของได้มาโดยฐานชิงทรัพย์ก็ดี หรือฐานปล้นทรัพย์ก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่สามเดือนขึ้นไปจนถึงเจ็ดปี แลให้ปรับตั้งแต่ร้อยบาทขึ้นไปจนถึงห้าพันบาทด้วยอิกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๒๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดกระทำการรับของโจรเปนปรกติธุระของตน ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกตั้งแต่สามปีขึ้นไปจนถึงสิบปี แลให้ปรับตั้งแต่สองร้อยบาทขึ้นไปจนถึงห้าพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%92%E0%B8%AA%E0%B9%99%E0%B8%AB%E0%B8%A1%E0%B9%97">หมวดที่ ๗<br>ความผิดฐานทำให้เสียทรัพย์</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๒๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดมิได้มีอำนาจที่จะทำได้โดยชอบด้วยกฎหมาย แลมันบังอาจทำแก่ทรัพย์ของผู้อื่นให้ทรัพย์ของเขาเปนอันตรายหรือชำรุดไป ท่านว่ามันมีความผิดฐานทำให้เสียทรัพย์ ต้องรวางโทษานุโทษเปนสามสฐาน คือสฐานหนึ่งให้จำคุกไม่เกินกว่าสองปี สฐานหนึ่งให้ปรับไม่เกินกว่าพันบาท สฐานหนึ่งให้ลงโทษทั้งจำทั้งปรับเช่นว่ามาแล้วด้วยกัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๒๕</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดทำให้เสียทรัพย์อย่างว่าต่อไปในมาตรานี้ คือ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)ทรัพย์อย่างใดใดที่เปนของสำหรับใช้ในราชการ หรือสำหรับใช้ในสาธารณประโยชน์ก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)เครื่องกล, เครื่องจักร์, ก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๓)ปสุสัตว์หรือสัตว์พาหนะก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ท่านว่ามันมีความผิดต้องรวางโทษจำคุกไม่เกินกว่าสามปี แลให้ปรับไม่เกินกว่าสองพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๒๖</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>การฟ้องเอาโทษแก่ผู้กระทำผิดกฎหมายหมวดนี้นั้น ท่านให้ถือว่าต่อผู้ที่ได้รับความเสียหายมาร้องทุกข์ จึงให้เจ้าพนักงานเอาเอาคดีขึ้นว่ากล่าว</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%92%E0%B8%AA%E0%B9%99%E0%B8%AB%E0%B8%A1%E0%B9%98">หมวดที่ ๘<br>ความผิดฐานบุกรุก</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๒๗</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดเจตนาจะมิให้ผู้อื่นครอบครองทรัพย์ของเอาอันพึงเคลื่อนจากที่มิได้นั้นโดความปรกติศุข แลมันประพฤติผิดกฎหมายบังอาจเข้าถือเอาทรัพย์นั้นก็ดี หรือเพื่อจะถือเอาทรัพย์ของเขาเช่นว่ามานั้น มันบังอาจยักย้ายหรือทำลายเครื่องหมายเขตร์ของเขาเสียก็ดี หรือด้วยเจตนาดังว่ามาแล้ว มันบังอาจเข้าไปภายในเขตร์ของเขาก็ดี ผู้ใดกระทำประการหนึ่งประการใดดังว่ามานี้ ท่านว่ามันกระทำการบุกรุก มีความผิด ต้องรวางโทษานุโทษเปนสามสฐาน คือสฐานหนึ่งให้จำคุกไม่เกินกว่าปีหนึ่ง สฐานหนึ่งให้ปรับไม่เกินกว่าห้าร้อยบาท สฐานหนึ่งให้ลงโทษจำทั้งปรับเช่นว่ามาแล้วด้วยกัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๒๘</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดกระทำการบุกรุกด้วยอุบายอย่างหนึ่งอย่างใดเช่นว่าต่อไปในมาตรานี้ คือ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)มันใช้กำลังทำร้ายเขาหรือขู่เข็ญว่าจะทำร้ายเขาก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)มันมีสาตราวุธไปบุกรุกก็ดี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๓)คุมพรรคพวกนับทั้งตัวมันตั้งแต่ห้าคนขึ้นไปไปบุกรุกก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษจำคุกไม่เกินกว่าสามปี แลให้ปรับไม่เกินกว่าพันบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๒๙</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดมิได้มีอำนาจที่จะทำได้โดยชอบด้วยกฎหมาย แลมันบังอาจเข้าไปในเคหะสถานของผู้อื่น หรือในรั้วเขตร์ของเคหะสถานผู้อื่น หรือเข้าไปซ่อนตัวอยู่ในที่นั้น ๆ โดยไม่มีเหตุอันสมควรที่จะเข้าไปก็ดี หรือว่าเมื่อผู้มีความชอบธรรมที่จะห้ามได้ ได้ขับไล่ให้มันออกไป มันยังขืนอยู่ในที่นั้น ๆ ก็ดี ท่านว่ามันผู้กระทำผิดอย่างหนึ่งอย่างใดเช่นว่ามานี้ ต้องรวางโทษจำคุกไม่เกินกว่าหกเดือน แลให้ปรับไม่เกินกว่าร้อยบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าการกระทำผิดฐานบุกรุกเช่นว่ามาในมาตรานี้ได้กระทำในเวลาค่ำคืนก็ดี กระทำโดยอุบายใช้กำลังทำร้ายหรือขู่เข็ญว่าจะทำร้ายเขาก็ดี กระทำด้วยมีสาตราวุธก็ดี หรือคุมสมัคพรรคพวกนับทั้งตัวมันตั้งแต่สามคนขึ้นไปไปบุกรุกก็ดี ท่านว่าผู้กระทำผิดเช่นว่านี้ต้องรวางโทษจำคุกไม่เกินกว่าสามปี แลให้ปรับไม่เกินกว่าห้าร้อยบาทด้วยอีกโสดหนึ่ง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๓๐</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ใดมิได้มีอำนาจที่จะทำได้โดยชอบด้วยกฎหมาย แลมันบังอาจเข้าไปในสถานที่สำหรับใช้ในราชการหรือไปซ่อนตัวอยู่ในที่นั้นโดยไม่มีเหตุอันสมควรที่จะเข้าไปก็ดี หรือเมื่อเจ้าพนักงานขับไล่ให้มันออกไป มันยังขืนอยู่ในที่นั้นก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษฐานบุกรุกเคหะสถาน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๓๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>การฟ้องเอาโทษแก่ผู้กระทำผิดกฎหมายที่ท่านบัญญัติไว้ในมาตรา ๓๒๗, ๓๒๘ แล ๓๒๙ นั้น ท่านให้ถือว่าต่อผู้ที่ได้รับความเสียหายมาร้องทุกข์ จึงให้เจ้าพนักงานเอาคดีขึ้นว่ากล่าว</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%92%E0%B8%AA%E0%B9%91%E0%B9%90">ส่วนที่ ๑๐<br>ว่าด้วยความผิดที่เปนลหุโทษ</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:separator -->
+<hr class="wp-block-separator has-alpha-channel-opacity"/>
+<!-- /wp:separator -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๓๒</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ความผิดที่เปนลหุโทษนั้นคือบรรดาการกระทำผิดที่ท่านบัญญัติไว้ตั้งแต่มาตรา ๓๓๔ จน ๓๔๐ แห่งกฎหมายนี้ แลท่านกำหนดอาญาสำหรับความผิดฐานลหุโทษไว้ต่างกันเปน ๔ ชั้นดังนี้ คือ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ชั้น๑ท่านว่าต้องรวางโทษปรับไม่เกินกว่าสิบสองบาท</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ชั้น๒ท่านว่าต้องรวางโทษปรับไม่เกินกว่าห้าสิบบาท</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ชั้น๓ท่านว่าต้องรวางโทษานุโทษเปนสามสฐาน คือสฐานหนึ่งจำคุกไม่เกินสิบวัน สฐานหนึ่งปรับไม่เกินห้าสิบบาท สฐานหนึ่งทั้งจำทั้งปรับเช่นว่านี้ด้วยกัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ชั้น๔ท่านว่าต้องรวางโทษานุโทษเปนสามสฐาน คือสฐานหนึ่งจำคุกไม่เกินเดือนหนึ่ง สฐานหนึ่งปรับไม่เกินร้อยบาท สฐานหนึ่งทั้งจำทั้งปรับเช่นว่านี้ด้วยกัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๓๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าในกฎหมายนี้มิได้บัญญัติไว้เปนอย่างอื่น บรรดาการกระทำผิดฐานลหุโทษนั้น ท่านให้ถือว่าถึงแม้ผู้กระทำผิดมิได้ทำโดยเจตนาก็ต้องมีโทษ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๓๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ลักษณความผิดลหุโทษ ฐานล่วงเลมิดอำนาจการปกครองบ้านเมือง แลล่วงเลมิดอำนาจโรงศาล</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)เมื่อนายพนักงานตรวจตระเวนถามชื่อแลตำแหน่งแห่งที่อยู่ผู้ใด ถ้าแลมันอำพรางไม่บอกให้เขาทราบก็ดี มันแกล้งบออกชื่อหรือตำแหน่งแห่งที่อยู่ที่เปนเท็จก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)ผู้ใดขัดขืนไม่กระทำตามคำสั่งหรือบังคับอันชอบด้วยกฎหมายที่เจ้าพนักงานชั้นหนึ่งชั้นใดสั่งมันนั้น ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๓)ผู้ใดทำวุ่นขึ้นให้เสียความเรียบร้อยในเวลาศาลนั่งพิจารณาคดีก็ดี หรือมันประพฤติกิริยาไม่เรียบร้อยต่อหน้าศาลก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๔)ผู้ใดทำอันตรายแก่หมายประกาศหรือหนังสือซึ่งเจ้าพนักงานผู้กระทำการตามหน้าที่สั่งให้ปิดไว้ก็ดี หรือมันทำให้แผ่นป้ายสำหรับปิดประกาศแลหนังสือนั้นเปนอันตรายหลุดล้มแตกหักไปก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๓๕<br>ความผิดลหุโทษ<br>ในฐานกระทำให้เกิดภยันตรายแก่สาธารณชน<br>แลให้สาธารณชนปราศจากความศุขสบาย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)ผู้ใดส่งเสียงอื้อฉาวขึ้นในเวลาค่ำคืนโดยใช่เหตุแลมิชอบด้วยกฎหมายจนอาจจะพาให้เกิดความตกใจวุ่นวายกันขึ้นในเมืองหรือหมู่บ้าน ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)ผู้ใดมีปืนประจุพาไปในทางหลวง ถนนหลวง หรือในที่สาธารณสถาน โดยมันไม่ได้รับอนุญาตให้ถือได้ ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๑ แลให้ริบอาวุธนั้นเสียด้วย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๓)ผู้ใดมีสาตราวุธไม่ว่าอย่างใดใดเข้าไปในที่ประชุมชนเวลามีงานนักขัตฤกษ์ ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๑ แลให้ริบอาวุธนั้นเสียด้วย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๔)ผู้ใดจุดประทัด, พลุ, ดอกไม้เพลิง, หรือปล่อยโคมลอยอย่างมีไฟ ในเมือง, ในหมู่บ้าน, ในตลาด, หรือในถนนหลวง โดยเลมิดต่อข้อบังคับสำหรับท้องที่ ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๕)ผู้ใดใช้ปุ๋ยอันทำด้วยของโสโครกมีกลิ่นกล้า มีปุ๋ยปลาเน่าเปนต้น ภายในหรือใกล้เคียงกับเมือง, หมู่บ้าน, หรือตลาด โดยเลมิดต่อข้อบังคับสำหรับท้องที่ ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๖)ผู้ใดวิวาทต่อสู้กันในท้องถนนหลวงหรือในที่สาธารณสถาน ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๒</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๗)ผู้ใดขายสุราให้แก่บุคคลที่ปรากฎว่าเมาสุราอยู่แล้วก็ดี หรือขายสุราให้แก่เด็กอายุต่ำกว่าสิบสี่ขวบก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๒</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๘)ผู้ใดเปนผู้ควบคุมคนเสียจริตหรือคนสันดานดุร้าย ถ้าแลมันปล่อยให้คนนั้น ๆ ออกเที่ยวไปแต่โดยลำภังตน ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๒</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๙)ผู้ใดเห็นผู้อื่นตกอยู่ในที่ใกล้มรณไภย ถ้ามันอาจจะช่วยได้โดยไม่ควรเกรงอันตรายแก่ตัวมันเอง แลมันมิช่วยไซ้ ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๒</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑๐)ผู้ใดทำให้ขัดขวางแก่ท่อถ่ายน้ำ, รางน้ำ, หรือทางสำหรับให้น้ำไหล อันเปนของสำหรับสาธารณประโยชน์ ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๒</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑๑)ผู้ใดยิงปืนหรืออาวุธที่ใช้ดินระเบิดอย่างใดใดโดยใช่เหตุขึ้นในเมือง, หมู่บ้าน, ตลาด หรือในที่ประชุมชน ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑๒)ผู้ใดรักษาสัตว์ที่ดุร้าย แลมันปล่อยให้สัตว์นั้นออกเที่ยว ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑๓)ถ้าปรากฎว่าผู้ใดเวลาอยู่ในถนนหลวงหรือในสาธารณสฐานเมาสุรายาเมาจนไม่สามารถจะครองสติของตนได้ก็ดี หรือประพฤติกิริยาอาการวุ่นวายในที่นั้น ๆ ก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑๔)ผู้ใดชักสาตราวุธหรือใช้สาตราวุธในเวลาวิวาทต่อสู้กัน ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑๕)ผู้ใดทำให้น้ำในบ่อ ในสระ หรือในที่ขังน้ำสำหรับสาธารณชนใช้สอยโสโครก ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑๖)ผู้ใดทรมานสัตว์เดียนฉานด้วยความดุร้าย หรือมันฆ่าสัตว์เดียรฉานให้ตายด้วยความลำบากโดยมิจำเปน ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑๗)ผู้ใดทำให้ปศุสัตว์หรือสัตว์พาหนะถึงตายหรือมีบาดเจ็บเพราะมันขี่ขับหรือบรรทุกสัตว์นั้นจนเหลือขนาดไซ้ ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑๘)ผู้ใดอันเจ้าพนักงานเรียกให้มันช่วยในเมื่อเกิดภยันตราย เช่น เวลาเกิดเพลิงไหม้ เปนต้น ถ้ามันอาจจะช่วยได้แลมันมิช่วยไซ้ ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑๙)ในเวลาโจรปล้นณที่ใดใด ถ้าผู้ใดอาจจะช่วยต่อสู้โจรได้แลมิได้ช่วยไซ้ ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒๐)ผู้ใดได้ทำสัญญาโดยชอบด้วยกฎหมายไว้ว่ามันจะรับทำการแบกหามหรือพาบุคคลขนทรัพย์อย่างใดใดจากที่หนึ่งไปยังที่อื่นก็ดี หรือรับไว้ว่าจะทำการเปนคนใช้ของผู้ใดในเวลาเขาเดิรทางไปโดยทางบกหรือทางน้ำก็ดี ถ้ามันอาจจะทำการงานนั้น ๆ ได้แลมันแกล้งบิดพลิ้วเสียไม่ทำไซ้ ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒๑)ผู้ใดแกล้งเอาความเท็จบอกเล่าให้เลื่องลือจนกระทำให้เกิดความตื่นตกใจขึ้นในหมู่คนทั้งหลายไซ้ ท่านว่ามันมีความผิด ต่องรวางโทษชั้น ๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒๒)ผู้ใดขายหรือทอดตลาดเครื่องอาหารอันไม่ควรบริโภคโดยเปนของเน่าของเสียก็ดี เปนของที่อาจจะให้เกิดโรคภัยขึ้นแก่ผู้บริโภคก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๔ แลท่านให้ศาลสั่งให้ทำลายของเหล่านั้นเสียด้วย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒๓)ผู้ใดเปนคนมีโรคที่อาจจะติดต่อไปถึงผู้อื่นได้ ถ้าแลมันทำหรือขายของกินอย่างใดใด ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒๔)ผู้ใดรู้ว่ามีผู้คิดจะกระทำการประทุษฐร้ายอันสามารถอาจจะให้บุคคลผู้หนึ่งผู้ใดถึงแก่ความตายก็ดี จะกระทำผิดฐานข่มขืนทำชำเราก็ดี จะกระทำผิดฐานเปนโจรชิงทรัพย์ ปล้นทรัพย์ หรือเปนโจรสลัดก็ดี ถ้าแลมันรู้เช่นนั้นแล้ว มันแกล้งเพิกเฉยเสียไม่เอาความไปร้องเรียนต่อเจ้าพนักงานในหน้าที่ก็ดี หรือมันไม่แจ้งแก่ผู้ที่จะพึงถูกประทุษฐร้ายนั้นในเวลาอันพอที่เขาจะป้องกันภยันตรายนั้น ๆ ได้ก็ดี ท่านว่ามันผู้จงใจละเลยเช่นว่ามานี้มีความผิด ต้องรวางโทษชั้น ๔ แต่ถ้าหากว่าผู้ที่กระทำผิดคิดประทุษฐร้ายนั้นเปนสามี, ภรรยา, พี่, น้อง, หรือเปนญาติที่สืบสายโลหิตโดยตรงขึ้นไปหรือโดยตรงลงมาของมันเอง ท่านว่าอย่าให้เอาโทษแก่มันผู้ละเลยนั้นเลย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๓๖<br>ความผิดลหุโทษ<br>ในฐานประทุษฐร้ายต่อทางไปมา<br>แลทางส่งข่าวแลของ ๆ สาธารณชน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)ผู้ใดกีดกั้นทางหลวงโดยใช่เหตุ เช่นมันเอารถ หรือยานอย่างอื่น หรือสิ่งใดใด ไปทอดทิ้งไว้ให้สามารถจะเกิดอันตรายหรือขัดข้องแก่ความสดวกในการไปมาของสาธารณชน ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)ผู้ใดมิได้รับอนุญาตอันชอบด้วยกฎหมาย แลมันบังอาจปลูกเรือน, ปักรั้ว, หรือปลูกสร้างสิ่งใดใดให้ล้ำเข้าไปในทางหลวง ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๓)ผู้ใดไม่กระทำตามคำสั่งของเจ้าพนักงานผู้มีอำนาจแลหน้าที่สั่งให้รักษาถนนหลวงให้สอาด ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๔)ผู้ใดปลูกร้าน หรือวางแผงลอย หรือตั้งที่สำหรับขายของ ลงในถนนหลวงโดยมิได้รับอนุญาตอันชอบด้วยกฎหมาย ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๕)ผู้ใดปล่อยปสุสัตว์หรือสัตว์พาหนะของมันให้เที่ยวไปตามถนนหลวง ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๖)ผู้ใดดับโคมไฟที่ให้แสงสว่างสำหรับสาธารณชนไปมาตามถนนหลวง ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๗)ผู้ใดใช้รถตามถนนหลวงในเวลากลางคืน ไม่จุดโคมไฟให้แสงสว่างที่รถนั้นตามสมควร ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๘)ผู้ใดปละปล่อยให้ปสุสัตว์หรือสัตว์พาหนะของมันไปทำอันตรายแก่ถนนหลวงก็ดี ที่สำราญสำหรับสาธารณชนก็ดี เขื่อน, ทางสำหรับให้น้ำไหล รางน้ำ แลที่ ทาง หรือสิ่งใดใดซึ่งสำหรับประโยชน์ของสาธารณชนก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๒</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๙)ผู้ใดซึ่งท่านอนุญาตโดยชอบด้วยกฎหมายให้มันพื้นดินในทางหลวงก็ดี หรือให้ปลูก ให้ตั้ง หรือวางสิ่งใดใดอันย่อมจะเปนเครื่องกีดขวางในทางหลวงก็ดี ถ้าแลมันละเลยมิได้จุดโคมไฟให้แสงสว่างไว้ณที่นั้น ๆ เปนสัญญาเพื่อป้องกันภยันตรายแก่สาธารณชนที่ไปมาในทางนั้น ท่านว่ามันผู้ละเลยเช่นนี้มีความผิด ต้องรวางโทษชั้น ๒</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑๐)ผู้ใดฆ่าปสุสัตว์หรือสัตว์พาหนะในถนนหลวงก็ดี หรือเททิ้งสิ่งโสโครกในถนนหลวงก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๒</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑๑)ผู้ใดปลูก ปัก หรือวางสิ่งใดใดในทางหลวงหรือริมทางหลวงซึ่งอาจจะล้มทลายลงมาถูก ทับ ทำให้เปนอันตรายแก่คนที่ไปมาในทางนั้นได้ ท่านว่ามีความผิด ต้องรวางโทษชั้น ๒</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑๒)ผู้ใดขี่ม้าหรือขับรถเร็วเกิดขนาดจนสามารถอาจจะเกิดเหตุร้ายแก่สาธารณชนขึ้นได้ ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๒</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑๓)ผู้ใดเอาของเกะกะวางไว้ในถนนหลวงก็ดี หรือพื้นดินในถนนหลวงก็ดี โดยมันมิได้รับอนุญาตอันชอบด้วยกฎหมาย ถ้าแลการที่มันทำนั้นไม่ถึงความผิดฐานทำให้เสียทรัพย์ แลไม่ถึงความผิดฐานประทุษฐร้ายแก่ทางไปมาของสาธารณชน ท่านว่ามันมีความผิด ต้องรวางโทษเพียงชั้น ๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑๔)ผู้ใดทิ้งทรากสัตว์เดียรฉานในทางหลวงก็ดี หรือทิ้งริมทางหลวงก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑๕)ผู้ใดกระทำให้ยานที่สำหรับขับขี่ไปมาในถนนหลวงโดนกัน เพราะมันไม่ได้ประพฤติตามข้อบังคับสำหรับการขับขี่ยานนั้น ๆ ไซ้ ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๓๗<br>ความผิดลหุโทษ<br>ในฐานกระทำอนาจาร</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)ผู้ใดแสดงวาจาลามกอนาจารต่อหน้าธารคำนัล ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)ผู้ใดเปลือยกายหรือกระทำการอย่างอื่น ๆ อันควรขายหน้าต่อหน้าธารคำนัล ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๓๘<br>ความผิดลหุโทษ<br>ในฐานประทุษฐร้ายแก่ร่างกาย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)ผู้ใดบังอาจขว้างปาผู้อื่นด้วยของโสโครก หรือด้วยก้อนหินก้อนอิฐ หรือด้วยของแขงกระด้างอย่างใดใด แต่มิได้ต้องตัวบุคคลผู้ใด ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๒</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)ผู้ใดทำการโดยฐานประมาท แลมันกระทำให้เกิดบาดเจ็บแก่ร่างกายของบุคคลผู้ใดไซ้ ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๓)ผู้ใดบังอาจทุบตีหรือใช้กำลังกระทำอย่างใดใดแก่ผู้อื่น แต่ไม่ถึงแก่บาดเจ็บ ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๓๙<br>ความผิดลหุโทษ<br>ในฐานกระทำให้เสื่อมเสีย<br>อิศรภาพแลชื่อเสียง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)ผู้ใดขู่เข็ญว่าจะทำให้เสียหายแก่เขาโดยการร้ายแรงแลไม่เปนธรรม ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)ผู้ใดหมิ่นประมาทเขาซึ่งหน้า ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๓)ผู้ใดโฆษนาการหมิ่นประมาทเขา ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มาตรา ๓๔๐<br>ความผิดลหุโทษ<br>ในฐานประทุษฐร้ายแก่ทรัพย์</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑)ผู้ใดปล่อยให้ปสุสัตว์หรือสัตว์พาหนะเข้าในเรือกสวนไร่นาของผู้อื่นอันเขาได้ไถคราดแต่งพื้นดินไว้แล้วก็ดี หรือที่เขาได้ปลูกเพาะพรรณ์ไม้อันมีประโยชน์งอกงามอยู่แล้ว หรือเขาได้เก็บกองรวมอยู่ในนั้นก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๒</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒)ผู้ใดบังอาจเอาสิ่งโสโครกหรือของแขงกระด้าง มีก้อนหินเปนต้น ขว้างปาเคหะสถานหรือเรือกสวนของเขา ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๓)ผู้ใดไล่ต้อนปสุสัตว์หรือสัตว์พาหนะเข้าไปในเรือกสวนไร่นาของผู้อื่นอันเขาได้ไถคราดแต่งดินไว้แล้วก็ดี หรือมีพรรณ์ไม้อันมีประโยชน์งอกงามอยู่แล้ว หรือเขาได้เก็บกองรวมอยู่ในนั้นแล้วก็ดี ท่านว่ามันมีความผิด ต้องรวางโทษชั้น ๔</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#%E0%B8%AA-%E0%B8%A0%E0%B9%93">บาญชีกฎหมายแลพระราชบัญญัติซึ่งให้ยกเลิกเสีย</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:table -->
+<figure class="wp-block-table"><table class="has-fixed-layout"><tbody><tr><td>ศักราชเดือนปีซึ่งตั้งพระราชบัญญัติ</td><td>ชื่อกฎหมาย ประกาศ แลพระราชบัญญัติ</td></tr><tr><td>วัน&nbsp;๕&nbsp;๔ฯ&nbsp;๗&nbsp;ค่ำ ปีกุน ศักราช ๑๙๐๓</td><td><a href="https://th.wikisource.org/wiki/%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%A1%E0%B8%A7%E0%B8%A5%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A3%E0%B8%B1%E0%B8%8A%E0%B8%81%E0%B8%B2%E0%B8%A5%E0%B8%97%E0%B8%B5%E0%B9%88_1_%E0%B8%88%E0%B8%B8%E0%B8%A5%E0%B8%A8%E0%B8%B1%E0%B8%81%E0%B8%A3%E0%B8%B2%E0%B8%8A_1166_%E0%B8%9E%E0%B8%B4%E0%B8%A1%E0%B8%9E%E0%B9%8C%E0%B8%95%E0%B8%B2%E0%B8%A1%E0%B8%89%E0%B8%B0%E0%B8%9A%E0%B8%B1%E0%B8%9A%E0%B8%AB%E0%B8%A5%E0%B8%A7%E0%B8%87%E0%B8%95%E0%B8%A3%E0%B8%B2_3_%E0%B8%94%E0%B8%A7%E0%B8%87/%E0%B9%80%E0%B8%A5%E0%B9%88%E0%B8%A1_2/%E0%B8%AA%E0%B9%88%E0%B8%A7%E0%B8%99%E0%B8%97%E0%B8%B5%E0%B9%88_8">กฎหมายลักษณโจร</a></td></tr><tr><td>วัน&nbsp;๗&nbsp;๔ฯ&nbsp;๘&nbsp;ค่ำ ปีเถาะ ศักราช ๑๘๙๕</td><td><a href="https://th.wikisource.org/w/index.php?title=%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%A1%E0%B8%A7%E0%B8%A5%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A3%E0%B8%B1%E0%B8%8A%E0%B8%81%E0%B8%B2%E0%B8%A5%E0%B8%97%E0%B8%B5%E0%B9%88_1_%E0%B8%88%E0%B8%B8%E0%B8%A5%E0%B8%A8%E0%B8%B1%E0%B8%81%E0%B8%A3%E0%B8%B2%E0%B8%8A_1166_%E0%B8%9E%E0%B8%B4%E0%B8%A1%E0%B8%9E%E0%B9%8C%E0%B8%95%E0%B8%B2%E0%B8%A1%E0%B8%89%E0%B8%B0%E0%B8%9A%E0%B8%B1%E0%B8%9A%E0%B8%AB%E0%B8%A5%E0%B8%A7%E0%B8%87%E0%B8%95%E0%B8%A3%E0%B8%B2_3_%E0%B8%94%E0%B8%A7%E0%B8%87/%E0%B9%80%E0%B8%A5%E0%B9%88%E0%B8%A1_2/%E0%B8%AA%E0%B9%88%E0%B8%A7%E0%B8%99%E0%B8%97%E0%B8%B5%E0%B9%88_9&amp;action=edit&amp;redlink=1">กฎหมายลักษณอาญาหลวง</a></td></tr><tr><td>วัน&nbsp;๕&nbsp;๓ฯ&nbsp;๗&nbsp;ค่ำ ปีมะโรง ศักราช ๑๒๖๙</td><td><a href="https://th.wikisource.org/wiki/%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%A1%E0%B8%A7%E0%B8%A5%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A3%E0%B8%B1%E0%B8%8A%E0%B8%81%E0%B8%B2%E0%B8%A5%E0%B8%97%E0%B8%B5%E0%B9%88_1_%E0%B8%88%E0%B8%B8%E0%B8%A5%E0%B8%A8%E0%B8%B1%E0%B8%81%E0%B8%A3%E0%B8%B2%E0%B8%8A_1166_%E0%B8%9E%E0%B8%B4%E0%B8%A1%E0%B8%9E%E0%B9%8C%E0%B8%95%E0%B8%B2%E0%B8%A1%E0%B8%89%E0%B8%B0%E0%B8%9A%E0%B8%B1%E0%B8%9A%E0%B8%AB%E0%B8%A5%E0%B8%A7%E0%B8%87%E0%B8%95%E0%B8%A3%E0%B8%B2_3_%E0%B8%94%E0%B8%A7%E0%B8%87/%E0%B9%80%E0%B8%A5%E0%B9%88%E0%B8%A1_2/%E0%B8%AA%E0%B9%88%E0%B8%A7%E0%B8%99%E0%B8%97%E0%B8%B5%E0%B9%88_7">กฎหมายลักษณวิวาท</a></td></tr><tr><td>วัน&nbsp;๑&nbsp;๑๑&nbsp;ฯ&nbsp;&nbsp;๑๑&nbsp;ค่ำ ปีจอ ศักราช ๑๙๐๓</td><td><a href="https://th.wikisource.org/w/index.php?title=%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%A1%E0%B8%A7%E0%B8%A5%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A3%E0%B8%B1%E0%B8%8A%E0%B8%81%E0%B8%B2%E0%B8%A5%E0%B8%97%E0%B8%B5%E0%B9%88_1_%E0%B8%88%E0%B8%B8%E0%B8%A5%E0%B8%A8%E0%B8%B1%E0%B8%81%E0%B8%A3%E0%B8%B2%E0%B8%8A_1166_%E0%B8%9E%E0%B8%B4%E0%B8%A1%E0%B8%9E%E0%B9%8C%E0%B8%95%E0%B8%B2%E0%B8%A1%E0%B8%89%E0%B8%B0%E0%B8%9A%E0%B8%B1%E0%B8%9A%E0%B8%AB%E0%B8%A5%E0%B8%A7%E0%B8%87%E0%B8%95%E0%B8%A3%E0%B8%B2_3_%E0%B8%94%E0%B8%A7%E0%B8%87/%E0%B9%80%E0%B8%A5%E0%B9%88%E0%B8%A1_2/%E0%B8%AA%E0%B9%88%E0%B8%A7%E0%B8%99%E0%B8%97%E0%B8%B5%E0%B9%88_9&amp;action=edit&amp;redlink=1">กฎหมายลักษณอาญาราษฎร์</a></td></tr><tr><td>วันที่ ๔ เมษายน รัตนโกสินทร์ศก ๑๑๘</td><td><a href="https://th.wikisource.org/wiki/%E0%B8%9E%E0%B8%A3%E0%B8%B0%E0%B8%A3%E0%B8%B2%E0%B8%8A%E0%B8%81%E0%B8%B3%E0%B8%AB%E0%B8%99%E0%B8%94%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%82%E0%B9%88%E0%B8%A1%E0%B8%82%E0%B8%B7%E0%B8%99%E0%B8%A5%E0%B9%88%E0%B8%A7%E0%B8%87%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B9%80%E0%B8%A7%E0%B8%93%E0%B8%B5_%E0%B8%A3%E0%B8%B1%E0%B8%95%E0%B8%99%E0%B9%82%E0%B8%81%E0%B8%AA%E0%B8%B4%E0%B8%99%E0%B8%97%E0%B8%A3%E0%B8%A8%E0%B8%81_118">พระราชกำหนดลักษณข่มขืนล่วงประเวณี</a></td></tr><tr><td>วันที่ ๔ เมษายน รัตนโกสินทร์ศก ๑๑๘</td><td><a href="https://th.wikisource.org/wiki/%E0%B8%9E%E0%B8%A3%E0%B8%B0%E0%B8%A3%E0%B8%B2%E0%B8%8A%E0%B8%81%E0%B8%B3%E0%B8%AB%E0%B8%99%E0%B8%94%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AB%E0%B8%A1%E0%B8%B4%E0%B9%88%E0%B8%99%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%A1%E0%B8%B2%E0%B8%97%E0%B8%94%E0%B9%89%E0%B8%A7%E0%B8%A2%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%9E%E0%B8%B9%E0%B8%94%E0%B8%A4%E0%B9%85%E0%B9%80%E0%B8%82%E0%B8%B5%E0%B8%A2%E0%B8%99%E0%B8%96%E0%B9%89%E0%B8%AD%E0%B8%A2%E0%B8%84%E0%B8%B3%E0%B9%80%E0%B8%97%E0%B9%87%E0%B8%88%E0%B8%AD%E0%B8%AD%E0%B8%81%E0%B9%82%E0%B8%86%E0%B8%A9%E0%B8%99%E0%B8%B2%E0%B8%81%E0%B8%B2%E0%B8%A3_%E0%B8%A3%E0%B8%B1%E0%B8%95%E0%B8%99%E0%B9%82%E0%B8%81%E0%B8%AA%E0%B8%B4%E0%B8%99%E0%B8%97%E0%B8%A3%E0%B8%A8%E0%B8%81_118">พระราชกำหนดลักษณหมิ่นประมาท</a></td></tr><tr><td>วันที่ ๒๕ กันยายน รัตนโกสินทร์ศก ๑๑๙</td><td><a href="https://th.wikisource.org/w/index.php?title=%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%81%E0%B8%B2%E0%B8%A8%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%89%E0%B9%89%E0%B8%AD&amp;action=edit&amp;redlink=1">ประกาศลักษณฉ้อ</a></td></tr></tbody></table></figure>
+<!-- /wp:table -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/1">๒๐๖</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/2">๒๐๗</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/3">๒๐๘</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/4">๒๐๙</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/5">๒๑๐</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/5">๒๑๐</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/6">๒๑๑</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/6">๒๑๑</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/7">๒๑๒</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/8">๒๑๓</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/9">๒๑๔</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/10">๒๑๕</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/11">๒๑๖</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/12">๒๑๗</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/13">๒๑๘</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/14">๒๑๙</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/15">๒๒๐</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/16">๒๒๑</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/17">๒๒๒</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/18">๒๒๓</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/19">๒๒๔</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/20">๒๒๕</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/21">๒๒๖</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/22">๒๒๗</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/23">๒๒๘</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/24">๒๒๙</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/24">๒๒๙</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/25">๒๓๐</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/26">๒๓๑</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/27">๒๓๒</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/28">๒๓๓</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/29">๒๓๔</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/30">๒๓๕</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/31">๒๓๖</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/32">๒๓๗</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/33">๒๓๘</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/34">๒๓๙</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/35">๒๔๐</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/36">๒๔๑</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/37">๒๔๒</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/38">๒๔๓</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/39">๒๔๔</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/40">๒๔๕</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/41">๒๔๖</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/42">๒๔๗</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/43">๒๔๘</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/44">๒๔๙</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/45">๒๕๐</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/46">๒๕๑</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/47">๒๕๒</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/48">๒๕๓</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/49">๒๕๔</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/50">๒๕๕</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/51">๒๕๖</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/52">๒๕๗</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/53">๒๕๘</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/54">๒๕๙</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/55">๒๖๐</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/56">๒๖๑</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/57">๒๖๒</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/58">๒๖๓</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/59">๒๖๔</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/60">๒๖๕</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/61">๒๖๖</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/62">๒๖๗</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/63">๒๖๘</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/64">๒๖๙</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/65">๒๗๐</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/66">๒๗๑</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/67">๒๗๒</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/68">๒๗๓</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/69">๒๗๔</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/70">๒๗๕</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/71">๒๗๖</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/72">๒๗๗</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/73">๒๗๘</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/74">๒๗๙</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/75">๒๘๐</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/76">๒๘๑</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/77">๒๘๒</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/78">๒๘๓</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/79">๒๘๔</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/80">๒๘๕</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/81">๒๘๖</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[<a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%3AKot_Mai_2450-04-15.djvu/82">๒๘๗</a>]</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://upload.wikimedia.org/wikipedia/commons/thumb/6/62/PD-icon.svg/60px-PD-icon.svg.png?utm_source=th.wikisource.org&amp;utm_campaign=parser&amp;utm_content=thumbnail" alt=""/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p>งานนี้<strong>ไม่มีลิขสิทธิ์</strong>&nbsp;เพราะเป็นงานตาม<strong>มาตรา 7 (2)</strong>&nbsp;แห่ง<a href="https://th.wikisource.org/wiki/%E0%B8%9E%E0%B8%A3%E0%B8%B0%E0%B8%A3%E0%B8%B2%E0%B8%8A%E0%B8%9A%E0%B8%B1%E0%B8%8D%E0%B8%8D%E0%B8%B1%E0%B8%95%E0%B8%B4%E0%B8%A5%E0%B8%B4%E0%B8%82%E0%B8%AA%E0%B8%B4%E0%B8%97%E0%B8%98%E0%B8%B4%E0%B9%8C_%E0%B8%9E.%E0%B8%A8._2537">พระราชบัญญัติลิขสิทธิ์ พ.ศ. 2537</a>&nbsp;ของประเทศไทย ซึ่งบัญญัติว่า"<strong>มาตรา 7</strong>&nbsp;สิ่งต่อไปนี้ไม่ถือว่าเป็นงานอันมีลิขสิทธิ์ตามพระราชบัญญัตินี้(1)ข่าวประจำวัน และข้อเท็จจริงต่าง ๆ ที่มีลักษณะเป็นเพียงข่าวสาร อันมิใช่งานในแผนกวรรณคดี แผนกวิทยาศาสตร์ หรือแผนกศิลปะ(2)รัฐธรรมนูญ และกฎหมาย(3)ระเบียบ ข้อบังคับ ประกาศ คำสั่ง คำชี้แจง และหนังสือโต้ตอบของกระทรวง ทบวง กรม หรือหน่วยงานอื่นใดของรัฐหรือของท้องถิ่น(4)คำพิพากษา คำสั่ง คำวินิจฉัย และรายงานของทางราชการ(5)คำแปลและการรวบรวมสิ่งต่าง ๆ ตาม (1) ถึง (4) ที่กระทรวง ทบวง กรม หรือหน่วยงานอื่นใดของรัฐหรือของท้องถิ่น จัดทำขึ้น"</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image -->
+<figure class="wp-block-image"><img src="https://upload.wikimedia.org/wikipedia/commons/thumb/8/8f/Emblem_of_Thailand.svg/120px-Emblem_of_Thailand.svg.png?utm_source=th.wikisource.org&amp;utm_campaign=parser&amp;utm_content=thumbnail" alt=""/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%9E%E0%B8%A3%E0%B8%B0%E0%B8%A3%E0%B8%B2%E0%B8%8A%E0%B8%9A%E0%B8%B1%E0%B8%8D%E0%B8%8D%E0%B8%B1%E0%B8%95%E0%B8%B4%E0%B9%81%E0%B8%81%E0%B9%89%E0%B9%84%E0%B8%82%E0%B9%80%E0%B8%9B%E0%B8%A5%E0%B8%B5%E0%B9%88%E0%B8%A2%E0%B8%99%E0%B9%81%E0%B8%9B%E0%B8%A5%E0%B8%87%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2_%E0%B8%A1%E0%B8%B2%E0%B8%95%E0%B8%A3%E0%B8%B2_335_%E0%B8%82%E0%B9%89%E0%B8%AD_2">2453</a>→</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2#top">กลับไปที่ด้านบนของหน้า</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikisource.org/wiki/%E0%B8%9E%E0%B8%B4%E0%B9%80%E0%B8%A8%E0%B8%A9:%E0%B8%AB%E0%B8%A1%E0%B8%A7%E0%B8%94%E0%B8%AB%E0%B8%A1%E0%B8%B9%E0%B9%88">หมวดหมู่</a>:</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:list -->
+<ul class="wp-block-list"><!-- wp:list-item -->
+<li><a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%A1%E0%B8%A7%E0%B8%94%E0%B8%AB%E0%B8%A1%E0%B8%B9%E0%B9%88:%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B9%83%E0%B8%99%E0%B8%9B%E0%B8%B5_%E0%B8%9E.%E0%B8%A8._2450">งานในปี พ.ศ. 2450</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%A1%E0%B8%A7%E0%B8%94%E0%B8%AB%E0%B8%A1%E0%B8%B9%E0%B9%88:%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B9%84%E0%B8%97%E0%B8%A2%E0%B9%83%E0%B8%99%E0%B8%9B%E0%B8%B5_%E0%B8%9E.%E0%B8%A8._2450">กฎหมายไทยในปี พ.ศ. 2450</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%A1%E0%B8%A7%E0%B8%94%E0%B8%AB%E0%B8%A1%E0%B8%B9%E0%B9%88:%E0%B8%A3%E0%B8%B2%E0%B8%8A%E0%B8%81%E0%B8%B4%E0%B8%88%E0%B8%88%E0%B8%B2%E0%B8%99%E0%B8%B8%E0%B9%80%E0%B8%9A%E0%B8%81%E0%B8%A9%E0%B8%B2_%E0%B9%80%E0%B8%A5%E0%B9%88%E0%B8%A1_25">ราชกิจจานุเบกษา เล่ม 25</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://th.wikisource.org/wiki/%E0%B8%AB%E0%B8%A1%E0%B8%A7%E0%B8%94%E0%B8%AB%E0%B8%A1%E0%B8%B9%E0%B9%88:%E0%B8%81%E0%B8%8E%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%B0%E0%B8%AD%E0%B8%B2%E0%B8%8D%E0%B8%B2">กฎหมายลักษณะอ</a>าญา</li>
+<!-- /wp:list-item --></ul>
+<!-- /wp:list -->
+
+<!-- wp:list {"anchor":"footer-icons"} -->
+<ul id="footer-icons" class="wp-block-list"><!-- wp:list-item -->
+<li></li>
+<!-- /wp:list-item --></ul>
+<!-- /wp:list -->
+
+<!-- wp:paragraph -->
+<p>คำสั่งนายกรัฐมนตรี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ที่ ๒/๒๕๕๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>เรื่อง กำหนดมาตรการเพื่อแก้ไขและป้องกันภาวะการขาดแคลนน้ำมันเชื้อเพลิง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>การบริหารราชการในสถานการณ์ฉุกเฉิน พ.ศ. ๒๕๔๘</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>_______________</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ตามที่คณะรัฐมนตรีมีมติเมื่อวันที่ ๑๕ กรกฎาคม พ.ศ. ๒๕๕๑ กำหนดมาตรการช่วยเหลือประชาชน เพื่อบรรเทาความเดือดร้อนในค่าครองชีพจากปัญหาน้ำมันแพง ซึ่งเป็นผลมาจากราคาน้ำมันในตลาดโลก โดยลดอัตราภาษีสรรพสามิตน้ำมันเชื้อเพลิง ซึ่งมีผลทำให้ราคาขายปลีกน้ำมันเชื้อเพลิงลดลง เป็นระยะเวลา ๖ เดือน นับตั้งแต่วันที่ ๒๕ กรกฎาคม พ.ศ. ๒๕๕๑ ถึงวันที่ ๓๑ มกราคม พ.ศ. ๒๕๕๒ การปรับลดหรือเพิ่มอัตราภาษีสรรพสามิตในแต่ละครั้ง จะทำให้มีการขาดทุนในปริมาณน้ำมันเชื้อเพลิงคงเหลือที่ได้มาในราคาก่อนปรับลด หรือมีกำไรในปริมาณน้ำมันเชื้อเพลิงคงเหลือที่ได้มาในราคาก่อนปรับเพิ่ม ซึ่งในกรณีที่ขาดทุนจะทำให้ผู้ค้าน้ำมันและเจ้าของสถานีบริการลดปริมาณการจำหน่ายหรืองดการจำหน่ายเพื่อหลีกเลี่ยงการขาดทุน ทำให้เกิดภาวะการขาดแคลนน้ำมันเชื้อเพลิง ดังนั้น เพื่อป้องกันปัญหาดังกล่าว จึงต้องมีการจ่ายชดเชยผลขาดทุน ในกรณีกลับกันกำไรส่วนเกินที่ผู้ค้าน้ำมันและเจ้าของสถานีบริการได้รับเป็นกำไรส่วนเกินที่มิควรได้ จึงจำเป็นต้องกำหนดให้มีการส่งกำไรดังกล่าวเข้ากองทุนน้ำมันเชื้อเพลิง ซึ่งทำให้กองทุนน้ำมันเชื้อเพลิงที่ต้องจ่ายผลขาดทุนในตอนแรกมีโอกาสได้รับเงินคืนจากช่วงการปรับเพิ่มภาษีสรรพสามิต ทำให้การจ่ายเงินชดเชยครั้งนี้ไม่เป็นภาระค่าใช้จ่ายต่อกองทุนน้ำมันเชื้อเพลิงแต่อย่างใด</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>อาศัยอำนาจตามความในมาตรา ๓ แห่งพระราชกำหนดแก้ไขและป้องกันภาวะการขาดแคลนน้ำมันเชื้อเพลิง พ.ศ. ๒๕๑๖ นายกรัฐมนตรีจึงออกคำสั่งไว้ดังต่อไปนี้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ข้อ ๑&nbsp; ในคำสั่งนี้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>“น้ำมันเชื้อเพลิง” หมายความว่า น้ำมันแก๊สโซฮอล์อี ๑๐ ออกเทน ๙๑ น้ำมันแก๊สโซฮอล์อี ๑๐ ออกเทน ๙๕ น้ำมันแก๊สโซฮอล์อี ๒๐ ออกเทน ๙๕ น้ำมันแก๊สโซฮอล์อี ๘๕ น้ำมันเบนซินพื้นฐานชนิดที่ ๑ และชนิดที่ ๒ น้ำมันดีเซลหมุนเร็วธรรมดา น้ำมันดีเซลหมุนเร็วบี ๕ ซึ่งมีลักษณะและคุณภาพตามที่กรมธุรกิจพลังงานกำหนด และน้ำมันดีเซลพื้นฐาน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>“ผู้ค้าน้ำมัน” หมายความว่า ผู้กระทำการค้าน้ำมันเชื้อเพลิง โดยซื้อ นำเข้ามาในราชอาณาจักรหรือได้มาไม่ว่าด้วยประการใดเพื่อจำหน่าย และให้หมายความรวมถึงผู้ผลิตน้ำมันเชื้อเพลิงด้วย ซึ่งมีปริมาณการค้าน้ำมันเชื้อเพลิงแต่ละชนิดหรือรวมกันทุกชนิดปีละตั้งแต่สามหมื่นเมตริกตันขึ้นไป หรือมีขนาดของถังเก็บน้ำมันเชื้อเพลิงความจุเกินสองแสนลิตรขึ้นไป แต่ทั้งนี้ ไม่รวมถึงผู้ได้รับสัมปทานตามกฎหมายว่าด้วยปิโตรเลียม</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>“สถานีบริการ” หมายความว่า สถานที่สำหรับจำหน่ายน้ำมันเชื้อเพลิงให้แก่ประชาชนโดยวิธีเติมหรือใส่ลงในที่บรรจุน้ำมันเชื้อเพลิงของยานพาหนะ โดยใช้มาตรวัดน้ำมันเชื้อเพลิงตามกฎหมายว่าด้วยมาตราชั่งตวงวัด ที่ติดตั้งไว้เป็นประจำ ซึ่งได้จดทะเบียนเป็นผู้ค้าน้ำมันตามมาตรา ๑๑ แห่งพระราชบัญญัติการค้าน้ำมันเชื้อเพลิง พ.ศ. ๒๕๔๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>“เจ้าของสถานีบริการ” หมายความว่า ผู้มีกรรมสิทธิ์ในสถานีบริการและในกรณีที่เจ้าของสถานีบริการเป็นนิติบุคคลให้ถือว่ากรรมการผู้จัดการ ผู้จัดการหรือบุคคลใดที่รับผิดชอบการดำเนินงานของนิติบุคคลนั้นเป็นเจ้าของสถานีบริการด้วย และในกรณีที่เจ้าของสถานีบริการไม่อยู่หรือไม่อาจปฏิบัติหน้าที่ตามคำสั่งนี้ได้ ให้หมายความรวมถึงพนักงานหรือลูกจ้างที่จัดการดูแลสถานีบริการด้วย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>“ภาษีสรรพสามิต” หมายความว่า อัตราภาษีสรรพสามิตของน้ำมันแก๊สโซฮอล์อี ๑๐ ออกเทน ๙๑ น้ำมันแก๊สโซฮอล์อี ๑๐ ออกเทน ๙๕ น้ำมันแก๊สโซฮอล์อี ๒๐ ออกเทน ๙๕ น้ำมันแก๊สโซฮอล์อี ๘๕ น้ำมันเบนซินพื้นฐานชนิดที่ ๑ และชนิดที่ ๒ น้ำมันดีเซลหมุนเร็วธรรมดา น้ำมันดีเซลหมุนเร็วบี ๕ และน้ำมันดีเซลพื้นฐาน ที่ประกาศโดยกระทรวงการคลัง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>“ประกาศราคาขายปลีก” หมายความว่า ประกาศราคาขายปลีกของสำนักงานนโยบายและแผนพลังงานตามข้อ ๙</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>“ส่วนต่างราคา” หมายความว่า ส่วนต่างของราคาขายปลีกเดิมและราคาใหม่ตามประกาศราคาขายปลีกของสำนักงานนโยบายและแผนพลังงาน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>“สถาบัน” หมายความว่า สถาบันบริหารกองทุนพลังงาน (องค์การมหาชน) ที่จัดตั้งขึ้นตามพระราชกฤษฎีกาจัดตั้งสถาบันบริหารกองทุนพลังงาน (องค์การมหาชน) พ.ศ. ๒๕๔๖</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>“ผู้อำนวยการ” หมายความว่า ผู้อำนวยการสถาบันบริหารกองทุนพลังงาน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>“กองทุน” หมายความว่า กองทุนน้ำมันเชื้อเพลิงที่จัดตั้งขึ้นตามคำสั่งนายกรัฐมนตรี ที่ ๔/๒๕๔๗ เรื่อง กำหนดมาตรการเพื่อแก้ไขและป้องกันภาวะการขาดแคลนน้ำมันเชื้อเพลิง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>“พนักงานเจ้าหน้าที่” หมายความว่า ข้าราชการ ลูกจ้าง และพนักงานราชการของกระทรวงพลังงาน กระทรวงมหาดไทย กระทรวงพาณิชย์ และสำนักงานตำรวจแห่งชาติ ที่ได้รับมอบหมายให้ดำเนินการตามคำสั่งนายกรัฐมนตรีนี้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ข้อ ๒&nbsp; เมื่อมีการประกาศลดภาษีสรรพสามิตของน้ำมันเชื้อเพลิงใช้บังคับตั้งแต่วันที่ ๒๕ กรกฎาคม พ.ศ. ๒๕๕๑ ทำให้เกิดส่วนต่างของราคาขายปลีกน้ำมันเชื้อเพลิง ให้ผู้ค้าน้ำมันและเจ้าของสถานีบริการได้รับเงินชดเชยจากกองทุนในปริมาณน้ำมันเชื้อเพลิงคงเหลือสุทธิ ในเวลา ๒๔.๐๐ นาฬิกา ของวันที่ ๒๔ กรกฎาคม พ.ศ. ๒๕๕๑ คูณด้วยส่วนต่างราคา</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ข้อ ๓&nbsp; เมื่อการเพิ่มภาษีสรรพสามิตของน้ำมันเชื้อเพลิงมีผลใช้บังคับตั้งแต่วันที่ ๑ กุมภาพันธ์ พ.ศ. ๒๕๕๒ ทำให้เกิดส่วนต่างของราคาขายปลีกน้ำมันเชื้อเพลิง ให้ผู้ค้าน้ำมันและเจ้าของสถานีบริการส่งเงินเข้ากองทุนในปริมาณน้ำมันเชื้อเพลิงคงเหลือสุทธิ ในเวลา ๒๔.๐๐ นาฬิกา ของวันก่อนวันที่ราคาขายปลีกใหม่ตามประกาศสำนักงานนโยบายและแผนพลังงานมีผลใช้บังคับ คูณด้วยส่วนต่างราคา</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ถ้าผู้ค้าน้ำมันหรือเจ้าของสถานีบริการรายใดที่ได้รับเงินชดเชยตามข้อ ๒ ไม่ให้ความร่วมมือในการตรวจวัดปริมาณน้ำมันเชื้อเพลิงคงเหลือ หรือปิดคลังน้ำมัน หรือสถานีบริการ หรือกระทำการใด ๆ ทำให้พนักงานเจ้าหน้าที่ไม่สามารถเข้าไปตรวจวัดปริมาณน้ำมันเชื้อเพลิงคงเหลือสุทธิหรือคำนวณเงินส่งเข้ากองทุนตามวรรคหนึ่งได้ ให้ผู้ค้าน้ำมันหรือเจ้าของสถานีบริการมีหน้าที่ส่งเงินเข้ากองทุนในจำนวนเงินที่คำนวณจากปริมาณน้ำมันเชื้อเพลิงคงเหลือสุทธิที่ตรวจวัดได้เมื่อวันที่ ๒๔ กรกฎาคม พ.ศ. ๒๕๕๑ คูณด้วยส่วนต่างราคาตามประกาศราคาขายปลีกตามวรรคหนึ่ง เว้นแต่ผู้ค้าน้ำมันหรือเจ้าของสถานีบริการรายนั้นยังไม่ได้รับเงินชดเชยจากส่วนต่างราคาในการลดภาษีสรรพสามิตเมื่อวันที่ ๒๕ กรกฎาคม พ.ศ. ๒๕๕๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ปริมาณน้ำมันเชื้อเพลิงคงเหลือสุทธิตามวรรคหนึ่ง ไม่รวมถึงน้ำมันเบนซินพื้นฐานชนิดที่ ๑ และชนิดที่ ๒ และน้ำมันดีเซลพื้นฐาน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ค้าน้ำมันที่ได้รับเงินชดเชยจากการปรับลดภาษีสรรพสามิต เมื่อวันที่ ๒๕ กรกฎาคม พ.ศ. ๒๕๕๑ สำหรับน้ำมันเบนซินพื้นฐานชนิดที่ ๑ และชนิดที่ ๒ และน้ำมันดีเซลพื้นฐานไปทั้งจำนวนแต่ยังมีปริมาณน้ำมันดังกล่าวเหลืออยู่ในวันที่ ๓๑ มกราคม พ.ศ. ๒๕๕๒ ให้แจ้งปริมาณคงเหลือต่อกรมธุรกิจพลังงานภายในเจ็ดวันทำการนับแต่วันที่การเพิ่มภาษีสรรพสามิตของน้ำมันเชื้อเพลิงมีผลใช้บังคับเพื่อคำนวณเงินที่ต้องจ่ายคืนกองทุนตามอัตราเงินชดเชยที่ได้รับไป</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ข้อ ๔&nbsp; ให้ผู้อำนวยการมีอำนาจหน้าที่ในการรับและจ่ายเงินจากกองทุนตามคำสั่งนี้ โดยให้มีอำนาจกำหนดระเบียบเพื่อปฏิบัติการให้เป็นไปตามคำสั่งนี้ตามที่เห็นสมควร</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ข้อ ๕&nbsp; เมื่อมีประกาศลดภาษีสรรพสามิตตามข้อ ๒ ให้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑) ผู้ค้าน้ำมันปฏิบัติดังต่อไปนี้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(ก) หยุดขายหรือจำหน่ายน้ำมันเชื้อเพลิงจากคลังน้ำมันเชื้อเพลิง ตั้งแต่เวลา ๒๔.๐๐ นาฬิกา ของวันที่ ๒๔ กรกฎาคม พ.ศ. ๒๕๕๑ จนกว่าพนักงานเจ้าหน้าที่จะได้ไปตรวจสอบปริมาณน้ำมันเชื้อเพลิงคงเหลือแล้ว เว้นแต่อธิบดีกรมธุรกิจพลังงานจะมีเหตุผลสมควรสั่งเป็นอย่างอื่น</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(ข) ตรวจสอบและลงลายมือชื่อรับรองผลการตรวจวัดปริมาณน้ำมันเชื้อเพลิงคงเหลือในแบบตรวจสอบ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(ค) แจ้งปริมาณน้ำมันเชื้อเพลิงที่อยู่ในระหว่างการขนส่ง ที่ซื้อหรือได้จากผู้ผลิตและโรงกลั่นน้ำมันในราชอาณาจักร ที่สั่งหรือนำเข้ามาเพื่อจำหน่ายในราชอาณาจักร รวมทั้งปริมาณน้ำมันเชื้อเพลิงที่ผู้ค้าน้ำมันจ่ายจากคลังน้ำมัน เพื่อส่งไปให้แก่เจ้าของสถานีบริการก่อนเวลา ๒๔.๐๐ นาฬิกา ของวันที่ ๒๔ กรกฎาคม พ.ศ. ๒๕๕๑ และส่งมอบให้แก่เจ้าของสถานีบริการภายหลังเวลาดังกล่าว รวมทั้งน้ำมันเชื้อเพลิงที่รับฝากจากผู้อื่น (ถ้ามี) ต่อกรมธุรกิจพลังงาน กระทรวงพลังงาน อย่างช้าไม่เกินสามวันทำการนับแต่วันที่ ๒๕ กรกฎาคม พ.ศ. ๒๕๕๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒) เจ้าของสถานีบริการ ปฏิบัติดังต่อไปนี้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(ก) หยุดขายหรือจำหน่ายน้ำมันเชื้อเพลิงตั้งแต่เวลา ๒๔.๐๐ นาฬิกา ของวันที่ ๒๔ กรกฎาคม พ.ศ. ๒๕๕๑ จนกว่าพนักงานเจ้าหน้าที่จะได้ไปตรวจสอบปริมาณน้ำมันเชื้อเพลิงคงเหลือแล้ว เว้นแต่อธิบดีกรมธุรกิจพลังงานจะมีเหตุผลสมควรสั่งเป็นอย่างอื่น</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(ข) ตรวจสอบและลงลายมือชื่อรับรองผลการตรวจวัดปริมาณน้ำมันเชื้อเพลิงคงเหลือในแบบตรวจสอบ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(ค) แจ้งปริมาณน้ำมันเชื้อเพลิงที่อยู่ในระหว่างการขนส่ง ที่ซื้อหรือได้จากผู้ค้าน้ำมันก่อนเวลา ๒๔.๐๐ นาฬิกา ของวันที่ ๒๔ กรกฎาคม พ.ศ. ๒๕๕๑ และมาถึงสถานีบริการภายหลังเวลาดังกล่าว รวมทั้งน้ำมันเชื้อเพลิงที่รับฝากจากผู้อื่น (ถ้ามี) ต่อกรมธุรกิจพลังงาน กระทรวงพลังงานอย่างช้าไม่เกินสามวันทำการนับแต่วันที่ ๒๕ กรกฎาคม พ.ศ. ๒๕๕๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๓) กรมธุรกิจพลังงาน แจ้งเป็นหนังสือภายในเก้าสิบวันนับแต่วันที่ ๒๕ กรกฎาคม พ.ศ. ๒๕๕๑ ให้ผู้ค้าน้ำมันและเจ้าของสถานีบริการทราบจำนวนเงินชดเชยที่พึงได้รับจากกองทุนซึ่งคำนวณจากปริมาณน้ำมันเชื้อเพลิงคงเหลือสุทธิที่ได้เสียภาษีสรรพสามิตแล้วของน้ำมันเชื้อเพลิงแต่ละชนิด คูณด้วยส่วนต่างราคาพร้อมกับส่งสำเนาหนังสือให้สถาบันทราบ และให้ผู้ค้าน้ำมันหรือเจ้าของสถานีบริการดังกล่าวนำหนังสือของกรมธุรกิจพลังงานไปขอรับเงินชดเชยจากสถาบัน ภายในเก้าสิบวันนับแต่วันที่ลงในหนังสือดังกล่าว หากพ้นกำหนดระยะเวลานี้แล้ว ให้ถือว่าผู้ค้าน้ำมันหรือเจ้าของสถานีบริการรายนั้นไม่ประสงค์จะขอรับเงินชดเชย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ข้อ ๖&nbsp; เมื่อมีประกาศราคาขายปลีกจากการเพิ่มภาษีสรรพสามิตตามข้อ ๓ ให้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑) ผู้ค้าน้ำมันปฏิบัติดังต่อไปนี้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(ก) หยุดขายหรือจำหน่ายน้ำมันเชื้อเพลิงจากคลังน้ำมันเชื้อเพลิง ตั้งแต่เวลา ๒๔.๐๐ นาฬิกาของวันก่อนวันที่ราคาขายปลีกใหม่มีผลใช้บังคับ จนกว่าพนักงานเจ้าหน้าที่จะได้ไปตรวจสอบปริมาณน้ำมันเชื้อเพลิงคงเหลือแล้ว เว้นแต่อธิบดีกรมธุรกิจพลังงานจะมีเหตุผลสมควรสั่งเป็นอย่างอื่น</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(ข) ให้ความร่วมมือและอำนวยความสะดวกแก่พนักงานเจ้าหน้าที่ในการตรวจวัดปริมาณน้ำมันเชื้อเพลิงคงเหลือ รวมทั้งตรวจสอบและลงลายมือชื่อรับรองผลการตรวจวัดปริมาณน้ำมันเชื้อเพลิงคงเหลือในแบบตรวจสอบ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(ค) แจ้งปริมาณน้ำมันเชื้อเพลิงที่อยู่ในระหว่างการขนส่ง ที่ซื้อหรือได้จากผู้ผลิตและโรงกลั่นน้ำมันในราชอาณาจักร ที่สั่งหรือนำเข้ามาเพื่อจำหน่ายในราชอาณาจักร รวมทั้งปริมาณน้ำมันเชื้อเพลิงที่ผู้ค้าน้ำมันจ่ายจากคลังน้ำมัน เพื่อส่งไปให้แก่เจ้าของสถานีบริการก่อนเวลา ๒๔.๐๐ นาฬิกา ของวันก่อนวันที่ราคาขายปลีกใหม่มีผลใช้บังคับ และส่งมอบให้แก่เจ้าของสถานีบริการภายหลังเวลาดังกล่าวรวมทั้งน้ำมันเชื้อเพลิงที่รับฝากจากผู้อื่น (ถ้ามี) ต่อกรมธุรกิจพลังงาน กระทรวงพลังงาน อย่างช้าไม่เกินสามวันทำการนับแต่วันที่ราคาขายปลีกใหม่มีผลใช้บังคับ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒) เจ้าของสถานีบริการปฏิบัติดังต่อไปนี้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(ก) หยุดขายหรือจำหน่ายน้ำมันเชื้อเพลิงตั้งแต่เวลา ๒๔.๐๐ นาฬิกา ของวันก่อนวันที่ราคาขายปลีกใหม่มีผลใช้บังคับ จนกว่าพนักงานเจ้าหน้าที่จะได้ไปตรวจสอบปริมาณน้ำมันเชื้อเพลิงคงเหลือแล้ว เว้นแต่อธิบดีกรมธุรกิจพลังงานจะมีเหตุผลสมควรสั่งเป็นอย่างอื่น</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(ข) ให้ความร่วมมือและอำนวยความสะดวกแก่พนักงานเจ้าหน้าที่ในการตรวจวัดปริมาณน้ำมันเชื้อเพลิงคงเหลือ รวมทั้งตรวจสอบและลงลายมือชื่อรับรองผลการตรวจวัดปริมาณน้ำมันเชื้อเพลิงคงเหลือในแบบตรวจสอบ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(ค) แจ้งปริมาณน้ำมันเชื้อเพลิงที่อยู่ในระหว่างการขนส่ง ที่ซื้อหรือได้จากผู้ค้าน้ำมันก่อนเวลา ๒๔.๐๐ นาฬิกา ของวันก่อนวันที่ราคาขายปลีกใหม่มีผลใช้บังคับ และมาถึงสถานีบริการภายหลังเวลาดังกล่าว รวมทั้งน้ำมันเชื้อเพลิงที่รับฝากจากผู้อื่น (ถ้ามี) ต่อกรมธุรกิจพลังงานกระทรวงพลังงาน อย่างช้าไม่เกินสามวันทำการนับแต่วันที่ราคาขายปลีกใหม่มีผลใช้บังคับ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๓) กรมธุรกิจพลังงานแจ้งเป็นหนังสือภายในเก้าสิบวันนับแต่วันที่ราคาขายปลีกใหม่มีผลใช้บังคับ ให้ผู้ค้าน้ำมันและเจ้าของสถานีบริการทราบจำนวนเงินที่เรียกเก็บเข้ากองทุนซึ่งคำนวณจากปริมาณน้ำมันเชื้อเพลิงคงเหลือสุทธิที่ได้เสียภาษีสรรพสามิตแล้วของน้ำมันเชื้อเพลิงแต่ละชนิดคูณด้วยส่วนต่างราคา พร้อมกับส่งสำเนาหนังสือให้สถาบันทราบ และให้ผู้ค้าน้ำมันหรือเจ้าของสถานีบริการดังกล่าวนำหนังสือของกรมธุรกิจพลังงานไปจ่ายเงินเข้ากองทุนต่อสถาบัน ภายในเก้าสิบวันนับแต่วันที่ลงในหนังสือดังกล่าว</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ข้อ ๗&nbsp; การคำนวณปริมาณน้ำมันเชื้อเพลิงคงเหลือสุทธิตามข้อ ๕ และข้อ ๖ ให้เป็นไปตามหลักเกณฑ์และวิธีการที่อธิบดีกรมธุรกิจพลังงานกำหนด</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ข้อ ๘&nbsp; ในกรณีที่ต้องส่งเงินเข้ากองทุนตามคำสั่งนี้ หากผู้มีหน้าที่ต้องส่งเงินไม่ส่งเงินให้สถาบัน ส่งเงินให้สถาบันไม่ครบถ้วนตามจำนวนที่ต้องส่ง หรือไม่ส่งเงินคืนสถาบันภายในเวลาที่กำหนด ให้กรมธุรกิจพลังงานส่งเรื่องให้สำนักงานปลัดกระทรวงพลังงานพิจารณาดำเนินคดีตามกฎหมาย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ในกรณีที่ผู้มีหน้าที่ต้องส่งเงินเข้ากองทุนไม่ส่งเงินให้สถาบันหรือส่งขาดหรือไม่ส่งเงินคืนสถาบัน หรือส่งเงินเมื่อพ้นระยะเวลาที่กำหนด ไม่ว่าจะถูกดำเนินคดีตามวรรคหนึ่งหรือไม่ ให้จ่ายเงินเพิ่มอีกในอัตราร้อยละหกต่อเดือนของจำนวนเงินดังกล่าว ทั้งนี้ นับตั้งแต่วันที่ครบกำหนดส่งและให้ถือว่าเงินเพิ่มนี้เป็นเงินที่ต้องส่งเข้ากองทุนด้วย</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ข้อ ๙&nbsp; เมื่อมีประกาศลดภาษีสรรพสามิตตามข้อ ๒ หรือเพิ่มภาษีสรรพสามิตตามข้อ ๓ ให้สำนักงานนโยบายและแผนพลังงานประกาศราคาขายปลีกใหม่ซึ่งเปลี่ยนแปลงไปตามภาษีสรรพสามิตและภาษีอื่น ๆ ที่เกี่ยวข้องรวมทั้งกำหนดเวลาที่ราคาขายปลีกใหม่ใช้บังคับ เพื่อให้หน่วยงานที่เกี่ยวข้อง ผู้ค้าน้ำมันและเจ้าของสถานีบริการ รับทราบและปฏิบัติตามคำสั่งนายกรัฐมนตรีฉบับนี้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ประกาศราคาขายปลีกใหม่ตามวรรคหนึ่ง สำนักงานนโยบายและแผนพลังงานอาจประกาศในคราวเดียวหรือหลายคราวก็ได้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ข้อ ๑๐&nbsp; เมื่อมีประกาศราคาขายปลีกใหม่ตามข้อ ๙ ให้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑) กระทรวงพลังงาน ปฏิบัติดังต่อไปนี้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(ก) สั่งให้กรมธุรกิจพลังงาน สำนักงานพลังงานภูมิภาค และพลังงานจังหวัดส่งเจ้าหน้าที่ไปตรวจสอบปริมาณน้ำมันเชื้อเพลิงคงเหลือ ณ คลังน้ำมันและสถานีบริการในกรุงเทพมหานคร และในจังหวัดที่รับผิดชอบ ตั้งแต่เวลา ๒๔.๐๐ นาฬิกา ของวันก่อนวันที่ประกาศราคาขายปลีกใหม่ใช้บังคับ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(ข) สั่งให้สำนักงานพลังงานภูมิภาค และพลังงานจังหวัด มีหน้าที่รวบรวมผลการตรวจสอบปริมาณน้ำมันเชื้อเพลิงคงเหลือที่ได้ปฏิบัติงานร่วมกับหน่วยงานอื่นส่งให้กรมธุรกิจพลังงานอย่างช้าไม่เกินสามวันทำการนับแต่วันที่ประกาศราคาขายปลีกใหม่ใช้บังคับ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒) กระทรวงมหาดไทย ปฏิบัติดังต่อไปนี้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>สั่งให้ผู้ว่าราชการจังหวัดรับผิดชอบและสั่งการให้นายอำเภอท้องที่ไปตรวจสอบปริมาณน้ำมันเชื้อเพลิงคงเหลือ ณ สถานีบริการในจังหวัดที่รับผิดชอบ ร่วมกับสำนักงานพลังงานภูมิภาคพลังงานจังหวัด สำนักงานการค้าภายในจังหวัด กองบังคับการตำรวจภูธรจังหวัด ตั้งแต่เวลา ๒๔.๐๐ นาฬิกา ของวันก่อนวันที่ประกาศราคาขายปลีกใหม่ใช้บังคับ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๓) กระทรวงพาณิชย์ ปฏิบัติดังต่อไปนี้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(ก) สั่งให้กรมการค้าภายในส่งเจ้าหน้าที่สำนักชั่งตวงวัด ไปตรวจสอบปริมาณน้ำมันเชื้อเพลิงคงเหลือ ณ สถานีบริการในเขตกรุงเทพมหานคร ร่วมกับตำรวจนครบาลท้องที่ กรมธุรกิจพลังงาน ตั้งแต่เวลา ๒๔.๐๐ นาฬิกา ของวันก่อนวันที่ประกาศราคาขายปลีกใหม่ใช้บังคับ และส่งผลการตรวจสอบปริมาณน้ำมันเชื้อเพลิงคงเหลือไปยังกรมธุรกิจพลังงาน กระทรวงพลังงาน ตามแบบที่กำหนด อย่างช้าไม่เกินสามวันทำการนับแต่วันที่ประกาศราคาขายปลีกใหม่ใช้บังคับ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(ข) สั่งให้สำนักงานการค้าภายในจังหวัด ส่งเจ้าหน้าที่ไปตรวจสอบปริมาณน้ำมันเชื้อเพลิงคงเหลือ ณ สถานีบริการน้ำมันในจังหวัดที่รับผิดชอบ ร่วมกับกองบังคับการตำรวจภูธรจังหวัด นายอำเภอท้องที่ สำนักงานพลังงานภูมิภาค และพลังงานจังหวัด ตั้งแต่เวลา ๒๔.๐๐ นาฬิกา ของวันก่อนวันที่ประกาศราคาขายปลีกใหม่ใช้บังคับ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๔) สำนักงานตำรวจแห่งชาติ ปฏิบัติดังต่อไปนี้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(ก) สั่งให้เจ้าหน้าที่ตำรวจนครบาลท้องที่ ไปตรวจสอบปริมาณน้ำมันเชื้อเพลิงคงเหลือ ณ สถานีบริการ ร่วมกับกรมธุรกิจพลังงาน สำนักชั่งตวงวัด กรมการค้าภายใน ในเขตกรุงเทพมหานคร ตั้งแต่เวลา ๒๔.๐๐ นาฬิกา ของวันก่อนวันที่ประกาศราคาขายปลีกใหม่ใช้บังคับและส่งผลการตรวจสอบน้ำมันเชื้อเพลิงคงเหลือไปยังกรมธุรกิจพลังงาน กระทรวงพลังงาน ตามแบบที่กำหนด อย่างช้าไม่เกินสามวันทำการนับแต่วันที่ประกาศราคาขายปลีกใหม่ใช้บังคับ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(ข) สั่งให้กองบังคับการตำรวจภูธรจังหวัด ส่งเจ้าหน้าที่ไปตรวจสอบปริมาณน้ำมันเชื้อเพลิงคงเหลือ ณ สถานีบริการน้ำมันในจังหวัดที่รับผิดชอบร่วมกับนายอำเภอท้องที่ สำนักงานพลังงานภูมิภาค พลังงานจังหวัด และสำนักงานการค้าภายในจังหวัด ตั้งแต่เวลา ๒๔.๐๐ นาฬิกา ของวันก่อนวันที่ประกาศราคาขายปลีกใหม่ใช้บังคับ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ข้อ ๑๑&nbsp; ในกรณีที่มีปัญหาในการตีความเกี่ยวกับการปฏิบัติตามคำสั่งนี้ ให้ผู้ซึ่งเกี่ยวข้องนำเสนอคณะกรรมการบริหารนโยบายพลังงาน (กบง.) พิจารณาวินิจฉัยและให้ถือว่าคำวินิจฉัยดังกล่าวเป็นที่สุด</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ข้อ ๑๒&nbsp; คำสั่งนี้ให้ใช้บังคับตั้งแต่วันที่ ๒๒ กรกฎาคม พ.ศ. ๒๕๕๑ เป็นต้นไป</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>สั่ง ณ วันที่ ๒๒ กรกฎาคม พ.ศ. ๒๕๕๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>สมัคร สุนทรเวช</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>นายกรัฐมนตรี</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:heading {"level":1} -->
+<h1 class="wp-block-heading">คำสั่งการไฟฟ้าส่วนภูมิภาค ที่ อ.๕/๒๕๕๑</h1>
+<!-- /wp:heading -->
+
+<!-- wp:paragraph -->
+<p>คำสั่งการไฟฟ้าส่วนภูมิภาค​ สาขาเชียงคาน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ที่ อ.๕/๒๕๕๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>เรื่อง อัตราค่าธรรมเนียมการใช้ไฟฟ้าและค่าบริการ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ด้วยคณะกรรมการการไฟฟ้าส่วนภูมิภาค ได้อนุมัติในการประชุม ครั้งที่ ๓/๒๕๕๑ เมื่อวันที่ ๒๔ มีนาคม ๒๕๕๑ ให้แก้ไขคำสั่งการไฟฟ้าส่วนภูมิภาค ที่ อ. ๕/๒๕๒๓ เรื่อง อัตราค่าธรรมเนียมการใช้ไฟฟ้าและค่าบริการในส่วนของค่าตรวจสอบการติดตั้งอุปกรณ์ไฟฟ้าภายนอกอาคารข้อ ๒.๒.๓ และข้อ ๒.๒.๔ เพื่อให้สะท้อนถึงต้นทุน และสอดคล้องกับสภาวการณ์ปัจจุบันในการดำเนินงานของการไฟฟ้าส่วนภูมิภาค</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ฉะนั้น อาศัยอำนาจตามความในมาตรา ๒๓ (๕) แห่งพระราชบัญญัติการไฟฟ้าส่วนภูมิภาค พ.ศ. ๒๕๐๓ จึงออกคำสั่งให้ดำเนินการ ดังนี้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>๑. ให้ยกเลิกค่าตรวจสอบการติดตั้งอุปกรณ์ไฟฟ้าภายนอกอาคารข้อ ๒.๒.๓ และข้อ ๒.๒.๔ ตามคำสั่ง กฟภ. ที่ อ. ๕/๒๕๒๓ สั่ง ณ วันที่ ๑๖ ธันวาคม ๒๕๒๓</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>๒. ให้เปลี่ยนแปลงการคิดค่าใช้จ่ายในการสำรวจออกแบบ จัดทำแผนผัง ประมาณการและค่าตรวจสอบแบบใหม่ ดังต่อไปนี้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ข้อ ๒.๒.๓ ผู้ที่ขอให้การไฟฟ้าส่วนภูมิภาค สำรวจ ออกแบบ จัดทำแผนผัง ประมาณการค่าใช้จ่ายขยายเขตระบบจำหน่าย ให้คิดค่าใช้จ่ายในอัตรา ๑% ของเงินลงทุนทั้งหมด แต่จะต้องไม่น้อยกว่า ๕,๐๐๐ บาท ในวันที่ยื่นคำร้องขอขยายเขต โดยแยกเป็น ๒ กรณี ดังนี้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๑) กรณีให้การไฟฟ้าส่วนภูมิภาค ก่อสร้าง และผู้ใช้ไฟฟ้าชำระเงินค่าขยายเขตภายในกำหนดยืนราคา ให้นำเงินค่าสำรวจ ออกแบบ ขั้นต่ำ ๕,๐๐๐ บาท มาหักจากค่าขยายเขตหากผู้ขอใช้ไฟฟ้านำแผนผัง ประมาณการที่การไฟฟ้าส่วนภูมิภาค ออกแบบ ไปดำเนินการก่อสร้างเอง การไฟฟ้าส่วนภูมิภาคจะเรียกเก็บค่าใช้จ่ายเพิ่มในอัตรา ๑% ของเงินลงทุนทั้งหมด เฉพาะส่วนที่เกิน ๕,๐๐๐ บาท</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>(๒) กรณีที่ผู้ใช้ไฟฟ้าสำรวจออกแบบเอง ให้เก็บค่าตรวจสอบแบบ ๕,๐๐๐ บาท ในวันที่ยื่นคำร้องขอขยายเขต</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>สำหรับที่ดินจัดสรรให้ใช้หลักเกณฑ์เช่นเดียวกัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ทั้งนี้ ส่วนราชการ หน่วยงานตามกฎหมายว่าด้วยระเบียบบริหารราชการส่วนท้องถิ่น หรือหน่วยงานที่กฎหมายบัญญัติให้มีฐานะเป็นส่วนราชการส่วนท้องถิ่น องค์การของรัฐรวมทั้งรัฐวิสาหกิจ ศาสนสถาน ไม่ต้องเรียกเก็บค่าสำรวจออกแบบขั้นต่ำในวันที่ยื่นคำร้องขอขยายเขตแต่ให้แจ้งยอดค่าใช้จ่ายในการสำรวจ ออกแบบทั้งหมดไปพร้อมกับค่าใช้จ่ายในการขยายเขตระบบจำหน่าย ส่วนขั้นตอนอื่นๆ ให้ถือปฏิบัติตามแนวทางเดียวกัน</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ทั้งนี้ ให้ถือปฏิบัติตั้งแต่วันที่ ๑ กรกฎาคม ๒๕๕๑ เป็นต้นไป</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>สั่ง ณ วันที่ ๒๗ พฤษภาคม พ.ศ. ๒๕๕๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>อดิศร เกียรติโชควิวัฒน์</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ผู้ว่าการ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>**ผู้อนุมัติลงลายมือและเช็นกำกับเอกสารทุกฉบับก่อนส่ง​ ตำรวจภาคส่วน​ สำนักงาน.ปปส.ภาคส่วน​ เท่านั้น แจ้งให้ทราบ​ ครับ​ 2569</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>[๑] ราชกิจจานุเบกษา เล่ม ๑๒๕/ตอนพิเศษ ๑๑๒ ง/หน้า ๓๗/๔ กรกฎาคม ๒๕๕๑</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:list {"anchor":"menuLeft"} -->
+<ul id="menuLeft" class="wp-block-list"><!-- wp:list-item -->
+<li><a href="https://infocenter.oic.go.th/PEA%20%E0%B8%AA%E0%B8%B2%E0%B8%82%E0%B8%B2%E0%B8%AD%E0%B8%B3%E0%B9%80%E0%B8%A0%E0%B8%AD%E0%B9%80%E0%B8%8A%E0%B8%B5%E0%B8%A2%E0%B8%87%E0%B8%84%E0%B8%B2%E0%B8%99/index.php?gid=0&amp;mid=1012">ข่าวสารจาก สขร.</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://infocenter.oic.go.th/PEA%20%E0%B8%AA%E0%B8%B2%E0%B8%82%E0%B8%B2%E0%B8%AD%E0%B8%B3%E0%B9%80%E0%B8%A0%E0%B8%AD%E0%B9%80%E0%B8%8A%E0%B8%B5%E0%B8%A2%E0%B8%87%E0%B8%84%E0%B8%B2%E0%B8%99/topic.php?gid=0&amp;mid=1058">ดัชนีรวม / ดัชนีประจำแฟ้ม</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://infocenter.oic.go.th/PEA%20%E0%B8%AA%E0%B8%B2%E0%B8%82%E0%B8%B2%E0%B8%AD%E0%B8%B3%E0%B9%80%E0%B8%A0%E0%B8%AD%E0%B9%80%E0%B8%8A%E0%B8%B5%E0%B8%A2%E0%B8%87%E0%B8%84%E0%B8%B2%E0%B8%99/topic.php?p=2&amp;gid=34007&amp;mid=1022#">ข้อมูลข่าวสารตามมาตรา 7</a><!-- wp:list -->
+<ul class="wp-block-list"><!-- wp:list-item -->
+<li><a href="https://infocenter.oic.go.th/PEA%20%E0%B8%AA%E0%B8%B2%E0%B8%82%E0%B8%B2%E0%B8%AD%E0%B8%B3%E0%B9%80%E0%B8%A0%E0%B8%AD%E0%B9%80%E0%B8%8A%E0%B8%B5%E0%B8%A2%E0%B8%87%E0%B8%84%E0%B8%B2%E0%B8%99/topic.php?gid=0&amp;mid=1014">มาตรา 7 (1) โครงสร้างและการจัดองค์กรในการดำเนินงาน</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://infocenter.oic.go.th/PEA%20%E0%B8%AA%E0%B8%B2%E0%B8%82%E0%B8%B2%E0%B8%AD%E0%B8%B3%E0%B9%80%E0%B8%A0%E0%B8%AD%E0%B9%80%E0%B8%8A%E0%B8%B5%E0%B8%A2%E0%B8%87%E0%B8%84%E0%B8%B2%E0%B8%99/topic.php?gid=0&amp;mid=1015">มาตรา 7 (2) สรุปอำนาจหน้าที่ที่สำคัญและวิธีการดำเนินงาน</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://infocenter.oic.go.th/PEA%20%E0%B8%AA%E0%B8%B2%E0%B8%82%E0%B8%B2%E0%B8%AD%E0%B8%B3%E0%B9%80%E0%B8%A0%E0%B8%AD%E0%B9%80%E0%B8%8A%E0%B8%B5%E0%B8%A2%E0%B8%87%E0%B8%84%E0%B8%B2%E0%B8%99/topic.php?gid=0&amp;mid=1016">มาตรา 7 (3) สถานที่ติดต่อเพื่อขอรับข้อมูลข่าวสาร</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://infocenter.oic.go.th/PEA%20%E0%B8%AA%E0%B8%B2%E0%B8%82%E0%B8%B2%E0%B8%AD%E0%B8%B3%E0%B9%80%E0%B8%A0%E0%B8%AD%E0%B9%80%E0%B8%8A%E0%B8%B5%E0%B8%A2%E0%B8%87%E0%B8%84%E0%B8%B2%E0%B8%99/topic.php?gid=0&amp;mid=1017">มาตรา 7 (4) กฎ มติ ครม. ข้อบังคับ คำสั่ง หนังสือเวียน ระเบียบ เฉพาะที่ให้มีขึ้นโดยมีสภาพอย่างกฎเพื่อให้มีผลเป็นการทั่วไปต่อเอกชน</a></li>
+<!-- /wp:list-item --></ul>
+<!-- /wp:list --></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://infocenter.oic.go.th/PEA%20%E0%B8%AA%E0%B8%B2%E0%B8%82%E0%B8%B2%E0%B8%AD%E0%B8%B3%E0%B9%80%E0%B8%A0%E0%B8%AD%E0%B9%80%E0%B8%8A%E0%B8%B5%E0%B8%A2%E0%B8%87%E0%B8%84%E0%B8%B2%E0%B8%99/topic.php?p=2&amp;gid=34007&amp;mid=1022#">ข้อมูลข่าวสารตามมาตรา 9</a><!-- wp:list -->
+<ul class="wp-block-list"><!-- wp:list-item -->
+<li><a href="https://infocenter.oic.go.th/PEA%20%E0%B8%AA%E0%B8%B2%E0%B8%82%E0%B8%B2%E0%B8%AD%E0%B8%B3%E0%B9%80%E0%B8%A0%E0%B8%AD%E0%B9%80%E0%B8%8A%E0%B8%B5%E0%B8%A2%E0%B8%87%E0%B8%84%E0%B8%B2%E0%B8%99/topic.php?gid=0&amp;mid=1019">มาตรา 9 (1) ผลการพิจารณา</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://infocenter.oic.go.th/PEA%20%E0%B8%AA%E0%B8%B2%E0%B8%82%E0%B8%B2%E0%B8%AD%E0%B8%B3%E0%B9%80%E0%B8%A0%E0%B8%AD%E0%B9%80%E0%B8%8A%E0%B8%B5%E0%B8%A2%E0%B8%87%E0%B8%84%E0%B8%B2%E0%B8%99/topic.php?gid=0&amp;mid=1020">มาตรา 9 (2) นโยบายหรือการตีความที่ไม่เข้าข่ายต้องลงพิมพ์ในราชกิจจานุเบกษา ตามมาตรา 7 (4)</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://infocenter.oic.go.th/PEA%20%E0%B8%AA%E0%B8%B2%E0%B8%82%E0%B8%B2%E0%B8%AD%E0%B8%B3%E0%B9%80%E0%B8%A0%E0%B8%AD%E0%B9%80%E0%B8%8A%E0%B8%B5%E0%B8%A2%E0%B8%87%E0%B8%84%E0%B8%B2%E0%B8%99/topic.php?gid=0&amp;mid=1021">มาตรา 9 (3) แผนงาน โครงการ งบประมาณรายจ่ายประจำปี</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://infocenter.oic.go.th/PEA%20%E0%B8%AA%E0%B8%B2%E0%B8%82%E0%B8%B2%E0%B8%AD%E0%B8%B3%E0%B9%80%E0%B8%A0%E0%B8%AD%E0%B9%80%E0%B8%8A%E0%B8%B5%E0%B8%A2%E0%B8%87%E0%B8%84%E0%B8%B2%E0%B8%99/topic.php?gid=0&amp;mid=1022">มาตรา 9 (4) คู่มือหรือคำสั่งเกี่ยวกับวิธีปฏิบัติงานของเจ้าหน้าที่ของรัฐ ซึ่งมีผลกระทบถึงสิทธิหน้าที่ของเอกชน</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://infocenter.oic.go.th/PEA%20%E0%B8%AA%E0%B8%B2%E0%B8%82%E0%B8%B2%E0%B8%AD%E0%B8%B3%E0%B9%80%E0%B8%A0%E0%B8%AD%E0%B9%80%E0%B8%8A%E0%B8%B5%E0%B8%A2%E0%B8%87%E0%B8%84%E0%B8%B2%E0%B8%99/topic.php?gid=0&amp;mid=1023">มาตรา 9 (5) สิ่งพิมพ์ที่อ้างถึงตาม ม. 7 วรรคสอง</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://infocenter.oic.go.th/PEA%20%E0%B8%AA%E0%B8%B2%E0%B8%82%E0%B8%B2%E0%B8%AD%E0%B8%B3%E0%B9%80%E0%B8%A0%E0%B8%AD%E0%B9%80%E0%B8%8A%E0%B8%B5%E0%B8%A2%E0%B8%87%E0%B8%84%E0%B8%B2%E0%B8%99/topic.php?gid=0&amp;mid=1024">มาตรา 9 (6) สัญญาสัมปทาน สัญญาผูกขาดตัดตอน / สัญญาร่วมทุนกับเอกชนในการจัดทำบริการสาธารณะ</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://infocenter.oic.go.th/PEA%20%E0%B8%AA%E0%B8%B2%E0%B8%82%E0%B8%B2%E0%B8%AD%E0%B8%B3%E0%B9%80%E0%B8%A0%E0%B8%AD%E0%B9%80%E0%B8%8A%E0%B8%B5%E0%B8%A2%E0%B8%87%E0%B8%84%E0%B8%B2%E0%B8%99/topic.php?gid=0&amp;mid=1025">มาตรา 9 (7) มติคณะรัฐมนตรี หรือมติคณะกรรมการที่แต่งตั้งโดยกฎหมาย หรือโดยมติคณะรัฐมนตรี</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://infocenter.oic.go.th/PEA%20%E0%B8%AA%E0%B8%B2%E0%B8%82%E0%B8%B2%E0%B8%AD%E0%B8%B3%E0%B9%80%E0%B8%A0%E0%B8%AD%E0%B9%80%E0%B8%8A%E0%B8%B5%E0%B8%A2%E0%B8%87%E0%B8%84%E0%B8%B2%E0%B8%99/topic.php?gid=0&amp;mid=1026">มาตรา 9 (8) ข้อมูลข่าวสารอื่นที่คณะกรรมการกำหนด</a></li>
+<!-- /wp:list-item --></ul>
+<!-- /wp:list --></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://infocenter.oic.go.th/PEA%20%E0%B8%AA%E0%B8%B2%E0%B8%82%E0%B8%B2%E0%B8%AD%E0%B8%B3%E0%B9%80%E0%B8%A0%E0%B8%AD%E0%B9%80%E0%B8%8A%E0%B8%B5%E0%B8%A2%E0%B8%87%E0%B8%84%E0%B8%B2%E0%B8%99/topic.php?p=2&amp;gid=34007&amp;mid=1022#">การประเมินผลการให้บริการศูนย์ฯ / ถาม-ตอบ</a><!-- wp:list -->
+<ul class="wp-block-list"><!-- wp:list-item -->
+<li><a href="https://infocenter.oic.go.th/PEA%20%E0%B8%AA%E0%B8%B2%E0%B8%82%E0%B8%B2%E0%B8%AD%E0%B8%B3%E0%B9%80%E0%B8%A0%E0%B8%AD%E0%B9%80%E0%B8%8A%E0%B8%B5%E0%B8%A2%E0%B8%87%E0%B8%84%E0%B8%B2%E0%B8%99/questionnaire.php">แบบฟอร์มสำรวจความพึงพอใจ</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://infocenter.oic.go.th/PEA%20%E0%B8%AA%E0%B8%B2%E0%B8%82%E0%B8%B2%E0%B8%AD%E0%B8%B3%E0%B9%80%E0%B8%A0%E0%B8%AD%E0%B9%80%E0%B8%8A%E0%B8%B5%E0%B8%A2%E0%B8%87%E0%B8%84%E0%B8%B2%E0%B8%99/survey-result.php">สรุปผลความพึงพอใจ</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://infocenter.oic.go.th/PEA%20%E0%B8%AA%E0%B8%B2%E0%B8%82%E0%B8%B2%E0%B8%AD%E0%B8%B3%E0%B9%80%E0%B8%A0%E0%B8%AD%E0%B9%80%E0%B8%8A%E0%B8%B5%E0%B8%A2%E0%B8%87%E0%B8%84%E0%B8%B2%E0%B8%99/visitor-detail.php">สถิติผู้เข้าใช้บริการ</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://infocenter.oic.go.th/PEA%20%E0%B8%AA%E0%B8%B2%E0%B8%82%E0%B8%B2%E0%B8%AD%E0%B8%B3%E0%B9%80%E0%B8%A0%E0%B8%AD%E0%B9%80%E0%B8%8A%E0%B8%B5%E0%B8%A2%E0%B8%87%E0%B8%84%E0%B8%B2%E0%B8%99/qa.php?gid=0&amp;mid=1091">กระดานถาม-ตอบ / ข้อคิดเห็น</a></li>
+<!-- /wp:list-item --></ul>
+<!-- /wp:list --></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://infocenter.oic.go.th/PEA%20%E0%B8%AA%E0%B8%B2%E0%B8%82%E0%B8%B2%E0%B8%AD%E0%B8%B3%E0%B9%80%E0%B8%A0%E0%B8%AD%E0%B9%80%E0%B8%8A%E0%B8%B5%E0%B8%A2%E0%B8%87%E0%B8%84%E0%B8%B2%E0%B8%99/topic.php?p=2&amp;gid=34007&amp;mid=1022#">บทความ สขร.</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://infocenter.oic.go.th/PEA%20%E0%B8%AA%E0%B8%B2%E0%B8%82%E0%B8%B2%E0%B8%AD%E0%B8%B3%E0%B9%80%E0%B8%A0%E0%B8%AD%E0%B9%80%E0%B8%8A%E0%B8%B5%E0%B8%A2%E0%B8%87%E0%B8%84%E0%B8%B2%E0%B8%99/topic.php?gid=0&amp;mid=2731">ติดต่อหน่วยงาน (Contact Us)</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://infocenter.oic.go.th/PEA%20%E0%B8%AA%E0%B8%B2%E0%B8%82%E0%B8%B2%E0%B8%AD%E0%B8%B3%E0%B9%80%E0%B8%A0%E0%B8%AD%E0%B9%80%E0%B8%8A%E0%B8%B5%E0%B8%A2%E0%B8%87%E0%B8%84%E0%B8%B2%E0%B8%99/topic.php?gid=0&amp;mid=2749">Privacy Policy นโยบายการคุ้มครองข้อมูลส่วนบุคคล</a></li>
+<!-- /wp:list-item --></ul>
+<!-- /wp:list -->
+
+<!-- wp:heading {"level":3} -->
+<h3 class="wp-block-heading">คู่มือประชาชน 12 เล่ม ประจำปี 2564</h3>
+<!-- /wp:heading -->
+
+<!-- wp:heading {"level":6} -->
+<h6 class="wp-block-heading">การต่อกลับการใชไฟฟ้าในเขตชุมชน กรณีถูกงดจ่ายไฟ (ในและนอก เวลาทําการ) (N) วันที่ 22 กันยายน 2564 (06/12/2567)</h6>
+<!-- /wp:heading -->
+
+<!-- wp:paragraph -->
+<p><a href="https://infocenter.oic.go.th/PEA%20%E0%B8%AA%E0%B8%B2%E0%B8%82%E0%B8%B2%E0%B8%AD%E0%B8%B3%E0%B9%80%E0%B8%A0%E0%B8%AD%E0%B9%80%E0%B8%8A%E0%B8%B5%E0%B8%A2%E0%B8%87%E0%B8%84%E0%B8%B2%E0%B8%99/topic-detail.php?conid=5208451">อ่านเพิ่มเติม ...</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:heading {"level":6} -->
+<h6 class="wp-block-heading">การต่อกลับการใชไฟฟ้าผู้ใช้ ไฟรายใหญ่ กรณีถูกงดจ่ายไฟ (N) วันที่ 22 กันยายน 2564 (06/12/2567)</h6>
+<!-- /wp:heading -->
+
+<!-- wp:paragraph -->
+<p><a href="https://infocenter.oic.go.th/PEA%20%E0%B8%AA%E0%B8%B2%E0%B8%82%E0%B8%B2%E0%B8%AD%E0%B8%B3%E0%B9%80%E0%B8%A0%E0%B8%AD%E0%B9%80%E0%B8%8A%E0%B8%B5%E0%B8%A2%E0%B8%87%E0%B8%84%E0%B8%B2%E0%B8%99/topic-detail.php?conid=5208452">อ่านเพิ่มเติม ...</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:list {"anchor":"footer-info"} -->
+<ul id="footer-info" class="wp-block-list"><!-- wp:list-item -->
+<li>หน้านี้แก้ไขล่าสุดเมื่อวันที่ 29 ธันวาคม 2564 เวลา 21:35</li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li>อนุญาตให้เผยแพร่ข้อความภายใต้<a href="https://creativecommons.org/licenses/by-sa/4.0/">สัญญาอนุญาตครีเอทีฟคอมมอนส์ แบบแสดงที่มา-อนุญาตแบบเดียวกัน</a>; อาจมีเงื่อนไขอื่นเพิ่ม ดูรายละเอียดที่ <a href="https://foundation.wikimedia.org/wiki/Special:MyLanguage/Policy:Terms_of_Use">ข้อกำหนดการใช้งาน</a></li>
+<!-- /wp:list-item --></ul>
+<!-- /wp:list -->
+
+<!-- wp:list {"anchor":"footer-places"} -->
+<ul id="footer-places" class="wp-block-list"><!-- wp:list-item -->
+<li><a href="https://foundation.wikimedia.org/wiki/Special:MyLanguage/Policy:Privacy_policy">นโยบายความเป็นส่วนตัว</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://th.wikisource.org/wiki/%E0%B8%A7%E0%B8%B4%E0%B8%81%E0%B8%B4%E0%B8%8B%E0%B8%AD%E0%B8%A3%E0%B9%8C%E0%B8%8B:%E0%B9%80%E0%B8%81%E0%B8%B5%E0%B9%88%E0%B8%A2%E0%B8%A7%E0%B8%81%E0%B8%B1%E0%B8%9A">เกี่ยวกับวิกิซอร์ซ</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://th.wikisource.org/wiki/%E0%B8%A7%E0%B8%B4%E0%B8%81%E0%B8%B4%E0%B8%8B%E0%B8%AD%E0%B8%A3%E0%B9%8C%E0%B8%8B:%E0%B8%82%E0%B9%89%E0%B8%AD%E0%B8%9B%E0%B8%8F%E0%B8%B4%E0%B9%80%E0%B8%AA%E0%B8%98%E0%B8%84%E0%B8%A7%E0%B8%B2%E0%B8%A1%E0%B8%A3%E0%B8%B1%E0%B8%9A%E0%B8%9C%E0%B8%B4%E0%B8%94%E0%B8%8A%E0%B8%AD%E0%B8%9A%E0%B8%97%E0%B8%B1%E0%B9%88%E0%B8%A7%E0%B9%84%E0%B8%9B">ข้อปฏิเสธความรับผิดชอบ</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://foundation.wikimedia.org/wiki/Special:MyLanguage/Policy:Universal_Code_of_Conduct">ประมวลจรรยาบรรณ</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://developer.wikimedia.org/">ผู้พัฒนา</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://stats.wikimedia.org/#/th.wikisource.org">สถิติ</a></li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://foundation.wikimedia.org/wiki/Special:MyLanguage/Policy:Cookie_statement">นโยบายการใช้คุกกี้</a></li>
+<!-- /wp:list-item --></ul>
+<!-- /wp:list -->
+
+<!-- wp:image {"id":34,"sizeSlug":"large","linkDestination":"none"} -->
+<figure class="wp-block-image size-large"><img src="https://royalthaipoliceloei.wordpress.com/wp-content/uploads/2026/08/image.png?w=14" alt="" class="wp-image-34"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:embed {"url":"https://truehits.net/m/stat.php?login=phlii","type":"rich","providerNameSlug":"embed"} -->
+<figure class="wp-block-embed is-type-rich is-provider-embed wp-block-embed-embed"><div class="wp-block-embed__wrapper">
+https://truehits.net/m/stat.php?login=phlii
+</div></figure>
+<!-- /wp:embed -->
+
+<!-- wp:paragraph -->
+<p><a href="https://th.wikipedia.org/wiki/%E0%B8%9C%E0%B8%B9%E0%B9%89%E0%B9%83%E0%B8%8A%E0%B9%89:NELLA32/%E0%B8%A3%E0%B9%88%E0%B8%B2%E0%B8%87%E0%B8%A0%E0%B8%B2%E0%B8%84%E0%B8%AD%E0%B8%B5%E0%B8%AA%E0%B8%B2%E0%B8%99">วิกิภาคอิสาน</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://en.wikipedia.org/wiki/User:A10904203">วิกิเมืองเลย</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><strong>การปฏิเสธความรับผิดชอบ</strong></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ความแม่นยำ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>วิกิซอร์ซไม่รับประกันเรื่องความใช้การได้หรือความแม่นยำ โครงการนี้เป็นแหล่งออนไลน์สำหรับรวบรวมเนื้อหาเสรี กล่าวคือ เป็นการรวมตัวโดยสมัครใจของบุคคลทั่วไปที่ประสงค์จะพัฒนาแหล่งข้อมูลชั้นต้นสาธารณะ ดังนั้น เนื้อหาที่พบในนี้อาจไม่ผ่านการตรวจสอบจากผู้ทรงคุณวุฒิในด้านที่เกี่ยวข้องเพื่อรับรองความแม่นยำของข้อความ นอกจากนี้ เนื้อหาที่รับไว้ยังลงไว้ตามที่เป็นอยู่ กล่าวคือ จุดบกพร่องใดที่มี ก็รักษาไว้ตามเดิม เพื่อคงไว้ซึ่งความเที่ยงตรงตามต้นฉบับ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>มิใช่เราจะกล่าวว่า ที่นี่ไม่มีเนื้อหาทรงคุณค่าหรือแม่นยำให้พบเจอ เพียงแต่เราไม่รับรองว่า เนื้อหาที่พบจะใช้การได้ โดยเฉพาะอย่างยิ่ง เนื้อหาทางการแพทย์หรือกฎหมายอาจไม่ถูกต้องหรือล้าสมัย ถ้าต้องการข้อมูลข่าวสารที่ใช้การได้จริง เราแนะนำให้ท่านติดต่อผู้ทรงคุณวุฒิที่เกี่ยวข้องโดยตรงจะดีกว่า</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ความรับผิด</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>วิกิซอร์ซจะไม่รับผิดชอบในทางใด ๆ ต่อข้อมูลที่ไม่แม่นยำหรือเป็นการหมิ่นประมาทปรากฏอยู่ หรือต่อการที่ท่านนำข้อมูลซึ่งมีอยู่ในหรือลิงก์จากเว็บเพจเหล่านี้ไปใช้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>การเรียกค่าเสียหายจากวิกิซอร์ซเนื่องเพราะความไม่แม่นยำหรือใช้การไม่ได้ดังกล่าวมาแล้ว ไม่สามารถกระทำได้ เพราะวิกิซอร์ซเป็นการรวมตัวโดยสมัครใจของบุคคลต่าง ๆ ซึ่งพัฒนาขึ้นอย่างมีอิสระให้เป็นพื้นที่สร้างสรรค์แหล่งทรัพยากรออนไลน์แบบเปิดด้านการศึกษา วัฒนธรรม และข้อมูลข่าวสาร นอกจากนี้ วิกิซอร์ซไม่รับผิดชอบถ้ามีผู้ใดเปลี่ยนแปลง แก้ไข ดัดแปลง หรือนำออกซึ่งข้อมูลใด ๆ ที่ท่านลงไว้ในวิกิซอร์ซหรือโครงการอื่นที่เกี่ยวข้อง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>การอนุญาต</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ท่านสามารถใช้เนื้อหาในเว็บไซต์นี้ได้ตามข้อกำหนดเฉพาะที่ปรากฏในป้ายลิขสิทธิ์และข้อกำหนดทั่วไปที่ปรากฏใน วิกิซอร์ซ:นโยบายลิขสิทธิ์ งานส่วนใหญ่ที่มีมักเป็นสาธารณสมบัติอยู่แล้วหรือสอดคล้องกับสัญญาอนุญาตเอกสารเสรีของกนู</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>ท่านสามารถนำเนื้อหาในวิกิซอร์ซไปผลิตซ้ำได้โดยเสรีและไม่ต้องเสียค่าตอบแทน ไม่มีข้อตกลง สัญญา หรือความรับผิดใด ๆ ในะรหว่างท่านกับเราหรือบุคคลใด ๆ ที่เกี่ยวข้องกับเรา อย่างไรก็ดี ถึงแม้เราจะพยายามทำให้มั่นใจว่า ข้อมูลลิขสิทธิ์ที่ลงไว้สำหรับแต่งานนั้นถูกต้องแม่นยำแล้ว แต่ท่านมีหน้าที่ต้องตรวจสอบสถานะลิขสิทธิ์ของงานนั้น ๆ เอง</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>การฝ่าฝืนกฎหมายท้องถิ่น</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>โปรดทราบว่า เนื้อหาที่นี่อาจขัดกับกฎหมายในประเทศหรือเขตอำนาจที่ท่านเข้าชมเนื้อหานั้นได้ ถึงแม้วิกิซอร์ซไม่ส่งเสริมการฝ่าฝืนกฎหมายใด ๆ แต่ข้อมูลที่นี่เก็บไว้ ณ เซิร์ฟเวอร์ที่สหรัฐ ข้อมูลเหล่านั้นจึงได้รับการรักษาไว้ภายใต้ความคุ้มครองทุกอย่างที่การแก้ไขเพิ่มเติมรัฐธรรมนูญ ครั้งที่ 1 และปฏิญญาสากลว่าด้วยสิทธิมนุษยชน มอบให้</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>กฎหมายประเทศของท่านอาจไม่คุ้มครองเสรีภาพในการแสดงความคิดเห็นอย่างกว้างขวางเหมือนกฎหมายสหรัฐ หรืออาจไม่คุ้มครองหลักการต่าง ๆ ตามกฎบัตรของสหประชาชาติ หรืออาจมีข้อจำกัดต่าง ๆ ที่สหรัฐหรือสหประชาชาติไม่รับรอง ดังนั้น วิกิซอร์ซจะไม่รับผิดชอบในทางใด ๆ ต่อการฝ่าฝืนกฎหมายประเทศของท่าน เมื่อท่านลิงก์มายังโดเมนของวิกิซอร์ซหรือใช้ข้อมูลใด ๆ ที่มีอยู่ในวิกิซอร์ซ</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://maps.google.com/?q=%E0%B8%97%E0%B8%B5%E0%B9%88%E0%B8%97%E0%B8%B3%E0%B8%87%E0%B8%B2%E0%B8%99+%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B9%84%E0%B8%9F%E0%B8%9F%E0%B9%89%E0%B8%B2%E0%B8%AA%E0%B9%88%E0%B8%A7%E0%B8%99%E0%B8%A0%E0%B8%B9%E0%B8%A1%E0%B8%B4%E0%B8%A0%E0%B8%B2%E0%B8%84%E0%B8%AD%E0%B8%B3%E0%B9%80%E0%B8%A0%E0%B8%AD%E0%B9%80%E0%B8%8A%E0%B8%B5%E0%B8%A2%E0%B8%87%E0%B8%84%E0%B8%B2%E0%B8%99+%E0%B8%95%E0%B8%B3%E0%B8%9A%E0%B8%A5+%E0%B9%80%E0%B8%8A%E0%B8%B5%E0%B8%A2%E0%B8%87%E0%B8%84%E0%B8%B2%E0%B8%99+%E0%B8%AD%E0%B8%B3%E0%B9%80%E0%B8%A0%E0%B8%AD+%E0%B9%80%E0%B8%8A%E0%B8%B5%E0%B8%A2%E0%B8%87%E0%B8%84%E0%B8%B2%E0%B8%99+%E0%B9%80%E0%B8%A5%E0%B8%A2+42110&amp;ftid=0x0:0xbce98e895a718678&amp;entry=gps">ตำแหน่งที่ตั้ง:17.876028,101.655087</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:list -->
+<ul class="wp-block-list"><!-- wp:list-item -->
+<li><a href="https://th.wikisource.org/wiki/%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%B0%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%9B%E0%B8%81%E0%B8%84%E0%B8%A3%E0%B8%AD%E0%B8%87%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B9%80%E0%B8%97%E0%B8%A8%E0%B9%84%E0%B8%97%E0%B8%A2%E0%B9%81%E0%B8%95%E0%B9%88%E0%B9%82%E0%B8%9A%E0%B8%A3%E0%B8%B2%E0%B8%93_(2498)/%E0%B9%80%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87" target="_blank" rel="noreferrer noopener">ลักษณะ<strong>การปกครอง</strong>ประเทศไทยแต่โบราณ (2498)/เรื่อง</a>ลักษณะ<strong>การปกครอง</strong>ประเทศไทยแต่โบราณ  (พ.ศ. 2498) ลักษณะ<strong>การปกครอง</strong>ประเทศไทยแต่โบราณ โดย สมเด็จพระเจ้าบรมวงศ์เธอ <strong>กรม</strong>พระยาดำรงราชานุภาพ 47154ลักษณะ<strong>การปกครอง</strong>ประเทศไทยแต่โบราณ...827 ไบต์ (11,680 คำ) – 15:52, 14 พฤษภาคม 2565</li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://th.wikisource.org/wiki/%E0%B8%84%E0%B8%B3%E0%B8%AA%E0%B8%B1%E0%B9%88%E0%B8%87%E0%B8%AB%E0%B8%B1%E0%B8%A7%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%E0%B8%84%E0%B8%93%E0%B8%B0%E0%B8%9B%E0%B8%8F%E0%B8%B4%E0%B8%A3%E0%B8%B9%E0%B8%9B%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%9B%E0%B8%81%E0%B8%84%E0%B8%A3%E0%B8%AD%E0%B8%87%E0%B9%83%E0%B8%99%E0%B8%A3%E0%B8%B0%E0%B8%9A%E0%B8%AD%E0%B8%9A%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%8A%E0%B8%B2%E0%B8%98%E0%B8%B4%E0%B8%9B%E0%B9%84%E0%B8%95%E0%B8%A2%E0%B8%AF_%E0%B8%97%E0%B8%B5%E0%B9%88_17/2549" target="_blank" rel="noreferrer noopener">คำสั่งหัวหน้าคณะปฏิรูป<strong>การปกครอง</strong>ในระบอบประชาธิปไตยฯ ที่ 17/2549</a>คณะที่ปรึกษา<strong>ฝ่าย</strong>เศรษฐกิจ คณะที่ปรึกษา<strong>ฝ่ายการ</strong>ต่างประเทศ คณะที่ปรึกษาด้าน<strong>การ</strong>เสริมสร้างจริยธรรม ธรรมาภิบาล และ<strong>การป้องกันการ</strong>ทุจริตและประพฤติมิชอบ คณะที่ปรึกษา<strong>ฝ่ายการ</strong>...634 ไบต์ (637 คำ) – 05:59, 24 สิงหาคม 2567</li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://th.wikisource.org/wiki/%E0%B8%9E%E0%B8%A3%E0%B8%B0%E0%B8%A3%E0%B8%B2%E0%B8%8A%E0%B8%9A%E0%B8%B1%E0%B8%8D%E0%B8%8D%E0%B8%B1%E0%B8%95%E0%B8%B4%E0%B8%9B%E0%B9%89%E0%B8%AD%E0%B8%87%E0%B8%81%E0%B8%B1%E0%B8%99%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%9B%E0%B8%A3%E0%B8%B2%E0%B8%9A%E0%B8%9B%E0%B8%A3%E0%B8%B2%E0%B8%A1%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%84%E0%B9%89%E0%B8%B2%E0%B8%A1%E0%B8%99%E0%B8%B8%E0%B8%A9%E0%B8%A2%E0%B9%8C_%E0%B8%9E.%E0%B8%A8._2551" target="_blank" rel="noreferrer noopener">พระราชบัญญัติ<strong>ป้องกัน</strong>และปราบปราม<strong>การ</strong>ค้ามนุษย์ พ.ศ. 2551</a>อัยการสูงสุด ผู้บัญชาการตำรวจแห่งชาติ อธิบดี<strong>กรมการปกครอง</strong> อธิบดี<strong>กรม</strong>สอบสวนคดีพิเศษ เลขาธิการคณะกรรมการ<strong>ป้องกัน</strong>และปราบปราม<strong>การ</strong>ฟอกเงิน เลขาธิการคณะกรรมการสิทธิมนุษยชนแห่งชาติ...2 กิโลไบต์ (8,617 คำ) – 20:51, 7 มิถุนายน 2568</li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://th.wikisource.org/wiki/%E0%B8%9E%E0%B8%A3%E0%B8%B0%E0%B8%A3%E0%B8%B2%E0%B8%8A%E0%B8%81%E0%B8%B3%E0%B8%AB%E0%B8%99%E0%B8%94%E0%B9%81%E0%B8%81%E0%B9%89%E0%B9%84%E0%B8%82%E0%B9%80%E0%B8%9E%E0%B8%B4%E0%B9%88%E0%B8%A1%E0%B9%80%E0%B8%95%E0%B8%B4%E0%B8%A1%E0%B8%9E%E0%B8%A3%E0%B8%B0%E0%B8%A3%E0%B8%B2%E0%B8%8A%E0%B8%9A%E0%B8%B1%E0%B8%8D%E0%B8%8D%E0%B8%B1%E0%B8%95%E0%B8%B4%E0%B8%9B%E0%B9%89%E0%B8%AD%E0%B8%87%E0%B8%81%E0%B8%B1%E0%B8%99%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%9B%E0%B8%A3%E0%B8%B2%E0%B8%9A%E0%B8%9B%E0%B8%A3%E0%B8%B2%E0%B8%A1%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%97%E0%B8%A3%E0%B8%A1%E0%B8%B2%E0%B8%99%E0%B8%AF" target="_blank" rel="noreferrer noopener">พระราชกำหนดแก้ไขเพิ่มเติมพระราชบัญญัติ<strong>ป้องกัน</strong>และปราบปราม<strong>การ</strong>ทรมานฯ</a>พระราชกำหนดแก้ไขเพิ่มเติมพระราชบัญญัติ<strong>ป้องกัน</strong>และปราบปราม<strong>การ</strong>ทรมานและการกระทำให้บุคคลสูญหาย พ.ศ. 2565 พ.ศ. 2566 โดย คณะรัฐมนตรีไทย คณะที่ 62...1 กิโลไบต์ (1,394 คำ) – 12:32, 13 ธันวาคม 2568</li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://th.wikisource.org/wiki/%E0%B8%9E%E0%B8%A3%E0%B8%B0%E0%B8%A3%E0%B8%B2%E0%B8%8A%E0%B8%9A%E0%B8%B1%E0%B8%8D%E0%B8%8D%E0%B8%B1%E0%B8%95%E0%B8%B4%E0%B8%9B%E0%B9%89%E0%B8%AD%E0%B8%87%E0%B8%81%E0%B8%B1%E0%B8%99%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%9B%E0%B8%A3%E0%B8%B2%E0%B8%9A%E0%B8%9B%E0%B8%A3%E0%B8%B2%E0%B8%A1%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%97%E0%B8%A3%E0%B8%A1%E0%B8%B2%E0%B8%99%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%81%E0%B8%A3%E0%B8%B0%E0%B8%97%E0%B8%B3%E0%B9%83%E0%B8%AB%E0%B9%89%E0%B8%9A%E0%B8%B8%E0%B8%84%E0%B8%84%E0%B8%A5%E0%B8%AA%E0%B8%B9%E0%B8%8D%E0%B8%AB%E0%B8%B2%E0%B8%A2_%E0%B8%9E.%E0%B8%A8._2565" target="_blank" rel="noreferrer noopener">พระราชบัญญัติ<strong>ป้องกัน</strong>และปราบปราม<strong>การ</strong>ทรมานและการกระทำให้บุคคลสูญหาย พ.ศ. 2565</a>(๓)ผู้อำนวย<strong>การ</strong>สำนัก<strong>การ</strong>สอบสวนและนิติ<strong>การ</strong> <strong>กรมการปกครอง</strong> หรือนายอำเภอตามมาตรา ๒๒ หรือพนักงาน<strong>ฝ่ายปกครอง</strong>ซึ่งได้รับมอบหมายจากผู้อำนวย<strong>การ</strong>สำนัก<strong>การ</strong>สอบสวนและนิติ<strong>การ</strong> <strong>กรมการ</strong>ปกครอง...6 กิโลไบต์ (5,783 คำ) – 12:32, 13 ธันวาคม 2568</li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://th.wikisource.org/wiki/%E0%B8%84%E0%B8%B3%E0%B8%9E%E0%B8%B4%E0%B8%9E%E0%B8%B2%E0%B8%81%E0%B8%A9%E0%B8%B2%E0%B8%9B%E0%B8%81%E0%B8%84%E0%B8%A3%E0%B8%AD%E0%B8%87%E0%B8%AA%E0%B8%B9%E0%B8%87%E0%B8%AA%E0%B8%B8%E0%B8%94_%E0%B9%83%E0%B8%99%E0%B8%84%E0%B8%94%E0%B8%B5%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B9%80%E0%B8%A5%E0%B8%82%E0%B9%81%E0%B8%94%E0%B8%87%E0%B8%97%E0%B8%B5%E0%B9%88_%E0%B8%AD._224/2566" target="_blank" rel="noreferrer noopener">คำพิพากษา<strong>ปกครอง</strong>สูงสุด ในคดีหมายเลขแดงที่ อ. 224/2566</a>คำพิพากษา<strong>ปกครอง</strong>สูงสุด ในคดีหมายเลขแดงที่ อ. 224/2566 ในคดีที่นายวีระ สมความคิด ยื่นฟ้อง สำนักงาน ป.ป.ช. ขอให้เปิดเผยข้อมูลข่าวสารของราชการที่เกี่ยวข้องกับกรณีการกล่าวหา...4 กิโลไบต์ (2,285 คำ) – 15:37, 18 พฤษภาคม 2566</li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://th.wikisource.org/wiki/%E0%B8%9E%E0%B8%A3%E0%B8%B0%E0%B8%A3%E0%B8%B2%E0%B8%8A%E0%B8%9A%E0%B8%B1%E0%B8%8D%E0%B8%8D%E0%B8%B1%E0%B8%95%E0%B8%B4%E0%B8%9B%E0%B9%89%E0%B8%AD%E0%B8%87%E0%B8%81%E0%B8%B1%E0%B8%99%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%9B%E0%B8%A3%E0%B8%B2%E0%B8%9A%E0%B8%9B%E0%B8%A3%E0%B8%B2%E0%B8%A1%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%84%E0%B9%89%E0%B8%B2%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B9%80%E0%B8%A7%E0%B8%93%E0%B8%B5_%E0%B8%9E.%E0%B8%A8._2539" target="_blank" rel="noreferrer noopener">พระราชบัญญัติ<strong>ป้องกัน</strong>และปราบปราม<strong>การ</strong>ค้าประเวณี พ.ศ. 2539</a>พระราชบัญญัติ<strong>ป้องกัน</strong>และปราบปราม<strong>การ</strong>ค้าประเวณี พ.ศ. 2539 โดย รัฐสภาไทย 61573พระราชบัญญัติ<strong>ป้องกัน</strong>และปราบปราม<strong>การ</strong>ค้าประเวณี พ.ศ. 2539รัฐสภาไทย สารบัญ พระราชบัญญัติ...6 กิโลไบต์ (6,037 คำ) – 12:19, 18 มกราคม 2569</li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://th.wikisource.org/wiki/%E0%B8%9E%E0%B8%A3%E0%B8%B0%E0%B8%A3%E0%B8%B2%E0%B8%8A%E0%B8%9A%E0%B8%B1%E0%B8%8D%E0%B8%8D%E0%B8%B1%E0%B8%95%E0%B8%B4%E0%B8%A1%E0%B8%B2%E0%B8%95%E0%B8%A3%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%9B%E0%B9%89%E0%B8%AD%E0%B8%87%E0%B8%81%E0%B8%B1%E0%B8%99%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%81%E0%B8%A3%E0%B8%B0%E0%B8%97%E0%B8%B3%E0%B8%84%E0%B8%A7%E0%B8%B2%E0%B8%A1%E0%B8%9C%E0%B8%B4%E0%B8%94%E0%B8%8B%E0%B9%89%E0%B8%B3%E0%B9%83%E0%B8%99%E0%B8%84%E0%B8%A7%E0%B8%B2%E0%B8%A1%E0%B8%9C%E0%B8%B4%E0%B8%94%E0%B9%80%E0%B8%81%E0%B8%B5%E0%B9%88%E0%B8%A2%E0%B8%A7%E0%B8%81%E0%B8%B1%E0%B8%9A%E0%B9%80%E0%B8%9E%E0%B8%A8%E0%B8%AF_%E0%B8%9E.%E0%B8%A8._2565" target="_blank" rel="noreferrer noopener">พระราชบัญญัติมาตรการ<strong>ป้องกัน</strong>การกระทำความผิดซ้ำในความผิดเกี่ยวกับเพศฯ พ.ศ. 2565</a><strong>การ</strong>ปล่อยตัวสู่สังคมแล้ว ถึงแม้ว่าจะมี<strong>การ</strong>ติดตามจากเจ้าพนักงาน<strong>ฝ่ายปกครอง</strong>หรือตำรวจบ้าง แต่ไม่มีสภาพบังคับเป็นกฎหมาย และไม่มีประสิทธิผลใน<strong>การป้องกัน</strong>การกระทำความผิด...6 กิโลไบต์ (6,468 คำ) – 11:24, 7 มิถุนายน 2568</li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://th.wikisource.org/wiki/%E0%B8%9E%E0%B8%A3%E0%B8%B0%E0%B8%A3%E0%B8%B2%E0%B8%8A%E0%B8%9A%E0%B8%B1%E0%B8%8D%E0%B8%8D%E0%B8%B1%E0%B8%95%E0%B8%B4%E0%B8%A1%E0%B8%B2%E0%B8%95%E0%B8%A3%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B9%83%E0%B8%99%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%9B%E0%B9%89%E0%B8%AD%E0%B8%87%E0%B8%81%E0%B8%B1%E0%B8%99%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%9B%E0%B8%A3%E0%B8%B2%E0%B8%9A%E0%B8%9B%E0%B8%A3%E0%B8%B2%E0%B8%A1%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%84%E0%B9%89%E0%B8%B2%E0%B8%AB%E0%B8%8D%E0%B8%B4%E0%B8%87%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B9%80%E0%B8%94%E0%B9%87%E0%B8%81_%E0%B8%9E.%E0%B8%A8._2540" target="_blank" rel="noreferrer noopener">พระราชบัญญัติมาตรการใน<strong>การป้องกัน</strong>และปราบปราม<strong>การ</strong>ค้าหญิงและเด็ก พ.ศ. 2540</a>พระราชบัญญัติมาตรการใน<strong>การป้องกัน</strong>และปราบปราม<strong>การ</strong>ค้าหญิงและเด็ก พ.ศ. 2540 โดย รัฐสภาไทย 87201พระราชบัญญัติมาตรการใน<strong>การป้องกัน</strong>และปราบปราม<strong>การ</strong>ค้าหญิงและเด็ก พ.ศ...544 ไบต์ (2,266 คำ) – 21:13, 20 มกราคม 2569</li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://th.wikisource.org/wiki/%E0%B8%84%E0%B9%8D%E0%B8%B2%E0%B8%AA%E0%B8%B1%E0%B9%88%E0%B8%87%E0%B8%AB%E0%B8%B1%E0%B8%A7%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%E0%B8%84%E0%B8%93%E0%B8%B0%E0%B8%A3%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%B2%E0%B8%84%E0%B8%A7%E0%B8%B2%E0%B8%A1%E0%B8%AA%E0%B8%87%E0%B8%9A%E0%B9%81%E0%B8%AB%E0%B9%88%E0%B8%87%E0%B8%8A%E0%B8%B2%E0%B8%95%E0%B8%B4%E0%B8%97%E0%B8%B5%E0%B9%88_%E0%B9%91%E0%B9%93/%E0%B9%92%E0%B9%95%E0%B9%95%E0%B9%98" target="_blank" rel="noreferrer noopener">คําสั่งหัวหน้าคณะรักษาความสงบแห่งชาติที่ ๑๓/๒๕๕๘</a> (หมวดหมู่ หน้าที่มี<strong>การ</strong>เขียนทับผู้สร้างสรรค์)เรื่อง <strong>การ</strong>สรรหากรรมการ<strong>ป้องกัน</strong>และปราบปราม<strong>การ</strong>ทุจริตแห่งชาติ 24964คําสั่งหัวหน้าคณะรักษาความสงบแห่งชาติ — ที่ ๑๓/๒๕๕๘ เรื่อง <strong>การ</strong>สรรหากรรมการ<strong>ป้องกัน</strong>...9 กิโลไบต์ (808 คำ) – 19:24, 15 พฤษภาคม 2558</li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://th.wikisource.org/wiki/%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%81%E0%B8%B2%E0%B8%A8%E0%B8%84%E0%B8%93%E0%B8%B0%E0%B8%9B%E0%B8%8F%E0%B8%B4%E0%B8%A3%E0%B8%B9%E0%B8%9B%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%9B%E0%B8%81%E0%B8%84%E0%B8%A3%E0%B8%AD%E0%B8%87%E0%B9%83%E0%B8%99%E0%B8%A3%E0%B8%B0%E0%B8%9A%E0%B8%AD%E0%B8%9A%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%8A%E0%B8%B2%E0%B8%98%E0%B8%B4%E0%B8%9B%E0%B9%84%E0%B8%95%E0%B8%A2%E0%B8%AF_%E0%B8%89%E0%B8%9A%E0%B8%B1%E0%B8%9A%E0%B8%97%E0%B8%B5%E0%B9%88_33" target="_blank" rel="noreferrer noopener">ประกาศคณะปฏิรูป<strong>การปกครอง</strong>ในระบอบประชาธิปไตยฯ ฉบับที่ 33</a>ประกาศคณะปฏิรูป<strong>การปกครอง</strong>ในระบอบประชาธิปไตย อันมีพระมหากษัตริย์ทรงเป็นประมุข ฉบับที่ 33  (พ.ศ. 2549) โดย คณะปฏิรูป<strong>การปกครอง</strong>ในระบอบประชาธิปไตย...2 กิโลไบต์ (1,801 คำ) – 13:19, 22 สิงหาคม 2567</li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://th.wikisource.org/wiki/%E0%B8%9E%E0%B8%A3%E0%B8%B0%E0%B8%A3%E0%B8%B2%E0%B8%8A%E0%B8%94%E0%B8%B3%E0%B8%A3%E0%B8%B1%E0%B8%AA%E0%B8%AF_%E0%B9%81%E0%B8%81%E0%B9%89%E0%B9%84%E0%B8%82%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%9B%E0%B8%81%E0%B8%84%E0%B8%A3%E0%B8%AD%E0%B8%87%E0%B9%81%E0%B8%9C%E0%B9%88%E0%B8%99%E0%B8%94%E0%B8%B4%E0%B8%99_(2470)/%E0%B8%9E%E0%B8%A3%E0%B8%B0%E0%B8%A3%E0%B8%B2%E0%B8%8A%E0%B8%94%E0%B8%B3%E0%B8%A3%E0%B8%B1%E0%B8%AA" target="_blank" rel="noreferrer noopener">พระราชดำรัสฯ แก้ไข<strong>การปกครอง</strong>แผ่นดิน (2470)/พระราชดำรัส</a>พระราชดำรัสในพระบาทสมเด็จพระจุลจอมเกล้าเจ้าอยู่หัวทรงแถลงพระบรมราชาธิบายแก้ไข<strong>การปกครอง</strong>แผ่นดิน  (พ.ศ. 2470) พระราชดำรัส โดย พระบาทสมเด็จพระจุลจอมเกล้าเจ้าอยู่หัว...1 กิโลไบต์ (20,892 คำ) – 16:30, 2 มิถุนายน 2564</li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://th.wikisource.org/wiki/%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%9B%E0%B8%81%E0%B8%84%E0%B8%A3%E0%B8%AD%E0%B8%87%E0%B9%81%E0%B8%84%E0%B8%A7%E0%B9%89%E0%B8%99%E0%B8%A5%E0%B8%B2%E0%B8%A7%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B9%80%E0%B8%82%E0%B8%A1%E0%B8%A3%E0%B8%82%E0%B8%AD%E0%B8%87%E0%B8%9D%E0%B8%A3%E0%B8%B1%E0%B9%88%E0%B8%87%E0%B9%80%E0%B8%A8%E0%B8%AA/%E0%B8%A0%E0%B8%B2%E0%B8%84%E0%B8%AB%E0%B8%99%E0%B8%B6%E0%B9%88%E0%B8%87/%E0%B8%9A%E0%B8%97%E0%B8%97%E0%B8%B5%E0%B9%88_5" target="_blank" rel="noreferrer noopener"><strong>การปกครอง</strong>แคว้นลาวและเขมรของฝรั่งเศส/ภาคหนึ่ง/บทที่ 5</a><strong>การปกครอง</strong>แคว้นลาวและเขมรของฝรั่งเศส  (พ.ศ. 2483) โดย กระทรวงมหาดไทย ภาคหนึ่ง 57999การ<strong>ปกครอง</strong>แคว้นลาวและเขมรของฝรั่งเศส — ภาคหนึ่งกระทรวงมหาดไทย2483 บทที่...966 ไบต์ (3,282 คำ) – 21:09, 10 กันยายน 2565</li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://th.wikisource.org/wiki/%E0%B8%9E%E0%B8%A3%E0%B8%B0%E0%B8%A3%E0%B8%B2%E0%B8%8A%E0%B8%9A%E0%B8%B1%E0%B8%8D%E0%B8%8D%E0%B8%B1%E0%B8%95%E0%B8%B4%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%81%E0%B8%AD%E0%B8%9A%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%98%E0%B8%A3%E0%B8%A3%E0%B8%A1%E0%B8%99%E0%B8%B9%E0%B8%8D%E0%B8%A7%E0%B9%88%E0%B8%B2%E0%B8%94%E0%B9%89%E0%B8%A7%E0%B8%A2%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%9B%E0%B9%89%E0%B8%AD%E0%B8%87%E0%B8%81%E0%B8%B1%E0%B8%99%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%9B%E0%B8%A3%E0%B8%B2%E0%B8%9A%E0%B8%9B%E0%B8%A3%E0%B8%B2%E0%B8%A1%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%97%E0%B8%B8%E0%B8%88%E0%B8%A3%E0%B8%B4%E0%B8%95/%E0%B8%9E.%E0%B8%A8.2542" target="_blank" rel="noreferrer noopener">พระราชบัญญัติประกอบรัฐธรรมนูญว่าด้วย<strong>การป้องกัน</strong>และปราบปราม<strong>การ</strong>ทุจริต/พ.ศ.2542</a>ผู้บริหารท้องถิ่นและสมาชิกสภาท้องถิ่นขององค์กร<strong>ปกครอง</strong>ส่วนท้องถิ่น ที่มีรายได้หรืองบประมาณไม่ต่ำกว่าเกณฑ์ที่คณะกรรมการ<strong>ป้องกัน</strong>และปราบปราม<strong>การ</strong>ทุจริตแห่งชาติกำหนดโดยประกาศในราชกิจจานุเบกษา...216 กิโลไบต์ (17,597 คำ) – 11:13, 19 กรกฎาคม 2561</li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://th.wikisource.org/wiki/%E0%B8%84%E0%B8%B3%E0%B8%AA%E0%B8%B1%E0%B9%88%E0%B8%87%E0%B8%AA%E0%B8%B3%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%99%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B8%A3%E0%B8%B5_%E0%B8%97%E0%B8%B5%E0%B9%88_66/2523" target="_blank" rel="noreferrer noopener">คำสั่งสำนักนายกรัฐมนตรี ที่ 66/2523</a>และหน้าที่สำคัญใน<strong>การป้องกัน</strong>ประเทศและรักษาไว้ซึ่งเอกราชของชาติ และ<strong>การปกครอง</strong>ระบอบประชาธิปไตยอันมีพระมหากษัตริย์เป็นประมุข รัฐบาลถือเป็นภาระหน้าที่สำคัญและเร่งด่วนใน<strong>การ</strong>...3 กิโลไบต์ (1,900 คำ) – 13:49, 24 ธันวาคม 2568</li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://th.wikisource.org/wiki/%E0%B8%84%E0%B8%B3%E0%B8%AA%E0%B8%B1%E0%B9%88%E0%B8%87%E0%B8%A8%E0%B8%B2%E0%B8%A5%E0%B8%9B%E0%B8%81%E0%B8%84%E0%B8%A3%E0%B8%AD%E0%B8%87%E0%B8%AA%E0%B8%B9%E0%B8%87%E0%B8%AA%E0%B8%B8%E0%B8%94%E0%B8%97%E0%B8%B5%E0%B9%88_%E0%B9%93%E0%B9%99%E0%B9%97/%E0%B9%92%E0%B9%95%E0%B9%95%E0%B9%93" target="_blank" rel="noreferrer noopener">คำสั่งศาล<strong>ปกครอง</strong>สูงสุดที่ ๓๙๗/๒๕๕๓</a>แม่แบบผิดพลาด: มี<strong>การ</strong>ลบช่องที่ไม่ได้ใช้ออก โปรดเติมกลับเข้าไป (โปรดดูเอกสารกำกับแม่แบบ) คำสั่งศาล<strong>ปกครอง</strong>สูงสุดที่ ๓๙๗/๒๕๕๓ ศาล<strong>ปกครอง</strong>สูงสุด ในคดีระหว่างหม่อมหลวงวัลย์วิภา...68 กิโลไบต์ (5,625 คำ) – 22:03, 4 กรกฎาคม 2565</li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://th.wikisource.org/wiki/%E0%B8%9E%E0%B8%A3%E0%B8%B0%E0%B8%A3%E0%B8%B2%E0%B8%8A%E0%B8%9A%E0%B8%B1%E0%B8%8D%E0%B8%8D%E0%B8%B1%E0%B8%95%E0%B8%B4%E0%B8%A7%E0%B8%B4%E0%B8%98%E0%B8%B5%E0%B8%9B%E0%B8%8F%E0%B8%B4%E0%B8%9A%E0%B8%B1%E0%B8%95%E0%B8%B4%E0%B8%A3%E0%B8%B2%E0%B8%8A%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%97%E0%B8%B2%E0%B8%87%E0%B8%9B%E0%B8%81%E0%B8%84%E0%B8%A3%E0%B8%AD%E0%B8%87_(%E0%B8%89%E0%B8%9A%E0%B8%B1%E0%B8%9A%E0%B8%97%E0%B8%B5%E0%B9%88_3)_%E0%B8%9E.%E0%B8%A8._2562" target="_blank" rel="noreferrer noopener">พระราชบัญญัติวิธีปฏิบัติราชการทาง<strong>ปกครอง</strong> (ฉบับที่ 3) พ.ศ. 2562</a>การบังคับทางปกครอง <strong>การ</strong>เพิ่ม พ.ว.ป. หมวด 2/1 <strong>การ</strong>บังคับทาง<strong>ปกครอง</strong> <strong>การ</strong>บังคับตามคำสั่งที่ออกตามกฎหมายเดิม คดีค้างพิจารณา <strong>การ</strong>จัดทำข้อมูลเพื่อรองรับหน้าที่ใหม่ของ<strong>กรม</strong>บังคับคดี...3 กิโลไบต์ (5,228 คำ) – 21:52, 18 มกราคม 2567</li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://th.wikisource.org/wiki/%E0%B8%84%E0%B9%8D%E0%B8%B2%E0%B8%AA%E0%B8%B1%E0%B9%88%E0%B8%87%E0%B8%AB%E0%B8%B1%E0%B8%A7%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%E0%B8%84%E0%B8%93%E0%B8%B0%E0%B8%A3%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%B2%E0%B8%84%E0%B8%A7%E0%B8%B2%E0%B8%A1%E0%B8%AA%E0%B8%87%E0%B8%9A%E0%B9%81%E0%B8%AB%E0%B9%88%E0%B8%87%E0%B8%8A%E0%B8%B2%E0%B8%95%E0%B8%B4%E0%B8%97%E0%B8%B5%E0%B9%88_%E0%B9%91%E0%B9%92/%E0%B9%92%E0%B9%95%E0%B9%95%E0%B9%98" target="_blank" rel="noreferrer noopener">คําสั่งหัวหน้าคณะรักษาความสงบแห่งชาติที่ ๑๒/๒๕๕๘</a> (หมวดหมู่ หน้าที่มี<strong>การ</strong>เขียนทับผู้สร้างสรรค์)ให้ประธานกรรมการ<strong>ป้องกัน</strong>และปราบปราม<strong>การ</strong>ทุจริตแห่งชาติอยู่ในตําแหน่งต่อไป 24962คําสั่งหัวหน้าคณะรักษาความสงบแห่งชาติ — ที่ ๑๒/๒๕๕๘ เรื่อง ให้ประธานกรรมการ<strong>ป้องกัน</strong>...7 กิโลไบต์ (679 คำ) – 12:48, 11 พฤษภาคม 2558</li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://th.wikisource.org/wiki/%E0%B8%84%E0%B9%8D%E0%B8%B2%E0%B8%AA%E0%B8%B1%E0%B9%88%E0%B8%87%E0%B8%AB%E0%B8%B1%E0%B8%A7%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%E0%B8%84%E0%B8%93%E0%B8%B0%E0%B8%A3%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%B2%E0%B8%84%E0%B8%A7%E0%B8%B2%E0%B8%A1%E0%B8%AA%E0%B8%87%E0%B8%9A%E0%B9%81%E0%B8%AB%E0%B9%88%E0%B8%87%E0%B8%8A%E0%B8%B2%E0%B8%95%E0%B8%B4%E0%B8%97%E0%B8%B5%E0%B9%88_%E0%B9%92%E0%B9%92/%E0%B9%92%E0%B9%95%E0%B9%95%E0%B9%98" target="_blank" rel="noreferrer noopener">คําสั่งหัวหน้าคณะรักษาความสงบแห่งชาติที่ ๒๒/๒๕๕๘</a> (หมวดหมู่ หน้าที่มี<strong>การ</strong>เขียนทับผู้สร้างสรรค์)ที่ ๒๒/๒๕๕๘ เรื่อง มาตรการใน<strong>การป้องกัน</strong>และแก้ไขปัญหา<strong>การ</strong>แข่งรถยนต์และรถจักรยานยนต์ในทาง และ<strong>การ</strong>ควบคุมสถานบริการหรือสถานประกอบ<strong>การ</strong>ที่เปิดให้บริการในลักษณะที่คล้ายกับสถานบริการ...32 กิโลไบต์ (2,891 คำ) – 18:31, 27 กรกฎาคม 2558</li>
+<!-- /wp:list-item -->
+
+<!-- wp:list-item -->
+<li><a href="https://th.wikisource.org/wiki/%E0%B8%9E%E0%B8%A3%E0%B8%B0%E0%B8%A3%E0%B8%B2%E0%B8%8A%E0%B8%81%E0%B8%B3%E0%B8%AB%E0%B8%99%E0%B8%94%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%9A%E0%B8%A3%E0%B8%B4%E0%B8%AB%E0%B8%B2%E0%B8%A3%E0%B8%A3%E0%B8%B2%E0%B8%8A%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B9%83%E0%B8%99%E0%B8%AA%E0%B8%96%E0%B8%B2%E0%B8%99%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%93%E0%B9%8C%E0%B8%89%E0%B8%B8%E0%B8%81%E0%B9%80%E0%B8%89%E0%B8%B4%E0%B8%99_%E0%B8%9E.%E0%B8%A8._2548" target="_blank" rel="noreferrer noopener">พระราชกำหนดการบริหารราชการในสถานการณ์ฉุกเฉิน พ.ศ. 2548</a> (เปลี่ยนทางจาก <a href="https://th.wikisource.org/wiki/%E0%B8%9E%E0%B8%A3%E0%B8%B0%E0%B8%A3%E0%B8%B2%E0%B8%8A%E0%B8%81%E0%B8%B3%E0%B8%AB%E0%B8%99%E0%B8%94_%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%9A%E0%B8%A3%E0%B8%B4%E0%B8%AB%E0%B8%B2%E0%B8%A3%E0%B8%A3%E0%B8%B2%E0%B8%8A%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B9%83%E0%B8%99%E0%B8%AA%E0%B8%96%E0%B8%B2%E0%B8%99%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%93%E0%B9%8C%E0%B8%89%E0%B8%B8%E0%B8%81%E0%B9%80%E0%B8%89%E0%B8%B4%E0%B8%99_%E0%B8%9E.%E0%B8%A8._%E0%B9%92%E0%B9%95%E0%B9%94%E0%B9%98" target="_blank" rel="noreferrer noopener">พระราชกำหนด <strong>การ</strong>บริหารราชการในสถานการณ์ฉุกเฉิน พ.ศ. ๒๕๔๘</a>)ผู้บัญชาการทหารเรือ ผู้บัญชาการทหารอากาศ ผู้บัญชาการตำรวจแห่งชาติ อธิบดี<strong>กรมการปกครอง</strong> และอธิบดี<strong>กรมป้องกัน</strong>และบรรเทาสาธารณภัย เป็นกรรมการ และเลขาธิการสภาความมั่นคงแห่งชาติ...1 กิโลไบต์ (3,653 คำ) – 21:11, 11 ธันวาคม 2568</li>
+<!-- /wp:list-item --></ul>
+<!-- /wp:list -->
+
+<!-- wp:embed {"url":"https://www.google.com/maps/embed?pb=%211m18%211m12%211m3%211d8420.095871114767%212d101.65260287744603%213d17.876043588539808%212m3%211f0%212f0%213f0%213m2%211i1024%212i768%214f13.1%213m3%211m2%211s0x3126c885d0a4160f%3A0xbce98e895a718678%212z4LiB4Liy4Lij4LmE4Lif4Lif4LmJ4Liy4Liq4LmI4Lin4LiZ4Lig4Li54Lih4Li04Lig4Liy4LiE4Lit4Liz4LmA4Lig4Lit4LmA4LiK4Li14Lii4LiH4LiE4Liy4LiZ%215e1%213m2%211sth%212sth%214v1785202349979%215m2%211sth%212sth","type":"rich","providerNameSlug":"embed"} -->
+<figure class="wp-block-embed is-type-rich is-provider-embed wp-block-embed-embed"><div class="wp-block-embed__wrapper">
+https://www.google.com/maps/embed?pb=%211m18%211m12%211m3%211d8420.095871114767%212d101.65260287744603%213d17.876043588539808%212m3%211f0%212f0%213f0%213m2%211i1024%212i768%214f13.1%213m3%211m2%211s0x3126c885d0a4160f%3A0xbce98e895a718678%212z4LiB4Liy4Lij4LmE4Lif4Lif4LmJ4Liy4Liq4LmI4Lin4LiZ4Lig4Li54Lih4Li04Lig4Liy4LiE4Lit4Liz4LmA4Lig4Lit4LmA4LiK4Li14Lii4LiH4LiE4Liy4LiZ%215e1%213m2%211sth%212sth%214v1785202349979%215m2%211sth%212sth
+</div></figure>
+<!-- /wp:embed -->
+
+<!-- wp:embed {"url":"https://www.google.com/maps/embed?pb=%211m18%211m12%211m3%211d134739.95923510648%212d101.62324568079785%213d17.851731826992737%212m3%211f0%212f0%213f0%213m2%211i1024%212i768%214f13.1%213m3%211m2%211s0x3126c990b538516d%3A0x3381c699d19d824e%212z4LiB4Liy4Lij4LmE4Lif4Lif4LmJ4Liy4Liq4LmI4Lin4LiZ4Lig4Li54Lih4Li04Lig4Liy4LiE4Liq4LiW4Liy4LiZ4Li14LmE4Lif4Lif4LmJ4Liy4LmA4LiK4Li14Lii4LiH4LiE4Liy4LiZ%215e1%213m2%211sth%212sth%214v1785202794979%215m2%211sth%212sth","type":"rich","providerNameSlug":"embed"} -->
+<figure class="wp-block-embed is-type-rich is-provider-embed wp-block-embed-embed"><div class="wp-block-embed__wrapper">
+https://www.google.com/maps/embed?pb=%211m18%211m12%211m3%211d134739.95923510648%212d101.62324568079785%213d17.851731826992737%212m3%211f0%212f0%213f0%213m2%211i1024%212i768%214f13.1%213m3%211m2%211s0x3126c990b538516d%3A0x3381c699d19d824e%212z4LiB4Liy4Lij4LmE4Lif4Lif4LmJ4Liy4Liq4LmI4Lin4LiZ4Lig4Li54Lih4Li04Lig4Liy4LiE4Liq4LiW4Liy4LiZ4Li14LmE4Lif4Lif4LmJ4Liy4LmA4LiK4Li14Lii4LiH4LiE4Liy4LiZ%215e1%213m2%211sth%212sth%214v1785202794979%215m2%211sth%212sth
+</div></figure>
+<!-- /wp:embed -->
+
+<!-- wp:embed {"url":"https://www.google.com/maps/embed?pb=%211m18%211m12%211m3%211d134739.84202764125%212d101.62324566982265%213d17.851886580807705%212m3%211f0%212f0%213f0%213m2%211i1024%212i768%214f13.1%213m3%211m2%211s0x3126c7195b16b44f%3A0x833e0fdc3e3b687e%212z4Liq4LiW4Liy4LiZ4Li14LiK4Liy4Lij4LmM4LiI4Lij4LiW4Lii4LiZ4LiV4LmM4LmE4Lif4Lif4LmJ4Liy%215e1%213m2%211sth%212sth%214v1785202830946%215m2%211sth%212sth","type":"rich","providerNameSlug":"embed"} -->
+<figure class="wp-block-embed is-type-rich is-provider-embed wp-block-embed-embed"><div class="wp-block-embed__wrapper">
+https://www.google.com/maps/embed?pb=%211m18%211m12%211m3%211d134739.84202764125%212d101.62324566982265%213d17.851886580807705%212m3%211f0%212f0%213f0%213m2%211i1024%212i768%214f13.1%213m3%211m2%211s0x3126c7195b16b44f%3A0x833e0fdc3e3b687e%212z4Liq4LiW4Liy4LiZ4Li14LiK4Liy4Lij4LmM4LiI4Lij4LiW4Lii4LiZ4LiV4LmM4LmE4Lif4Lif4LmJ4Liy%215e1%213m2%211sth%212sth%214v1785202830946%215m2%211sth%212sth
+</div></figure>
+<!-- /wp:embed -->
+
+<!-- wp:image {"id":35,"sizeSlug":"large","linkDestination":"none"} -->
+<figure class="wp-block-image size-large"><img src="https://royalthaipoliceloei.wordpress.com/wp-content/uploads/2026/08/image-1.png?w=146" alt="" class="wp-image-35"/></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://js100comensitenewsview135424com.wordpress.com/455-2/">ศาลจังหวัดเลย</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>เลขที่ 666 หมู่ 5 ถนนเลย-นาด้วง ตำบลนาอาน อำเภอเมืองเลย&nbsp;&nbsp;</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>เลย 42000</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:image {"linkDestination":"custom"} -->
+<figure class="wp-block-image"><a href="https://drive.google.com/drive/folders/1wwiY7FsPnfnWYzDYP81jhI39-KZoOHLk" target="_blank" rel="noreferrer noopener"><img src="https://image.jimcdn.com/app/cms/image/transf/none/path/s867332987e70275d/image/i71caba3f6619328a/version/1785163345/image.jpg" alt=""/></a></figure>
+<!-- /wp:image -->
+
+<!-- wp:paragraph -->
+<p><a href="https://dns-query.jimdofree.com/about/">About</a>&nbsp;|&nbsp;<a href="https://dns-query.jimdofree.com/j/privacy">Privacy Policy</a>&nbsp;|&nbsp;<a href="javascript:window.CookieControl.showCookieSettings();">Cookie Policy</a>&nbsp;|&nbsp;<a href="https://dns-query.jimdofree.com/sitemap/">Sitemap</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://dns-query.jimdofree.com/login">Log in</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><a href="https://www.jimdo.com/?utm_source=cre-dns-query&amp;utm_medium=footer%20ad&amp;utm_campaign=ownads%20webview">Jimdo</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><strong>This site was created with Jimdo Creator!</strong>&nbsp;Sign up for free now at&nbsp;<a href="https://www.jimdo.com/?utm_source=cre-dns-query&amp;utm_medium=footer%20ad&amp;utm_campaign=ownads%20webview">https://www.jimdo.com</a></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p></p>
+<!-- /wp:paragraph -->
